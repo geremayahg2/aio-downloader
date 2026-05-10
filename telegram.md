@@ -7,6 +7,233 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 00:42
+---
+
+## VahidOOnLine — post 239391
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239391_1778447527.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیسبون | پرتغال؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239390
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239390_1778447529.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی «تروث سوشال» اعلام کرد پاسخ جمهوری اسلامی به پیشنهادهای اخیر واشینگتن را «کاملاً غیرقابل قبول» می‌داند.
+
+او نوشت: «من همین الان پاسخ به‌اصطلاح “نمایندگان” ایران را خواندم. از آن خوشم نمی‌آید — کاملاً غیرقابل قبول است!»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239389
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239389_1778447529.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+باراک راوید، خبرنگار آکسیوس در شبکه اکس نوشت:
+«رئیس‌جمهوری ترامپ در تماس تلفنی به من گفت پاسخ اخیر ایران به پیش‌نویس توافق پایان جنگ را نمی‌پسندد. او گفت: این پاسخ قابل قبول نبود.»
+
+راوید در ادامه افزود ترامپ به او گفته در تماس تلفنی‌ با بنیامین نتانیاهو درباره پاسخ اخیر جمهوری اسلامی به پیش‌نویس توافق پایان جنگ گفت‌وگو کرده است.
+
+به گفته راوید ترامپ تأکید کرده موضوع ایران تنها بخش کوتاهی از این تماس بوده است.
+
+خبرنگار آکسیوس نوشت رئیس جمهوری آمریکا به او گفته که رابطه خوبی با نتانیاهو دارد اما «این موضوع (ایران) کار من است نه هیچ‌کس دیگر.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 336534
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336534_1778447530.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ پاسخ جمهوری اسلامی به پیشنهاد آمریکا را رد و آن را غیرقابل قبول توصیف کرد.
+
+او ساعاتی پیش نیز گفته بود اورانیوم غنی‌شده و برنامه هسته‌ای جمهوری اسلامی تحت نظر است و ایالات متحده در نهایت به آن دست پیدا خواهد کرد.
+
+گزارش مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 5946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Sun, 10 May 2026 18:54:28 UTC 1854Z AA activity in Andimeshk, Khuzestan Province, #Iran ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی ۱۸۵۴ زولو (۲۲:۲۴ به وقت تهران) فعالیت پدافند هوایی در اندیمشک، استان…
+</div>
+
+## Shin_Persian — post 5945
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_5945_1778447531.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Sun, 10 May 2026 18:54:28 UTC
+
+1854Z
+AA activity in Andimeshk,
+Khuzestan Province, #Iran
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+۱۸۵۴ زولو (۲۲:۲۴ به وقت تهران)
+فعالیت پدافند هوایی در اندیمشک،
+استان خوزستان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5944
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 10 May 2026 21:01:49 UTC
+
+Another night with jet activity over Baghdad #Iraq 🇮🇶
+
+فارسی
+
+شبی دیگر با فعالیت جنگنده‌ها بر فراز بغداد #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105281
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105281_1778447531.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیسبون | پرتغال؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105280
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105280_1778447533.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی «تروث سوشال» اعلام کرد پاسخ جمهوری اسلامی به پیشنهادهای اخیر واشینگتن را «کاملاً غیرقابل قبول» می‌داند.
+
+او نوشت: «من همین الان پاسخ به‌اصطلاح “نمایندگان” ایران را خواندم. از آن خوشم نمی‌آید — کاملاً غیرقابل قبول است!»
+</div>
+
+## ManotoTV — post 105279
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105279_1778447533.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+باراک راوید، خبرنگار آکسیوس در شبکه اکس نوشت:
+«رئیس‌جمهوری ترامپ در تماس تلفنی به من گفت پاسخ اخیر ایران به پیش‌نویس توافق پایان جنگ را نمی‌پسندد. او گفت: این پاسخ قابل قبول نبود.»
+
+راوید در ادامه افزود ترامپ به او گفته در تماس تلفنی‌ با بنیامین نتانیاهو درباره پاسخ اخیر جمهوری اسلامی به پیش‌نویس توافق پایان جنگ گفت‌وگو کرده است.
+
+به گفته راوید ترامپ تأکید کرده موضوع ایران تنها بخش کوتاهی از این تماس بوده است.
+
+خبرنگار آکسیوس نوشت رئیس جمهوری آمریکا به او گفته که رابطه خوبی با نتانیاهو دارد اما «این موضوع (ایران) کار من است نه هیچ‌کس دیگر.»
+</div>
+
+## FarsiVOA — post 217375
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217375_1778447534.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌های شبکه‌های اجتماعی می‌گویند فردی که یک پرچم جمهوری اسلامی با خود داشت، روز یکشنبه ۲۰ اردیبهشت با خودرو خود به یک تجمع اعتراضی ایرانیان مخالف جمهوری اسلامی در ریچموند هیل کانادا کوبید.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 13865
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13865_1778447534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ روابط عمومی ارتش: یک فروند پهپاد دشمن متجاوز، توسط سامانه های شبکه یکپارچه پدافند هوایی منهدم شد
+
+به گزارش روابط عمومی ارتش، ساعتی پیش یک فروند پهپادشناسایی دشمن متجاوز، توسط سامانه های شبکه یکپارچه پدافند، تحت فرماندهی قرارگاه مشترک پدافند هوایی کشور در منطقه جنوب غرب منهدم شد.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## manototv — post 105281
+
+<div align="center">
+  <a href="telegram/content/manototv_105281_1778447535.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیسبون | پرتغال؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105280
+
+<div align="center">
+  <a href="telegram/content/manototv_105280_1778447536.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی «تروث سوشال» اعلام کرد پاسخ جمهوری اسلامی به پیشنهادهای اخیر واشینگتن را «کاملاً غیرقابل قبول» می‌داند.
+
+او نوشت: «من همین الان پاسخ به‌اصطلاح “نمایندگان” ایران را خواندم. از آن خوشم نمی‌آید — کاملاً غیرقابل قبول است!»
+</div>
+
+## manototv — post 105279
+
+<div align="center">
+  <a href="telegram/content/manototv_105279_1778447537.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+باراک راوید، خبرنگار آکسیوس در شبکه اکس نوشت:
+«رئیس‌جمهوری ترامپ در تماس تلفنی به من گفت پاسخ اخیر ایران به پیش‌نویس توافق پایان جنگ را نمی‌پسندد. او گفت: این پاسخ قابل قبول نبود.»
+
+راوید در ادامه افزود ترامپ به او گفته در تماس تلفنی‌ با بنیامین نتانیاهو درباره پاسخ اخیر جمهوری اسلامی به پیش‌نویس توافق پایان جنگ گفت‌وگو کرده است.
+
+به گفته راوید ترامپ تأکید کرده موضوع ایران تنها بخش کوتاهی از این تماس بوده است.
+
+خبرنگار آکسیوس نوشت رئیس جمهوری آمریکا به او گفته که رابطه خوبی با نتانیاهو دارد اما «این موضوع (ایران) کار من است نه هیچ‌کس دیگر.»
+</div>
+
+## alonews — post 119167
+
+<div align="center">
+  <a href="telegram/content/alonews_119167_1778447537.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در تصاویر اصلی فوتبال الکلاسیکو میان بارسلونا و رئال مادرید هیچگونه تبلیغاتی در کنار زمین وجود ندارد ولی صداوسیما با اضافه کردن تبلیغات اضافی مانند بیمه دات کام و غیره پول اضافی به جیب میزند
+
+
+🔴ولی نکته اصلی اینجاست!! چرا صداوسیما ممکلت به صورت خیلی ریز درحال تبلیغ سایت شرط بندی و قمار است؟ مگر در قانون اساسی کشور شرط‌بندی و قمار غیرمجاز نیست؟ چرا صداوسیما مصونیت دارد؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 00:32
 ---
 
