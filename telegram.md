@@ -7,6 +7,82 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 12:13
+---
+
+## mwarmonitor — post 8948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸پاسخ رسمی به گزارش سی‌بی‌اس (CBS) درباره هواپیماهای ایرانی در پاکستان 🔹پاکستان گزارش شبکه خبری سی‌بی‌اس در خصوص حضور هواپیماهای ایرانی در پایگاه هوایی نورخان را قویاً رد کرده و آن را «گمراه‌کننده و جنجال‌برانگیز» می‌خواند. به نظر می‌رسد این روایت‌های گمانه‌زنانه…
+</div>
+
+## Persian_Trend_Official — post 13964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر به اخبار جنگ، تحولات خاورمیانه، ایران، آمریکا و تحلیل اتفاقات روز علاقه داری، پیشنهاد می‌کنم حتماً پرشین ترند رو دنبال کنی.
+
+چیزی که من توی این کانال دوست دارم فقط خبر نیست؛
+تحلیل‌ها، جمع‌بندی‌ها و لایوهای شبانه‌ایه که کمک می‌کنه آدم وسط این حجم از اخبار، واقعاً بفهمه چه خبره.
+
+هم نسخه کامل لایوها قرار می‌گیره، هم فایل صوتی و هم پوشش سریع اتفاقات مهم روز.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر احساس می‌کنید یکی از دوستان، اعضای خانواده یا اطرافیانتون ممکنه به محتوای پرشین ترند علاقه داشته باشه، متن پایین رو براش فوروارد کنید 🙏
+
+کمک شما باعث میشه خانواده پرشین ترند بزرگ‌تر بشه و افراد بیشتری به تحلیل‌ها، لایوها و پوشش روزانه اخبار دسترسی داشته باشن ❤️
+</div>
+
+## Dirty_Kids — post 389297
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389297_1778575392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوران قاجار واقعا عجیب بوده
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 119449
+
+<div align="center">
+  <a href="telegram/content/alonews_119449_1778575393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر کشور پاکستان: انفجار یک بمب در ایالت خیبرپختونخوا واقع در شمال غرب پاکستان دست کم ۷ کشته و ۱۸ زخمی برجای گذاشت.‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119448
+
+
+
+
+## alonews — post 119447
+
+<div align="center">
+  <a href="telegram/content/alonews_119447_1778575393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال‌استریت ژورنال: آمریکا و ایران در یک بن‌بست دیپلماتیک بر سر موضوعاتی قرار گرفته‌اند که سال‌هاست دو طرف را دچار مشکل کرده است، و این درگیری اکنون در وضعیتی نامشخص و خاکستری قرار دارد؛ حالتی که نه جنگ است و نه صلح
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 12:03
 ---
 
