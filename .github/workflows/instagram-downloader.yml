@@ -6,6 +6,9 @@ on:
       urls:
         description: 'Instagram URLs – separate by comma, space, or newline'
         required: true
+        
+permissions:
+  contents: write
 
 jobs:
   actions:
