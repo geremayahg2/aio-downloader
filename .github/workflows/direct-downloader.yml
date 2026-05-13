@@ -87,58 +87,31 @@ jobs:
             rm -rf "$DL_DIR" "$TMPZIP"
           done < urls.txt
 
-      - name: Commit and push changes
+      - name: Upload to direct folder
         env:
           BRANCH: ${{ github.ref_name }}
-          TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
-          # ------------- CONFIGURE GIT -------------
-          git config user.name  "github-actions[bot]"
-          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git config user.name "GitHub Actions"
+          git config user.email "actions@github.com"
           git config http.postBuffer 524288000
-      
-          # ------------- STAGE ALL CHANGES ---------
-          # (Adjust the path as needed for each workflow – e.g., '.' or specific folders)
-          git add .
-      
-          # ------------- NOTHING TO COMMIT? --------
-          if git diff --staged --quiet; then
-            echo "✅ No changes to commit."
+
+          if [ -z "$(ls -A direct/)" ]; then
+            echo "No files to upload."
             exit 0
           fi
-      
-          git commit -m "chore: update generated files [skip ci]"
-      
-          # ------------- AUTHENTICATED REMOTE ------
-          REPO="${{ github.repository }}"
-          git remote set-url origin "https://x-access-token:${TOKEN}@github.com/${REPO}.git"
-      
-          # ------------- PUSH WITH RETRIES ---------
+
+          git add direct/
+          COMMIT_MSG="Add: $(ls -1 direct/ | tr '\n' ' ' | sed 's/ *$//') [skip ci]"
+          git commit -m "$COMMIT_MSG" || echo "Nothing to commit"
+
           RETRIES=5
           for i in $(seq 1 $RETRIES); do
-            echo "🚀 Push attempt $i of $RETRIES..."
-            git pull --rebase --autostash origin "$BRANCH" || true
+            echo "Push attempt $i..."
+            git pull --rebase --autostash origin "$BRANCH"
             if git push origin "$BRANCH"; then
-              echo "✅ Push succeeded."
+              echo "Push succeeded."
               break
             else
-              echo "❌ Push failed."
-              if [ $i -lt $RETRIES ]; then
-                sleep 3
-              else
-                echo "::error::All push attempts failed. If this is a forked repository, the GITHUB_TOKEN does not have write permission. Use a Personal Access Token (PAT)."
-                exit 1
-              fi
+              [ $i -lt $RETRIES ] && sleep 3 || exit 1
             fi
           done
-      
-          # ------------- VERIFICATION ---------------
-          echo "🔍 Verifying remote branch state..."
-          git fetch origin "$BRANCH"
-          if git diff --quiet "origin/$BRANCH" HEAD; then
-            echo "✅ Remote branch matches local – push confirmed."
-          else
-            echo "❌ Remote branch differs from local. The push might have been rejected (common in forks)."
-            echo "::error::Verification failed. Repository is a fork? GITHUB_TOKEN cannot write. Add a PAT secret."
-            exit 1
-          fi
