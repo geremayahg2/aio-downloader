@@ -7,6 +7,162 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 01:02
+---
+
+## VahidOOnLine — post 240870
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240870_1779139947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام عراقی در گفتگو با نشریه انتخاب اعلام کرد که حدود ۵۰ درصد از کل حملات پهپادی انجام‌شده علیه کشورهای حوزه خلیج فارس، از داخل خاک عراق صورت گرفته است.
+همزمان، المانیتور به نقل از یک منبع آگاه گزارش داد که مقامهای عربستان سعودی بر این باورند که تقریبا تمامی حملات پهپادی و موشکی اخیر به این کشور، به جای ایران، از خاک عراق نشات گرفته است؛ ارزیابی و تحلیلی که اکنون مورد تایید دولت دونالد ترامپ در واشنگتن نیز قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قلهکی، ‏فعال رسانه‌ای: ترامپ شنبه‌ شب قصد حمله داشت که صبحش قطر به ایران هشدار داد و سران نظام رفتن مخفی شدن و علت عدم حمله پیدا نکردن لوکیشن سران نظام بوده. @withyashar
+</div>
+
+## WithYashar — post 11602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قلهکی، ‏فعال رسانه‌ای:
+ترامپ شنبه‌ شب قصد حمله داشت که صبحش قطر به ایران هشدار داد و سران نظام رفتن مخفی شدن و علت عدم حمله پیدا نکردن لوکیشن سران نظام بوده.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341902
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341902_1779139948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: San Diego police confirm 2 male teenage suspects, ages 17 and 19, died from what appear to be self-inflicted gunshot wounds following a shooting at the Islamic Center of San Diego.
+</div>
+
+## FoxNewsTwitter — post 341901
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341901_1779139950.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump participates in healthcare affordability event https://twitter.com/i/broadcasts/1nJOLEDnMlnxR
+</div>
+
+## pm_afshaa — post 90998
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90998_1779139951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢علی قلهکی، ‏فعال رسانه‌ای:
+ترامپ شنبه‌ شب قصد حمله داشت که صبحش قطر به ایران هشدار داد و سران نظام رفتن مخفی شدن و علت عدم حمله پیدا نکردن لوکیشن سران نظام بوده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337845
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337845_1779139952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو در پی پاسخ تازه جمهوری اسلامی به پیشنهاد آمریکا برای پایان جنگ، نشست امنیتی با حضور وزیران و مشاوران ارشدش برگزار می‌کند. هم‌زمان ترامپ در تماس با نتانیاهو گفته زمان برای جمهوری اسلامی رو به پایان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337844
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337844_1779139954.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «برداشت فرماندهان سپاه این است که آمریکا و اسرائیل توان شکست نظامی جمهوری اسلامی را ندارند و تلاش می‌کنند از مسیر مذاکره امتیاز بگیرند. بنابراین تصور می‌کنند عدم عقب‌نشینی در مذاکرات، پیامد نظامی جدی نخواهد داشت. این باور فرماندهان سپاه می‌تواند ناشی از توهم پیروزی باشد، در حالی که حملات احتمالی آینده ممکن است کاملا متفاوت و گسترده‌تر باشد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337843
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337843_1779139956.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از سه مقام امنیتی و دو منبع دولتی از گسترش همکاری‌های پاکستان و عربستان سعودی در چارچوب یک پیمان دفاعی متقابل خبر داد. این پیمان، اعزام ۸ هزار نیروی نظامی، حدود ۱۶ فروند جنگنده جی‌اف-۱۷، دو اسکادران پهپادی و یک سامانه پدافند هوایی را شامل می‌شود.
+@iranintltv
+</div>
+
+## BBCPersian — post 281401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 حمله به مسجد جامع سن دیگو؛‌ پلیس تیراندازی را تحت عنوان «جنایت ناشی از نفرت» بررسی می‌کند
+
+اسکات وال، رئیس پلیس سن‌دیگو، گفت حادثه رخ‌داده در مرکز اسلامی در حال حاضر به عنوان «جنایت ناشی از نفرت (تروریسم داخلی)» بررسی می‌شود و پلیس همکاری نزدیکی با اف‌بی‌آی دارد.
+
+مارک رمیلی، مامور ویژه اف‌بی‌آی، نیز در ادامه گفت سه مرد بزرگسال که در تیراندازی هدف قرار گرفته بودند، جان باخته‌اند.
+
+او افزود مرگ دو مظنون، که هر دو نوجوان بودند، تایید شده است.
+
+آقای رمیلی گفت اف‌بی‌آی با «دقت کامل» در حال بررسی ابعاد حادثه است و همه منابع خود را برای روشن شدن جزئیات این حمله به کار گرفته است.
+
+او همچنین از مردم خواست هرگونه اطلاعاتی را که می‌تواند به روند تحقیقات کمک کند، در اختیار مقام‌ها قرار دهند.
+
+https://bbc.in/49apwMr
+@BBCPersian
+</div>
+
+## BBCPersian — post 281400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 تیراندازی در مسجد جامع سن‌دیگو؛ پلیس: جسد دو نوجوان در خودرو پیدا شد که احتمالا تیراندازها هستند
+
+
+رئیس پلیس سن‌دیگو اعلام کرد دو مردی که در نزدیکی محل حادثه جان باخته پیدا شدند، به احتمال زیاد مظنونان تیراندازی هستند.
+
+مقام‌ها گفتند اجساد این دو نوجوان پسر داخل یک خودرو در نزدیکی مسجد پیدا شده است.
+
+رئیس پلیس همچنین گفت دو مظنون، که گفته می‌شود هر دو نوجوان بودند، داخل یک خودرو با جراحاتی ناشی از شلیک به خود پیدا شدند.
+
+اسکات وال، رئیس پلیس سن‌دیگو، گفت: «جزئیات اتفاقات منتهی به این حادثه، آنچه دقیقا رخ داده و زمان دقیق وقوع آن، در روزهای آینده روشن خواهد شد.»
+
+رئیس پلیس گفت ماموران در ساعت ۱۱:۴۳ به وقت محلی به محل حادثه اعزام شدند و «در مقابل محل، با آنچه به نظر می‌رسید سه قربانی جان‌باخته باشند» روبه‌رو شدند.
+
+او افزود نیروهای بیشتر پلیس ظرف چهار دقیقه به محل رسیدند.
+
+به گفته او، «تقریبا همزمان، تماس‌هایی از چند خیابان آن‌طرف‌تر دریافت کردیم که از ادامه تیراندازی فعال خبر می‌داد.»
+
+https://bbc.in/4nAIJwT
+@BBCPersian
+</div>
+
+## alonews — post 120974
+
+<div align="center">
+  <a href="telegram/content/alonews_120974_1779139958.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تیراندازی فعال در مرکز اسلامی سن دیگو به نظر می‌رسد حمله‌ای وحشتناک باشد. 
+🔴 تصاویر هلی‌کوپتر نشان می‌دهد جسدی در برکه‌ای از خون بیرون ساختمان افتاده است 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 00:52
 ---
 
