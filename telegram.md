@@ -7,6 +7,132 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 14:52
+---
+
+## VahidOOnLine — post 240782
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240782_1779103372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ در پی مرگ دست‌کم ۱۰۰ نفر در جمهوری دموکراتیک کنگو براثر ابتلا به گونه جدید ویروس ابولا، سازمان جهانی بهداشت روز یکشنبه هشدار فوری بین‌المللی صادر کرد.
+
+به گزارش خبرگزاری فرانسه، این دومین سطح بالای هشدار سازمان جهانی بهداشت به‌شمار می‌رود. این نهاد وابسته به سازمان ملل اعلام کرد این گونه  که  بوندی بوگیو نام دارد نه واکسنی دارد و نه درمانی.
+
+کشورهای آفریقایی در دهه گذشته و سال‌ها پیش از شیوع جهانی ویروس کووید، با بیماری ابولا درگیر شده بودند؛ بیماری که هزاران قربانی برجا گذاشت اما شیوع آن مانند کووید تبدیل به همه‌گیری جهانی نشد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Dirty_Kids — post 389672
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389672_1779103373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشریه چپولیستی گاردین رسما اعلام کرده:
+"اگه از بوی شاش و عرق حال‌تون به هم می‌خوره، شما راست افراطیِ ترامپ‌یستید" 😭😂
+یعنی اینا برای حموم نرفتن و بوی تعفن هم دارن مشروعیت سیاسی صادر می‌کنن!!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری تسنیم:
+
+ایران از طریق پاکستان، یه پیشنهاد 14 بندیِ اصلاح شده به آمریکا داد تا اونا هم بررسیش کنن و جواب بدن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389670
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389670_1779103373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا نه تنها باخت ندارن 😂
+حتی یه مورد مساوی هم ندارن
+فقط بردددد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389669
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389669" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389668
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389668_1779103374.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نگاهی عمیق‌تر به بیضه‌های بهزاد فراهانی
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 14:43
 ---
 
