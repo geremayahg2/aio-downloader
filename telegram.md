@@ -7,6 +7,227 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 16:52
+---
+
+## VahidOOnLine — post 240959
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240959_1779196979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارزار «سه‌شنبه‌های نه به اعدام» اعلام کرد زندانیان معترض به مجازات اعدام، سه‌شنبه ۲۹ اردیبهشت برای صدوبیست‌ویکمین هفته متوالی در ۵۶ زندان ایران دست به اعتصاب غذا زدند. این اقدام در شرایط تشدید موج اعدام‌ها و افزایش نگرانی‌های جهانی درباره وضعیت حقوق بشر در ایران انجام شد.
+
+در بیانیه این کارزار آمده است حکومت جمهوری اسلامی در هفته‌های اخیر، هم‌زمان با گسترش فضای امنیتی و حضور نیروهای وابسته به حکومت در خیابان‌ها، بر اجرای احکام اعدام نیز افزوده است.
+
+این کارزار، به اعدام عبدالجلیل شه‌بخش، زندانی سیاسی بلوچ، در زندان زاهدان و همچنین محمد عباسی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، اشاره کرد و در بیانیه خود نوشت که حکومت با استفاده از مجازات اعدام، در پی «ایجاد ترس و وحشت در جامعه» است.
+
+کارزار «سه‌شنبه‌های نه به اعدام» تاکید کرد که اعدام صرفا یک مجازات قضایی نیست، بلکه «مهم‌ترین ابزار سرکوب و قتل حکومتی» است که برای وادار کردن جامعه به سکوت و تسلیم به کار گرفته می‌شود.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240958
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240958_1779196980.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام تصویری از یک ملوان نیروی دریایی آمریکا بر عرشه ناو هواپیمابر آبراهام لینکلن منتشر کرد که در حال عبور از دریای عرب نگهبانی می‌داد. سنتکام نوشت نیروهای این فرماندهی برای اطمینان از اجرای کامل مقررات، ۸۸ کشتی تجاری را تغییر مسیر داده و چهار کشتی را از کار انداخته‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریکلین فاش خبرنگار اسرائیلی:
+
+نیروهای ویژه ارتش اسرائیل دارن برای نفوذ به تأسیسات هسته ایی اصفهان تمرین می‌کنن تا اورانیوم غنی‌شده رو خارج کنن
+مواد هسته‌ای اون‌قدرا هم عمیق دفن نشده و بعد از ورود به سایت، میشه منتقلش کرد
+@withyashar
+</div>
+
+## WithYashar — post 11656
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11656_1779196981.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام : ‏هزاران آمریکایی شجاع در لباس نظامی همچنان در سراسر خاورمیانه خدمت می‌کنند.
+@withyashar
+</div>
+
+## DEJradio — post 4736
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4736_1779196983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 پیام یک شهروند:
+ما چیزی برای خوردن نداریم...
+
+#تورم #فقر
+@DEJradio
+</div>
+
+## IranIntlTV — post 337930
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337930_1779196986.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارزار «سه‌شنبه‌های نه به اعدام» اعلام کرد زندانیان معترض به مجازات اعدام، سه‌شنبه ۲۹ اردیبهشت برای صدوبیست‌ویکمین هفته متوالی در ۵۶ زندان ایران دست به اعتصاب غذا زدند. این اقدام در شرایط تشدید موج اعدام‌ها و افزایش نگرانی‌های جهانی درباره وضعیت حقوق بشر در ایران انجام شد.
+
+در بیانیه این کارزار آمده است حکومت جمهوری اسلامی در هفته‌های اخیر، هم‌زمان با گسترش فضای امنیتی و حضور نیروهای وابسته به حکومت در خیابان‌ها، بر اجرای احکام اعدام نیز افزوده است.
+
+این کارزار، به اعدام عبدالجلیل شه‌بخش، زندانی سیاسی بلوچ، در زندان زاهدان و همچنین محمد عباسی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، اشاره کرد و در بیانیه خود نوشت که حکومت با استفاده از مجازات اعدام، در پی «ایجاد ترس و وحشت در جامعه» است.
+
+کارزار «سه‌شنبه‌های نه به اعدام» تاکید کرد که اعدام صرفا یک مجازات قضایی نیست، بلکه «مهم‌ترین ابزار سرکوب و قتل حکومتی» است که برای وادار کردن جامعه به سکوت و تسلیم به کار گرفته می‌شود.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+https://iranintl.com/202605193847
+</div>
+
+## IranIntlTV — post 337929
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337929_1779196987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام تصویری از یک ملوان نیروی دریایی آمریکا بر عرشه ناو هواپیمابر آبراهام لینکلن منتشر کرد که در حال عبور از دریای عرب نگهبانی می‌داد. سنتکام نوشت نیروهای این فرماندهی برای اطمینان از اجرای کامل مقررات، ۸۸ کشتی تجاری را تغییر مسیر داده و چهار کشتی را از کار انداخته‌اند.
+https://iranintl.com/202605194310
+</div>
+
+## Shin_Persian — post 6086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 19 May 2026 13:16:01 UTC
+
+𝐄𝐜𝐨𝐧𝐨𝐦𝐢𝐜 𝐅𝐮𝐫𝐲 campaign intensifies financial pressure on Iran through modernized sanctions architecture targeting terrorist financing networks, with Treasury freezing nearly $500 million in regime-linked cryptocurrency and disrupting hundreds of billions in illicit flows.
+
+𝐊𝐞𝐲 𝐏𝐨𝐥𝐢𝐜𝐲 𝐔𝐩𝐝𝐚𝐭𝐞𝐬:
+- Treasury reviewing outdated designations to focus financial institutions on sophisticated evasion schemes
+- New approach emphasizes targeted sanctions with defined timelines rather than indefinite measures
+- Sanctions architecture modernized for 21st century threats including cryptocurrency and shadow banking
+
+𝐂𝐚𝐦𝐩𝐚𝐢𝐠𝐧 𝐒𝐜𝐨𝐩𝐞 - 𝐄𝐜𝐨𝐧𝐨𝐦𝐢𝐜 𝐅𝐮𝐫𝐲:
+- Disrupted tens of billions in projected Iranian oil revenue
+- Frozen nearly $500 million in regime-linked cryptocurrency
+- Disrupted hundreds of billions in Iran's illicit financial flows
+- Intensified crackdown on Tehran's shadow banking networks
+- Targeting vessel networks, intermediaries, and oil buyers
+
+𝐈𝐧𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐨𝐧𝐚𝐥 𝐂𝐨𝐨𝐩𝐞𝐫𝐚𝐭𝐢𝐨𝐧 𝐑𝐞𝐪𝐮𝐢𝐫𝐞𝐦𝐞𝐧𝐭𝐬:
+- European partners: Designate Iranian financiers, unmask shell companies, shutter bank branches, dismantle proxies
+- Middle East/Asia partners: Root out Iran's shadow banking networks
+- Global partners: Target array of terrorists from Hizballah to Sinaloa Cartel
+
+𝐒𝐭𝐫𝐚𝐭𝐞𝐠𝐢𝐜 𝐃𝐨𝐜𝐭𝐫𝐢𝐧𝐞:
+- Economic security positioned as national security under Trump Administration
+- Sanctions designed as "instruments of peace" to create behavioral change conditions
+- Focus on aggressive, targeted actions rather than generational punishment of populations
+- Emphasis on agility to maximize effectiveness while monitoring for unintended consequences
+
+𝐎𝐩𝐞𝐫𝐚𝐭𝐢𝐨𝐧𝐚𝐥 𝐓𝐚𝐫𝐠𝐞𝐭𝐬:
+- Shell companies embedded within Europe
+- Shadow banking networks across Middle East
+- Drug cartels throughout Western Hemisphere
+- Iranian weapons programs and terrorist proxies
+- Nuclear ambitions financing
+
+The announcement reinforces maximum pressure campaign continuation with enhanced multilateral coordination expectations and modernized enforcement mechanisms.
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218138
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218138_1779196988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل در شبانه‌روز گذشته بیش از ۲۵ بار مواضع متعلق به حزب‌الله را در جنوب لبنان هدف قرار داد و اعلام کرد این اهداف شامل انبارهای تسلیحات، مراکز فرماندهی و دیگر زیرساخت‌هایی بود که «این گروه از آن‌ها برای پیشبرد طرح‌های تروریستی علیه نیروهای ارتش اسرائیل و کشور اسرائیل استفاده می‌کردند.»
+
+ارتش اسرائیل همچنین اعلام کرد «در منطقه رشته‌کوه کریستوفنی در جنوب لبنان تروریست‌ها را هدف قرار داد و پرتابگرهایی را که پیش‌تر به سوی نیروهای ارتش اسرائیل و خاک این کشور شلیک کرده بودند، منهدم کرد.»
+</div>
+
+## Persian_Trend_Official — post 14480
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14480_1779196993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای طراحی چند صفحه از وبسایت پرشین ترند به یک وردپرس‌کار حرفه‌ای، خوش‌سلیقه و سریع نیاز داریم.
+کار در فاز اول خیلی بزرگ و پیچیده نیست؛ فقط طراحی و آماده‌سازی ۲ تا ۳ صفحه اصلی مورد نیاز است:
+صفحه تماشای لایو و ویدیو
+صفحه آرشیو لایوهای قبلی
+صفحه معرفی جایگاه‌های تبلیغاتی و همکاری با اسپانسرها
+نیاز ما بیشتر روی ظاهر حرفه‌ای، طراحی تمیز، ریسپانسیو بودن برای موبایل و دسکتاپ، سرعت اجرا و سلیقه بصری خوب است.
+ترجیحاً کسی پیام بدهد که:
+تجربه طراحی سایت وردپرسی حرفه‌ای داشته باشد
+با طراحی صفحات رسانه‌ای، ویدیویی یا خبری آشنا باشد
+بتواند کار را سریع، حدوداً در یکی دو روز، جمع کند
+خوش‌قول، دقیق و قابل‌اعتماد باشد
+نمونه‌کار واقعی برای ارائه داشته باشد
+بتواند بدون قالب‌های شلوغ و سنگین، یک خروجی تمیز و سبک تحویل دهد
+این پروژه فعلاً فاز اول است و اگر همکاری خوب باشد، برای توسعه‌های بعدی سایت هم ادامه خواهد داشت.
+افرادی که تجربه و زمان کافی دارند، لطفاً نمونه‌کار، توضیح کوتاه از توانایی‌ها و حدود هزینه پیشنهادی‌شان را ارسال کنند.
+📩 برای هماهنگی پیام بدهید.
+
+@NickTARTARUS
+‌
+</div>
+
+## Hranews — post 113039
+
+<div align="center">
+  <img src="telegram/content/Hranews_113039_1779196994.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی‌که اینترنت در ایران طی هفته‌های اخیر با قطع و اختلال گسترده مواجه بوده، ایجاد یک ساختار جدید برای مدیریت فضای مجازی، ابهام‌ها درباره نحوه تصمیم‌گیری در این حوزه را افزایش داده است. روزنامه شرق با انتشار گزارشی اعلام کرده که «ستاد ساماندهی و راهبری فضای مجازی» در همین شرایط شکل گرفته، اما جزئیات دقیقی از نحوه فعالیت و حدود اختیارات آن منتشر نشده است. حتی به اعضای هیئت دولت نیز تاکید شده درباره این ستاد با رسانه‌ها گفت‌وگو نکنند. با این حال، بر اساس پیگیری‌های این روزنامه، ترکیب این ستاد شامل نهادهای دولتی، امنیتی و حاکمیتی از جمله دادستان کل کشور، نماینده‌ای از مجلس، وزارتخانه‌های ارشاد، ارتباطات، اطلاعات و علوم، معاونت علمی و فناوری ریاست‌جمهوری، دبیران شورای عالی فضای مجازی و شورای عالی امنیت ملی، اطلاعات سپاه و همچنین سه عضو از بخش خصوصی است.
+
+به‌نوشته شرق، هم‌زمان با این سکوت و ابهام در اختیارات، شائبه شکل‌گیری یک مرکز تازه قدرت در سیاست‌گذاری اینترنت تقویت شده است. این روزنامه با اشاره به تعدد نهادهای فعال در حوزه فضای مجازی نوشت که برخی منتقدان، تشکیل این ستاد را نوعی موازی‌کاری و نشانه‌ای از ناکارآمدی ساختار فعلی می‌دانند؛ وضعیتی که در آن، به‌جای حل بحران، پیچیدگی تصمیم‌گیری افزایش یافته و همچنان این پرسش بی‌پاسخ مانده که مسئول نهایی اینترنت در ایران کدام نهاد است.
+#قطع_اینترنت #فضای_مجازی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 121100
+
+<div align="center">
+  <a href="telegram/content/alonews_121100_1779196994.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفیر چین در تهران: حمایت پکن از ایران، آشکار و بی‌چون و چرا است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121099
+
+<div align="center">
+  <a href="telegram/content/alonews_121099_1779196994.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چین گزارش فایننشال تایمز درباره دیدار شی و ترامپ را «کاملاً» رد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 16:42
 ---
 
