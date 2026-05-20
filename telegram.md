@@ -7,6 +7,233 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 22:24
+---
+
+## VahidOOnLine — post 241212
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241212_1779303252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وبسایت آکسیوس روز چهارشنبه ۳۰ اردیبهشت، به نقل از سه منبع آگاه گزارش داد که دونالد ترامپ و بنیامین نتانیاهو در تماسی تلفنی و دشوار در روز سه‌شنبه، تلاش‌های جدید برای دستیابی به توافق با جمهوری اسلامی را بررسی کردند؛ تا جایی که یکی از منابع آکسیوس گفت نتانیاهو پس از این تماس «بسیار خشمگین و آشفته» بود.
+
+این تنش پس از آن رخ داد که قطر و پاکستان با همکاری دیگر میانجی‌های منطقه‌ای، پیش‌نویس طرح صلحی را برای کاهش اختلافات میان آمریکا و جمهوری اسلامی تدوین کردند. این در حالی است که ترامپ میان صدور فرمان یک حمله گسترده به ایران یا منتظر ماندن برای توافق، مردد است.
+
+به گزارش آکسیوس، نتانیاهو به شدت نسبت به این مذاکرات بدبین است و خواستار ازسرگیری جنگ برای نابودی زیرساخت‌های حیاتی و تضعیف بیشتر نظامی ایران است. در مقابل، ترامپ روز چهارشنبه در آکادمی گارد ساحلی گفت: «سوال این است که آیا کار را تمام کنیم یا آن‌ها توافق‌نامه را امضا می‌کنند؟» او همچنین تاکید کرد نتانیاهو هرچه او بخواهد انجام می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود زرشکیان : وادار کردن ایران به تسلیم از طریق اجبار چیزی جز توهم نیست.
+احترام متقابل در دیپلماسی بسیار عاقلانه‌تر، ایمن‌تر و پایدارتر از جنگ است
+@withyashar
+</div>
+
+## mwarmonitor — post 9374
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما در حال «آزادسازی کوبا» هستیم و باید به کوبایی‌ها کمک کنیم، چون آن‌ها غذا و انرژی ندارند، اما مردم بزرگی هستند. 🔸ما منتظر پاسخ مناسب ایران هستیم تا از تشدید بیشتر تنش جلوگیری شود. 🔸چند روزی منتظر پاسخ ایران خواهیم ماند. 🔸تا زمانی که به توافق نرسیم،…
+</div>
+
+## mwarmonitor — post 9373
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما در حال «آزادسازی کوبا» هستیم و باید به کوبایی‌ها کمک کنیم، چون آن‌ها غذا و انرژی ندارند، اما مردم بزرگی هستند.
+
+🔸ما منتظر پاسخ مناسب ایران هستیم تا از تشدید بیشتر تنش جلوگیری شود.
+
+🔸چند روزی منتظر پاسخ ایران خواهیم ماند.
+
+🔸تا زمانی که به توافق نرسیم، هیچ‌گونه تحریمی را از ایران لغو نخواهم کرد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 منبع آگاه ایرانی: آمریکایی‌ها، پس از ارسال یک پیام شامل ۱۴ بند سه روز پیش، پیام دیگری را از طریق یک واسطه پاکستانی به ایران ارسال کرده‌اند (ظاهراً همین وزیر کشور پاکستان). ایران در حال بررسی این پیام است و هنوز به آن پاسخ نداده است. 🔸 واسطه پاکستانی در…
+</div>
+
+## FoxNewsTwitter — post 342024
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342024_1779303252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump celebrates the "very big moment" of Raul Castro being indicted and what it means to the Cuban people:
+
+"We have Cuba on our mind, it's very important.... It was a very big moment for people, not only Cuban Americans, but people who came from Cuba, that want to go back to Cuba, see their family in Cuba."
+
+"They supported me to the nth degree, they supported me at levels that nobody's ever seen before. And so I think it's a very important moment."
+</div>
+
+## FoxNewsTwitter — post 342023
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342023_1779303254.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Florida lawmakers hold press conference on US indictment of Raúl Castro https://twitter.com/i/broadcasts/1pKkOyBYPAMKj
+</div>
+
+## FoxNewsTwitter — post 342022
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342022_1779303255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Senate holds 'Blowing the Whistle: Inside the Grift that Keeps Giving' hearing https://twitter.com/i/broadcasts/1jxXgeVpZgeJZ
+</div>
+
+## IranIntlTV — post 338136
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338136_1779303255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در شبکه ایکس نوشت: «ایران همواره به تعهدات خود پایبند بوده و همه راه‌ها را برای جلوگیری از جنگ آزموده است؛ از سوی ما همه مسیرها همچنان باز است. وادار کردن ایران به تسلیم از طریق اجبار چیزی جز یک توهم نیست. احترام متقابل در دیپلماسی بسیار عاقلانه‌تر، امن‌تر و پایدارتر از جنگ است.»
+https://iranintl.com/202605200670
+</div>
+
+## IranIntlTV — post 338135
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338135_1779303256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «یکی از نزدیکان سابق محمود احمدی‌نژاد در واکنش به گزارش نیویورک‌تایمز گفته او نه مخفی شده و نه تحت فشار است و گزارش‌هایی را که می‌گویند احمدی‌نژاد در حصر خانگی یا بازداشت است، رد کرده است.»
+
+او افزود: «بخش مهم‌تر این اظهارات آن بود که این گزارش‌ها تلاشی از سوی حسن روحانی، محمدجواد ظریف و دموکرات‌های آمریکا برای انتقام گرفتن از دونالد ترامپ توصیف شد.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 218252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از فشار هزینه‌ درمان تا اینترنت طبقاتی؛ واکنش کاربران شبکه‌های اجتماعی
+</div>
+
+## FarsiVOA — post 218251
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی اصلانی در برنامه تفسیر خبر: کفگیر حکومت به ته دیگ خورده‌ است
+</div>
+
+## DW_Farsi — post 124940
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124940_1779303258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 عربستان سعودی از ایران خواست به تلاش‌های دیپلماتیک برای پایان بحران پاسخ دهد
+
+به گزارش خبرگزاری آلمان، فیصل بن‌فرحان، وزیر خارجه عربستان سعودی، از ایران خواست به تلاش‌های دیپلماتیک برای حل‌وفصل بحران پاسخ دهد و هشدار داد تنها از این مسیر می‌توان از "پیامدهای خطرناک تشدید تنش" جلوگیری کرد.
+
+او در پیامی در شبکه ایکس نوشت تهران باید "فورا" به تلاش‌هایی که با هدف پیشرفت مذاکرات و رسیدن به توافق انجام می‌شود، واکنش نشان دهد.
+
+وزیر خارجه عربستان گفت ادامه مسیر سیاسی، بهترین راه برای جلوگیری از گسترش بحران است. او تاکید کرد ایران باید بدون تاخیر به ابتکارهایی که برای پیشبرد مذاکرات شکل گرفته‌اند، پاسخ دهد تا امکان رسیدن به توافق فراهم شود.
+
+بن‌فرحان در عین حال از دونالد ترامپ، رئيس‌جمهور آمریکا به‌دلیل "فرصت دادن به دیپلماسی" تمجید کرد. او همچنین گفت عربستان از تلاش‌های پاکستان برای میانجی‌گری و دستیابی به راه‌حلی مسالمت‌آمیز حمایت می‌کند.
+
+@dw_farsi
+</div>
+
+## BBCPersian — post 281631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل: در بالاترین سطح هشدار قرار داریم
+
+با بالاگرفتن تهدیدهای متقابل آمریکا و اسرائیل به جنگ، سپهبد ایال زمیر، فرمانده ارتش اسرائیل، روز چهارشنبه گفت که ارتش کشورش در بالاترین سطح هشدار خود قرار دارد.
+
+بر اساس بیانیه‌ای که ارتش اسرائیل منتشر کرده است، ایال زمیر در جلسه‌ای با حضور تمام فرماندهان لشکرها گفت: «در حال حاضر، ارتش اسرائیل برای هرگونه تحولی آماده است.»
+
+این اظهارات در حالیست که سپاه پاسداران ساعاتی پیش با انتشار بیانیه‌ای تهدید کرد که در صورت آغاز دوباره جنگ آمریکا و اسرائیل علیه ایران، جنگ «به فراتر از منطقه کشیده خواهد شد.»
+
+دونالد ترامپ، رئیس جمهور آمریکا، هم دیروز گفته بود که در آستانه حمله نظامی دوباره به ایران، به درخواست رهبران منطقه، دستور حمله را لغو کرده است.
+
+https://bbc.in/436bsAl
+@BBCPersian
+</div>
+
+## BBCPersian — post 281630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرماندهی مرکزی آمریکا، سنتکام، با انتشار ویدیویی در حساب رسمی خود در شبکه اجتماعی ایکس گفته است که نیروهای آمریکایی وارد یک نفتکش با «پرچم ایران» شدند و این کشتی را مجبور به تغییر مسیر کردند.
+
+سنتکام می‌گوید اوایل امروز (چهارشنبه) در دریای عمان، «تفنگداران دریایی ایالات متحده از واحد سی و یکم اعزامی تفنگداران دریایی، وارد ام‌تی سلستیال سی، یک نفتکش تجاری با پرچم ایران شدند که مظنون به تلاش برای نقض محاصره ایالات متحده با عبور به سمت یک بندر ایرانی بود.»
+
+در ادامه این متن آمده است: «نیروهای آمریکایی پس از بازرسی و هدایت خدمه کشتی برای تغییر مسیر، کشتی را آزاد کردند.»
+
+سنتکام می‌گوید نیروهای آمریکایی کماکان به اجرای کامل محاصره دریایی ادامه می‌دهند و اکنون ۹۱ کشتی تجاری را برای اطمینان از رعایت آن، تغییر مسیر داده‌اند.
+
+🎥CENTCOM
+https://bbc.in/436bsAl
+@BBCPersian
+</div>
+
+## alonews — post 121397
+
+<div align="center">
+  <a href="telegram/content/alonews_121397_1779303258.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پولیتیکو: جمهوری‌خواه‌های مجلس رای‌گیری درباره اختیارات جنگ با ایران رو امروز عقب انداختن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121396
+
+<div align="center">
+  <a href="telegram/content/alonews_121396_1779303259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس: منابع گفتند که قطر و پاکستان با مشارکت دیگر میانجی‌گران منطقه‌ای، یک یادداشت تفاهم اصلاح‌شده صلح را تهیه کرده‌اند تا شکاف‌های بین آمریکا و ایران را کاهش دهند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121395
+
+<div align="center">
+  <a href="telegram/content/alonews_121395_1779303259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مسعود پزشکیان: ایران همواره به تعهدات خود پایبند بوده و هر راهی را برای جلوگیری از جنگ بررسی کرده است؛ همه مسیرها از طرف ما باز است.
+
+
+🔴وادار کردن ایران به تسلیم از طریق اجبار چیزی جز توهم نیست.
+
+
+🔴احترام متقابل در دیپلماسی بسیار عاقلانه‌تر، ایمن‌تر و پایدارتر از جنگ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 22:14
 ---
 
