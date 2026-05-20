@@ -7,6 +7,218 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 23:34
+---
+
+## VahidOOnLine — post 241226
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهور آمریکا، در تازه‌ترین اظهارات خود درباره روند تحولات مرتبط با ایران و مذاکرات جاری، اعلام کرد که شرایط «در مرز تصمیم‌گیری» قرار دارد و در صورت دریافت نکردن پاسخ‌های موردنظر واشنگتن، تحولات می‌تواند «بسیار سریع» پیش برود.
+ترامپ با تاکید بر اینکه آمریکا برای هر سناریویی آمادگی کامل دارد، گفت پاسخ‌هایی که از طرف مقابل دریافت می‌شود باید «صددرصد کامل و مطلوب» باشد، چرا که رسیدن به توافق می‌تواند از اتلاف زمان، انرژی و مهم‌تر از همه از تلفات انسانی جلوگیری کند.
+رئیس‌جمهوری آمریکا همچنین گفت ایران اکنون در موقعیتی «ضعیف و شکست‌خورده» قرار دارد، اما در عین حال تاکید کرد افرادی که هم‌اکنون در مذاکرات حضور دارند، نسبت به گذشته «منطقی‌تر» هستند. ترامپ گفت طرف‌های حاضر در گفتگوها را افرادی «باهوش، بااستعداد و دارای قدرت فکری بالا» می‌داند و ابراز امیدواری کرد که این مذاکرات به توافقی منجر شود که «برای همه عالی» باشد.
+او در بخش دیگری از سخنانش با اشاره به احتمال تشدید تنش‌ها، تاکید کرد ترجیح می‌دهد با چند روز صبر و ادامه مسیر دیپلماسی، از وقوع جنگ و کشته شدن انسان‌ها جلوگیری شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241225
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241225_1779307475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی که از جاویدنام سینا عباسی، ۲۲ ساله از کرمانشاه گفت…
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241224
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241224_1779307477.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش سازمان حقوق بشری هه‌نگاو، غلامرضا خانی‌شکرآب، ورزشکار و زندانی سیاسی اهل اردبیل که پیش‌تر با اتهام جاسوسی برای اسرائیل به اعدام محکوم شده بود، در خطر قریب‌الوقوع اجرای حکم اعدام قرار دارد.
+
+بر اساس این گزارش، او به‌طور ناگهانی از بند امنیتی زندان اوین به سلول انفرادی زندان قزل‌حصار کرج منتقل شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11795
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11795_1779307478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنیا با نفس حبس‌شده در انتظار موج بعدی اسناد یوفوهاست؛ پس از آنکه مقام‌ها وعده دادند این اسناد «به‌زودی» منتشر خواهند شد.
+
+شان پارنل، سخنگوی ارشد پنتاگون، در ایکس اعلام کرد که این مدارک هم‌اکنون «به‌طور فعال در حال آماده‌سازی و پردازش» برای انتشار هستند.
+
+مقام‌های سابق سیا و پنتاگون اخیراً مدعی شده‌اند «چهار گونهٔ بیگانه» به زمین رفت‌وآمد دارند: خزنده‌ها (Reptilians)، حشره‌مانندها (Insectoids)، گری‌ها (Greys) و نوردیک‌ها (Nordics).
+
+آیا ما برای حقیقت آماده‌ایم؟
+@withyashar
+</div>
+
+## mwarmonitor — post 9382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طرح پیشنهادی جدید برای صلح با ایران، موجب تماس تلفنی تنش‌آمیز میان ترامپ و نتانیاهو شد 📝نویسنده: باراک راوید AXIOS 🔰سه منبع آگاه اعلام کردند که دونالد ترامپ، رئیس‌جمهور آمریکا و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز سه‌شنبه در یک تماس تلفنی دشوار، درباره…
+</div>
+
+## mwarmonitor — post 9381
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9381_1779307479.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷جمهورى اسلامى ايران محدودهٔ نظارتى مديریت تنگه هرمز را به این شرح تعيین کرده است: «خط اتصال كوه مبارك درايران وجنوب فجيره درامارات در شرق تنگه تاخط اتصال انتهاى جزيره قشم درايران و ام القيوین امارات درغرب تنگه.»
+
+🔸تردد دراین محدوده برای عبورازتنگه هرمز نیازمند هماهنگی با مدیریت آبراه خلیج فارس ومجوز این نهاد است.
+
+@mwarmonitor
+</div>
+
+## ManotoTV — post 105704
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105704_1779307480.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی که از جاویدنام سینا عباسی، ۲۲ ساله از کرمانشاه گفت…
+</div>
+
+## Persian_Trend_Official — post 14551
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 عضو کمیسیون امنیت ملی مجلس
+
+💢عاصم منیر فردا حامل پیام جدیدی از سوی آمریکا به ایران است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14550
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14550_1779307482.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس
+
+💢یک منبع آمریکایی گفت ترامپ به نتانیاهو گفته است که میانجی‌ها در حال کار بر روی یک «توافقنامه» هستند که هم ایالات متحده و هم ایران آن را امضا خواهند کرد تا رسماً به جنگ پایان دهند و یک دوره ۳۰ روزه مذاکره در مورد مسائلی مانند برنامه هسته‌ای ایران و باز شدن تنگه هرمز را آغاز کنند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## manototv — post 105704
+
+<div align="center">
+  <a href="telegram/content/manototv_105704_1779307483.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی که از جاویدنام سینا عباسی، ۲۲ ساله از کرمانشاه گفت…
+</div>
+
+## alonews — post 121423
+
+<div align="center">
+  <a href="telegram/content/alonews_121423_1779307485.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر اسپانیا، پدرو سانچز:
+تصاویر وزیر اسرائیلی بن گویر که اعضای ناوگان بین‌المللی حمایت از غزه را تحقیر می‌کند، غیرقابل قبول است.
+
+
+🔴ما اجازه نمی‌دهیم کسی با شهروندان ما بدرفتاری کند. در سپتامبر، ممنوعیت ورود این عضو دولت اسرائیل به قلمرو ملی را اعلام کردم.
+
+
+🔴اکنون قصد داریم در بروکسل فشار بیاوریم تا این تحریم‌ها به صورت فوری در مقیاس اروپایی افزایش یابد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121421
+
+<div align="center">
+  <a href="telegram/content/alonews_121421_1779307485.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یونیورسال پیکچرز بی قرار است فیلمی درباره نجات دو خلبان آمریکایی در ایران بسازند، پس از اینکه جنگنده F-15E Strike Eagle آنها در عملیات خشم حماسی سرنگون شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121420
+
+<div align="center">
+  <a href="telegram/content/alonews_121420_1779307486.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صحنه‌هایی از حبوش، جنوب لبنان، پس از حمله هوایی اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121419
+
+<div align="center">
+  <a href="telegram/content/alonews_121419_1779307487.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مخالفت بنیانگذار سپاه با تسلیم سپاه
+
+
+🔴محسن سازگارا که خود از بنیانگذاران سپاه پاسداران انقلاب اسلامی است و سال‌هاست در آمریکا به همراه خانواده خود زندگی میکند، در این مصاحبه با تسلیم سپاه که ایران را اشغال و زمام امور را در اختیار دارد، مخالفت نموده!
+
+
+🤔زندگی و آینده 90 میلیون ایرانی به خاطر همین سازمان تروریستی به فنا رفته بعد این آقا از وسط دل آمریکا داره دفاع میکنه ازشون
+
+
+✅@AloNews
+</div>
+
+## alonews — post 121418
+
+<div align="center">
+  <a href="telegram/content/alonews_121418_1779307490.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای کانال ۱۴ عبری درمورد اظهارات امروز ترامپ: باید به یاد داشته باشیم که او یک تاجر است و اظهاراتش با هدف تثبیت قیمت نفت است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121417
+
+<div align="center">
+  <a href="telegram/content/alonews_121417_1779307490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زاکانی : تنگه هرمز حق طبیعی ماعه و اصلا نباید درباره اون با آمریکا مذاکره کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 23:25
 ---
 
