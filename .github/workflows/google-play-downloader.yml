@@ -33,6 +33,10 @@ on:
         description: 'Upload files as a GitHub Release (uncheck = split push to repo)'
         type: boolean
         default: false
+      upload_to_drive:                                 # ← NEW INPUT
+        description: 'Upload files to Google Drive instead (folder: github-actions)'
+        type: boolean
+        default: false
 
 permissions:
   contents: write
@@ -151,8 +155,10 @@ jobs:
 
           BUNDLE_ALL="${{ inputs.bundle_all }}"
           UPLOAD_AS_RELEASE="${{ inputs.upload_as_release }}"
+          UPLOAD_TO_DRIVE="${{ inputs.upload_to_drive }}"
 
-          if [ "$UPLOAD_AS_RELEASE" = "true" ]; then
+          # Drive can handle large files → treat like release (unsplit unless >1950 MiB)
+          if [ "$UPLOAD_TO_DRIVE" = "true" ] || [ "$UPLOAD_AS_RELEASE" = "true" ]; then
             METHOD="release"
           else
             METHOD="split_push"
@@ -212,9 +218,10 @@ jobs:
           else
             # ── Per‑file mode ────────────────────────────
             RNDSTR=$(tr -dc 'a-z' </dev/urandom | head -c5)
-            file_found=false
-            find "$MAIN_DIR" -type f | while read -r f; do
-              file_found=true
+
+            # Use a file list to avoid subshell variable scoping
+            find "$MAIN_DIR" -type f -print0 > /tmp/apk_files.txt
+            while IFS= read -r -d '' f; do
               base=$(basename "$f")
               echo "→ Archiving $base"
               if [ "$METHOD" = "release" ]; then
@@ -229,15 +236,12 @@ jobs:
               else
                 zip -j -s 99m "$UPLOAD_DIR/${base}_${RNDSTR}.zip" "$f"
               fi
-            done
-
-            # Check if any file was processed (find in a subshell, so we need a trick)
-            # We'll just check if upload dir is not empty
+            done < /tmp/apk_files.txt
           fi
 
           rm -rf "$MAIN_DIR"
 
-          # In per‑file mode, ensure we didn't miss everything
+          # Verify we have something to upload
           if [ -z "$(ls -A "$UPLOAD_DIR" 2>/dev/null)" ]; then
             echo "Error: No files were archived."
             exit 1
@@ -247,8 +251,88 @@ jobs:
           echo "Assets to upload:"
           cat "${UPLOAD_DIR}_assets.txt"
 
+      # ────────────────────────────────────────────────────────
+      # GOOGLE DRIVE UPLOAD
+      # ────────────────────────────────────────────────────────
+      - name: "Upload to Google Drive"
+        if: inputs.upload_to_drive == 'true'
+        env:
+          CLIENT_ID:     ${{ secrets.GOOGLE_CLIENT_ID }}
+          CLIENT_SECRET: ${{ secrets.GOOGLE_CLIENT_SECRET }}
+          REFRESH_TOKEN: ${{ secrets.GOOGLE_REFRESH_TOKEN }}
+        run: |
+          # 1. Obtain access token
+          ACCESS_TOKEN=$(curl -s -X POST https://oauth2.googleapis.com/token \
+            -d client_id="$CLIENT_ID" \
+            -d client_secret="$CLIENT_SECRET" \
+            -d refresh_token="$REFRESH_TOKEN" \
+            -d grant_type=refresh_token | jq -r '.access_token')
+          if [ -z "$ACCESS_TOKEN" ] || [ "$ACCESS_TOKEN" = "null" ]; then
+            echo "❌ Failed to obtain access token"
+            exit 1
+          fi
+
+          # 2. Find or create 'github-actions' folder
+          FOLDER_NAME="github-actions"
+          QUERY="mimeType='application/vnd.google-apps.folder' and name='$FOLDER_NAME' and trashed=false"
+          FOLDER_ID=$(curl -s -G \
+            -H "Authorization: Bearer $ACCESS_TOKEN" \
+            --data-urlencode "q=$QUERY" \
+            --data-urlencode "fields=files(id)" \
+            "https://www.googleapis.com/drive/v3/files" | jq -r '.files[0].id // ""')
+          if [ -z "$FOLDER_ID" ]; then
+            echo "→ Creating folder '$FOLDER_NAME'"
+            FOLDER_ID=$(curl -s -X POST \
+              -H "Authorization: Bearer $ACCESS_TOKEN" \
+              -H "Content-Type: application/json" \
+              -d "{\"name\":\"$FOLDER_NAME\", \"mimeType\":\"application/vnd.google-apps.folder\"}" \
+              "https://www.googleapis.com/drive/v3/files?fields=id" | jq -r '.id')
+            if [ -z "$FOLDER_ID" ] || [ "$FOLDER_ID" = "null" ]; then
+              echo "❌ Failed to create folder"
+              exit 1
+            fi
+          fi
+          echo "✅ Folder ID: $FOLDER_ID"
+
+          OUTPUT_DIR="google-play"
+          for file in "$OUTPUT_DIR"/*; do
+            [ -f "$file" ] || continue
+            fname=$(basename "$file")
+            size=$(stat -c%s "$file")
+            echo "→ Uploading $fname ($size bytes)..."
+
+            # Initiate resumable upload session
+            SESSION_URI=$(curl -s -X POST \
+              -H "Authorization: Bearer $ACCESS_TOKEN" \
+              -H "Content-Type: application/json; charset=UTF-8" \
+              -H "X-Upload-Content-Type: application/zip" \
+              -d "{\"name\":\"$fname\", \"parents\":[\"$FOLDER_ID\"]}" \
+              "https://www.googleapis.com/upload/drive/v3/files?uploadType=resumable" \
+              -D - | tr -d '\r' | grep -i '^location:' | sed 's/^location: //i' | tr -d ' ')
+            if [ -z "$SESSION_URI" ]; then
+              echo "❌ Failed to initiate upload session for $fname, skipping"
+              continue
+            fi
+
+            # Upload the entire file in one chunk
+            HTTP_CODE=$(curl -s -o /dev/null -w "%{http_code}" -X PUT \
+              -H "Authorization: Bearer $ACCESS_TOKEN" \
+              -H "Content-Length: $size" \
+              -H "Content-Range: bytes 0-$((size-1))/$size" \
+              --data-binary "@$file" \
+              "$SESSION_URI")
+            if [ "$HTTP_CODE" -eq 200 ] || [ "$HTTP_CODE" -eq 201 ]; then
+              echo "✅ Uploaded $fname"
+            else
+              echo "❌ Upload failed with HTTP $HTTP_CODE"
+            fi
+          done
+
+      # ────────────────────────────────────────────────────────
+      # EXISTING UPLOAD METHODS (now skipped if Drive is chosen)
+      # ────────────────────────────────────────────────────────
       - name: Upload to repository (split_push method)
-        if: ${{ inputs.upload_as_release == 'false' }}
+        if: ${{ inputs.upload_to_drive == 'false' && inputs.upload_as_release == 'false' }}
         env:
           BRANCH: ${{ github.ref_name }}
         run: |
@@ -266,7 +350,6 @@ jobs:
           PACKAGES='${{ steps.parse.outputs.packages }}'
           FIRST_NAMES=$(echo "$PACKAGES" | jq -r '.[0:2][]' | paste -sd ' ')
           COMMIT_MSG="Download $FIRST_NAMES"
-          # If more than 2, add "and others"
           COUNT=$(echo "$PACKAGES" | jq length)
           if [ "$COUNT" -gt 2 ]; then
             COMMIT_MSG="$COMMIT_MSG and $((COUNT-2)) more"
@@ -295,7 +378,7 @@ jobs:
           echo "All files uploaded to the 'google-play' folder."
 
       - name: Create Release and upload assets (release method)
-        if: ${{ inputs.upload_as_release == 'true' }}
+        if: ${{ inputs.upload_to_drive == 'false' && inputs.upload_as_release == 'true' }}
         env:
           GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
