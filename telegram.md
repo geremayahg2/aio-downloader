@@ -7,6 +7,100 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 12:12
+---
+
+## WithYashar — post 11819
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران در حال پاسخ به متن ارسال شده از سوی آمریکا است
+
+ایران در حال گفت و گو‌ بر سر چارچوب کلان، برخی جزییات و اقدامات اعتمادساز به عنوان تضمین است.
+متن ارسالی به میزانی شکاف‌ها را کم کرده است اما کمتر شدن شکاف‌ها نیازمند پایان یافتن وسوسه جنگ در سمت واشنگتن است.
+
+ورود ژنرال عاصم منیر به تهران، به منظور کم کردن این شکاف‌ها و رسیدن به لحظه اعلام رسمی پذیرش یادداشت تفاهم است./ ایسنا
+@withyashar
+</div>
+
+## DEJradio — post 4791
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4791_1779352941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 رشید مظاهری، دروازه‌بانی که شرافت را انتخاب کرد
+
+#رشید_مظاهری #ورزشکار_مردمی
+@DEJradio
+</div>
+
+## Dirty_Kids — post 389861
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389861_1779352943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما بای دیفالت توی هر عروسی بری یکی با قیافه علی شادمان هست که از پادگان مرخصی گرفته خودشو برسونه عروسی، معمولا هم بدمست بازی در میارن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121498
+
+<div align="center">
+  <a href="telegram/content/alonews_121498_1779352943.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بر اساس گزارش‌های تایید نشده،
+عربستان سعودی از دولت ترامپ خواسته است هرگونه اقدام نظامی علیه ایران را تا پس از عید قربان به تعویق بیندازد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121497
+
+<div align="center">
+  <a href="telegram/content/alonews_121497_1779352943.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 هگست به چین سفر می‌کند
+
+
+🔴 به گزارش SCMP، پنتاگون قصد دارد ظرف چند هفته آینده یک هیئت عالی‌رتبه را به چین اعزام کند تا مقدمات سفر احتمالی پیت هگست را فراهم کند.
+
+
+🔴 این اولین سفر یک وزیر جنگ ایالات متحده به چین در تقریباً هشت سال گذشته خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121496
+
+<div align="center">
+  <a href="telegram/content/alonews_121496_1779352944.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایسنا: ایران در حال پاسخ به متن ارسال شده از سوی آمریکا است
+
+
+🔴متن ایران در حال گفت و گو‌ در تهران بر سر چارچوب کلان، برخی جزییات و اقدامات اعتمادساز به عنوان تضمین است.
+
+
+🔴متن ارسالی به میزانی شکاف‌ها را کم کرده است اما کمتر شدن شکاف‌ها نیازمند پایان یافتن وسوسه جنگ در سمت واشنگتن است.
+
+
+🔴ورود ژنرال عاصم منیر به تهران، به منظور کم کردن این شکاف‌ها و رسیدن به لحظه اعلام رسمی پذیرش یادداشت تفاهم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 12:02
 ---
 
