@@ -7,6 +7,128 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 08:52
+---
+
+## VahidOOnLine — post 241272
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241272_1779340950.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، اعلام کرد رامین زله و کریم معروف‌پور، دو شهروند ایرانی، به اتهام «تشکیل گروه با هدف برهم زدن امنیت کشور»، صبح پنجشنبه، ۳۱ اردیبهشت ۱۴۰۵، اعدام شدند.
+
+رامین زله در مرداد ۱۴۰۳ و کریم معروف‌پور در فروردین ۱۴۰۰ بازداشت شده بودند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241271
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241271_1779340951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ایلان ماسک روز چهارشنبه برنامه عرضه عمومی سهام شرکت اسپیس‌ایکس را اعلام کرد؛ اقدامی که می‌تواند این شرکت فضایی را به نخستین شرکتی با ارزش بیش از یک تریلیون دلار در زمان ورود به بازار بورس تبدیل کند.
+
+به گزارش رویترز بخش عمده ارزش‌گذاری اسپیس‌ایکس برطرح‌هایی استوار است که هنوز به‌طور کامل شکل نگرفته‌اند؛ از جمله ماموریت‌های مریخ و مراکز داده هوش مصنوعی در فضا. در حال حاضر، تنها بخش اینترنت ماهواره‌ای «استارلینک» سودده است و در سه‌ماهه نخست سال حدود ۱.۲ میلیارد دلار سود عملیاتی ثبت کرده، اما شرکت در مجموع نزدیک به دو میلیارد دلار زیان عملیاتی داشته است.
+
+اسپیس‌ایکس قصد دارد از اواسط ژوئن (اواخر خرداد) وارد بازار بورس شود. تحلیلگران می‌گویند این عرضه می‌تواند ایلان ماسک را به نخستین تریلیونر جهان تبدیل کند؛ هرچند بخشی از پاداش‌های او به تحقق اهدافی بلندپروازانه مانند ایجاد پایگاه دائمی انسان در مریخ وابسته شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 338186
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338186_1779340952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، اعلام کرد رامین زله و کریم معروف‌پور، دو شهروند ایرانی، به اتهام «تشکیل گروه با هدف برهم زدن امنیت کشور»، صبح پنجشنبه، ۳۱ اردیبهشت ۱۴۰۵، اعدام شدند.
+
+رامین زله در مرداد ۱۴۰۳ و کریم معروف‌پور در فروردین ۱۴۰۰ بازداشت شده بودند.
+https://iranintl.com/202605215737
+</div>
+
+## IranIntlTV — post 338185
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338185_1779340952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای پنجشنبه ۳۱ اردیبهشت
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14567
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14567_1779340953.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدون شرح
+</div>
+
+## alonews — post 121454
+
+<div align="center">
+  <a href="telegram/content/alonews_121454_1779340954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شوک در بازار خودرو؛ پراید وانت ۱.۲ میلیارد شد...
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121453
+
+<div align="center">
+  <a href="telegram/content/alonews_121453_1779340954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دومین زمین لرزه‌ طی ۱۰ ساعت گذشته به بزرگی ۳.۸ ریشتر دریای خزر حوالی شهرستان مرزی آستارا را لرزاند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121452
+
+<div align="center">
+  <a href="telegram/content/alonews_121452_1779340954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان به نقل از منابع آگاه:ترامپ می‌خواهد شانس رسیدن به توافق با ایران را آزمایش کند، اما نتانیاهو انتظار داشت اوضاع به سمت تشدید نظامی پیش برود.
+
+
+🔴نخست‌وزیر اسرائیل از مذاکرات جاری بسیار ناامید است.
+
+
+🔴او به رئیس‌جمهور آمریکا گفته به تعویق انداختن حملات اشتباه است و ترامپ را به انجام آن‌ها تشویق کرده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121451
+
+<div align="center">
+  <a href="telegram/content/alonews_121451_1779340954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: قیمت طلا پس از افزایش خوش‌ بینی‌ها درباره توافق ایران و آمریکا، تثبیت شد
+
+
+🔴هر اونس فلز زرد به ۴۵۵۳ دلار و ۹۶ سنت رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 08:42
 ---
 
