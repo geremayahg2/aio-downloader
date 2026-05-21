@@ -6,14 +6,15 @@ on:
       urls:
         description: 'Instagram URLs – separate by comma, space, or newline'
         required: true
-      upload_as_release:
-        description: 'Upload files as a GitHub Release (uncheck = split push to repo)'
-        type: boolean
-        default: false
-      upload_to_drive:                                 # ← NEW INPUT
-        description: 'Upload files to Google Drive instead (folder: github-actions)'
-        type: boolean
-        default: false
+      upload_method:
+        description: 'Upload destination'
+        required: true
+        type: choice
+        options:
+          - repo
+          - release
+          - drive
+        default: repo
 
 permissions:
   contents: write
@@ -151,17 +152,13 @@ jobs:
       - name: Archive Instagram downloads
         id: archive
         run: |
-          UPLOAD_AS_RELEASE="${{ inputs.upload_as_release }}"
-          UPLOAD_TO_DRIVE="${{ inputs.upload_to_drive }}"
+          UPLOAD_METHOD="${{ inputs.upload_method }}"
           OUTPUT_DIR="instagram"
-          rm -rf "$OUTPUT_DIR"
-          mkdir -p "$OUTPUT_DIR"
 
-          # Drive can handle large files → treat like release (unsplit unless >1950 MiB)
-          if [ "$UPLOAD_TO_DRIVE" = "true" ] || [ "$UPLOAD_AS_RELEASE" = "true" ]; then
-            METHOD="release"
-          else
+          if [ "$UPLOAD_METHOD" = "repo" ]; then
             METHOD="split_push"
+          else
+            METHOD="release"
           fi
 
           # Generate unique random suffix
@@ -199,7 +196,7 @@ jobs:
 
       # ---------- GOOGLE DRIVE UPLOAD (NEW) ----------
       - name: "Upload to Google Drive"
-        if: inputs.upload_to_drive == 'true'
+        if: inputs.upload_method == 'drive'
         env:
           CLIENT_ID:     ${{ secrets.GOOGLE_CLIENT_ID }}
           CLIENT_SECRET: ${{ secrets.GOOGLE_CLIENT_SECRET }}
@@ -274,7 +271,7 @@ jobs:
 
       # ---------- upload to repository (split_push) - skipped if Drive chosen ----------
       - name: Upload to repository (split_push method)
-        if: ${{ inputs.upload_to_drive == 'false' && inputs.upload_as_release == 'false' }}
+        if: ${{ inputs.upload_method == 'repo' }}
         env:
           BRANCH: ${{ github.ref_name }}
         run: |
@@ -311,7 +308,7 @@ jobs:
 
       # ---------- create GitHub Release (release method) - skipped if Drive chosen ----------
       - name: Create Release and upload assets
-        if: ${{ inputs.upload_to_drive == 'false' && inputs.upload_as_release == 'true' }}
+        if: ${{ inputs.upload_method == 'release' }}
         env:
           GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
