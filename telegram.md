@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 03:12
+---
+
+## FarsiVOA — post 218577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اخراج گسترده افغان‌ها از ایران و پاکستان؛ هشدار سازمان ملل درباره بحران انسانی در افغانستان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️راه‌های خارج کردن ۴۰۰ کیلوگرم اورانیوم غنی‌شده با غنای بالا از ایران؛ گفت‌وگو با مسعود منیری
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218575
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218575_1779666166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تازه‌ترین نظرات قانون‌گذاران آمریکایی درباره توافق احتمالی واشنگتن با جمهوری اسلامی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 03:02
 ---
 
