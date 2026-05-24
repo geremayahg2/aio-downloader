@@ -2,6 +2,11 @@ name: "python-mhrv-static-exit-node"
 
 on:
   workflow_dispatch:
+    inputs:
+      vpn_enabled:
+        description: 'Route all traffic through WireGuard VPN (requires WG_CONFIG secret)'
+        type: boolean
+        default: false
 
 jobs:
   relay:
@@ -10,6 +15,11 @@ jobs:
 
     steps:
       - uses: actions/checkout@v4
+
+      - name: "Set up WireGuard VPN (if enabled)"
+        id: vpn
+        run: |
+          # <--- insert the VPN setup block from above --->
 
       - name: Download cloudflared
         run: |
