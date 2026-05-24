@@ -1,48 +1,10 @@
-<p align="center">
-  <h1 align="center">🌐 aio‑downloader</h1>
-  <p align="center"><strong>All‑in‑One GitHub Actions Downloader — بدون فیلتر · بدون تحریم</strong></p>
-</p>
+<div dir="rtl" markdown="1">
 
-<p align="center">
-  ⭐ <strong>اگر این پروژه برایتان مفید است، لطفاً ستاره بدهید — به دیگران کمک می‌کند پیدایش کنند!</strong> ⭐
-</p>
+# 📖 راهنمای جامع AIO-Downloader
 
----
+**All‑in‑One GitHub Actions Downloader — بدون فیلتر · بدون تحریم**
 
-## ⚠️ اعلامیه مهم برای کاربرانی که قبلاً فورک کرده‌اند (حتماً بخوانید)
-
-> **مخزن اصلی** (`ProAlit/aio-downloader`) به‌طور مداوم به‌روزرسانی می‌شود — رفع باگ‌ها، ویژگی‌های جدید، و بهبود امنیت. **فورک شما به‌صورت خودکار این به‌روزرسانی‌ها را دریافت نمی‌کند!**
-
-### ✅ مشکل push و پوشه — کاملاً برطرف شد
-در نسخه‌های قدیمی‌تر، برخی workflowها هنگام push با خطا مواجه می‌شدند یا فایل‌ها در مسیر اشتباه قرار می‌گرفتند. این مشکل اکنون به‌طور کامل حل شده است:
-- تمام workflowها از `persist-credentials: true` استفاده می‌کنند
-- قبل از هر push، یک `git pull --rebase --autostash` اجرا می‌شود تا تداخلی پیش نیاید
-- حلقه‌ی تلاش مجدد ۵ مرحله‌ای برای push وجود دارد
-- پوشه‌های خروجی با `mkdir -p` ساخته می‌شوند
-- حجم بافر git به ۵۰۰ مگابایت افزایش یافته (`http.postBuffer`)
-
-> **اگر همچنان مشکلی دیدید، ابتدا فورک خود را به‌روز کنید (پایین را ببینید) — به احتمال زیاد فورک‌تان قدیمی است.**
-
----
-
-### 🔄 همگام‌سازی فورک — فقط با خودِ وبسایت GitHub (بدون گیت)
-
-> ❗ **این کار را انجام دهید تا آخرین اصلاحات و امکانات را دریافت کنید.**
-
-#### ⚠️ نکته بسیار مهم: نمی‌توانید Pull Request باز کنید
-اگر در فورک خود تغییری commit کرده باشید (حتی ویرایش `channels.json`)، فورک شما از مخزن اصلی «جلوتر» می‌افتد و دیگر به‌روزرسانی دریافت نمی‌کند. **تنها راه، دور انداختن commitهای خودتان و همگام‌سازی کامل است.**
-
-#### روش (فقط در وبسایت GitHub):
-
-1. به صفحه فورک خود بروید (مثلاً `github.com/your-username/aio-downloader`)
-2. بالای لیست فایل‌ها، روی دکمه‌ای که نوشته **«Sync fork»** کلیک کنید.
-3. در منوی بازشده، اگر commit اضافی ندارید، گزینه **«Update branch»** را بزنید.
-4. **اگر commit اضافی دارید** (مثلاً فایل‌ها را ویرایش کرده‌اید)، به جای Update branch، گزینه **«Discard commits»** (دور انداختن commitها) را انتخاب کنید. این کار فورک شما را دقیقاً با مخزن اصلی یکسان می‌کند.
-> نکته خیلی مهم!!! حتما بعد هر آپدیت مرحله کلینر رو برای همه اجرا کنید وگرنه دانلودهاتون به شدت کند انجام میشه!!.
-
-> ⚠️ با Discard commits تمام تغییرات خود را از دست می‌دهید. اگر فایل مهمی دارید، اول دانلودش کنید.
-
-**پس از آن، فورک شما کاملاً به‌روز شده و آخرین رفع‌ها و قابلیت‌ها را دارد.**
+⭐⭐⭐ اگر این پروژه برایتان مفید است، لطفاً ستاره بدهید — به دیگران کمک میکند پیدایش کنند! ⭐⭐⭐
 
 ---
 
@@ -58,6 +20,8 @@
    - [کلید احراز هویت تونل (TUNNEL_AUTH_KEY)](#۵-کلید-احراز-هویت-تونل-tunnel_auth_key)
    - [توکن استاتیک Cloudflare (CF_TUNNEL_TOKEN)](#۶-توکن-استاتیک-cloudflare-cf_tunnel_token)
    - [آپلود در Google Drive (GOOGLE_CLIENT_ID, GOOGLE_CLIENT_SECRET, GOOGLE_REFRESH_TOKEN)](#۷-آپلود-در-google-drive-google_client_id-google_client_secret-google_refresh_token)
+   - [کانفیگ خروجی Skirk (SKIRK_EXIT_CONFIG)](#۸-کانفیگ-خروجی-skirk-skirk_exit_config)
+   - [کانفیگ WireGuard (WG_CONFIG)](#۹-کانفیگ-wireguard-wg_config)
 4. [راهنمای کامل هر گردش کار (Workflow)](#-راهنمای-کامل-هر-گردش-کار-workflow)
    - [۱. دانلودر یوتیوب (downloader-youtube)](#۱-دانلودر-یوتیوب-downloader-youtube)
    - [۲. دانلودر اینستاگرام (downloader-instagram)](#۲-دانلودر-اینستاگرام-downloader-instagram)
@@ -76,11 +40,14 @@
    - [۱۵. Exit Node پایتون - استاتیک (python-mhrv-static-exit-node)](#۱۵-exit-node-پایتون---استاتیک-python-mhrv-static-exit-node)
    - [۱۶. Exit Node Zyrln - داینامیک (zyrln-cloudflare-dynamic-exit-node)](#۱۶-exit-node-zyrln---داینامیک-zyrln-cloudflare-dynamic-exit-node)
    - [۱۷. Exit Node Zyrln - استاتیک (zyrln-cloudflare-static-exit-node)](#۱۷-exit-node-zyrln---استاتیک-zyrln-cloudflare-static-exit-node)
-5. [ویژگیهای جدید (که در README قبلی نیستند)](#-ویژگیهای-جدید-که-در-readme-قبلی-نیستند)
-6. [مشکل کندی checkout و راهحل آن](#-مشکل-کندی-checkout-و-راهحل-آن)
-7. [محدودیتها و هشدارهای مهم](#-محدودیتها-و-هشدارهای-مهم)
-8. [پشتیبانی](#-پشتیبانی)
-9. [فایل zoomusers.md چیست](#فایل-zoomusers.md-چیست)
+   - [۱۸. Exit Node Rust - استاتیک (mhrv-rust-static-exit-node)](#۱۸-exit-node-rust---استاتیک-mhrv-rust-static-exit-node)
+   - [۱۹. Skirk Exit Node (skirk-vps)](#۱۹-skirk-exit-node-skirk-vps)
+5. [🌐 راهنمای تانل WireGuard (اختیاری برای تمام Workflowها)](#-راهنمای-تانل-wireguard-اختیاری-برای-تمام-workflowها)
+6. [ویژگیهای جدید (که در README قبلی نیستند)](#-ویژگیهای-جدید-که-در-readme-قبلی-نیستند)
+7. [مشکل کندی checkout و راهحل آن](#-مشکل-کندی-checkout-و-راهحل-آن)
+8. [محدودیتها و هشدارهای مهم](#-محدودیتها-و-هشدارهای-مهم)
+9. [پشتیبانی](#-پشتیبانی)
+10. [فایل zoomusers.md چیست](#فایل-zoomusers.md-چیست)
 
 ---
 
@@ -92,8 +59,9 @@
 | **مرورگر + افزونه Get cookies.txt LOCALLY** | Chrome / Firefox / Edge |
 | **حساب اینستاگرام** | (اختیاری) برای استوری و محتوای خصوصی |
 | **حساب X (توییتر)** | **الزامی** برای دانلودر X |
-| **حساب Google Cloud** | (اختیاری) برای آپلود خودکار در Google Drive |
+| **حساب Google Cloud** | (اختیاری) برای آپلود خودکار در Google Drive و Skirk Exit Node |
 | **حساب Cloudflare** | (اختیاری) برای Exit Nodeهای استاتیک |
+| **حساب ProtonVPN (رایگان)** | (اختیاری) برای تغییر IP خروجی با WireGuard |
 | **تلگرام، ضبط وبسایت، گوگل پلی، MEGA** | هیچ چیز اضافی نیاز ندارند |
 
 ---
@@ -141,11 +109,11 @@
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.youtube.com/robots.txt
 https://www.instagram.com/robots.txt
 https://x.com/robots.txt
-```
++++
 
 </div>
 
@@ -234,7 +202,7 @@ https://x.com/robots.txt
 
 **Secret Name:** `TUNNEL_AUTH_KEY`
 **وضعیت:** اختیاری
-**مورد استفاده در:** python-mhrv-dynamic-exit-node, python-mhrv-static-exit-node, zyrln-cloudflare-dynamic-exit-node, zyrln-cloudflare-static-exit-node
+**مورد استفاده در:** python-mhrv-dynamic-exit-node, python-mhrv-static-exit-node, zyrln-cloudflare-dynamic-exit-node, zyrln-cloudflare-static-exit-node, mhrv-rust-static-exit-node
 
 </div>
 
@@ -254,7 +222,7 @@ https://x.com/robots.txt
 
 **Secret Name:** `CF_TUNNEL_TOKEN`
 **وضعیت:** اختیاری (فقط برای Exit Nodeهای استاتیک)
-**مورد استفاده در:** python-mhrv-static-exit-node, zyrln-cloudflare-static-exit-node
+**مورد استفاده در:** python-mhrv-static-exit-node, zyrln-cloudflare-static-exit-node, mhrv-rust-static-exit-node
 
 </div>
 
@@ -310,9 +278,9 @@ https://x.com/robots.txt
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://developers.google.com/oauthplayground
-```
++++
 
 </div>
 
@@ -322,10 +290,10 @@ https://developers.google.com/oauthplayground
 
 <div dir="ltr" markdown="1">
 
-```
++++
 GOOGLE_CLIENT_ID → Client ID خود را بچسبانید
 GOOGLE_CLIENT_SECRET → Client Secret خود را بچسبانید
-```
++++
 
 </div>
 
@@ -355,9 +323,9 @@ GOOGLE_CLIENT_SECRET → Client Secret خود را بچسبانید
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.googleapis.com/auth/drive
-```
++++
 
 </div>
 
@@ -369,9 +337,9 @@ https://www.googleapis.com/auth/drive
 
 <div dir="ltr" markdown="1">
 
-```
++++
 GOOGLE_REFRESH_TOKEN → Refresh Token خود را بچسبانید
-```
++++
 
 </div>
 
@@ -381,9 +349,121 @@ GOOGLE_REFRESH_TOKEN → Refresh Token خود را بچسبانید
 
 ---
 
+### ۸. کانفیگ خروجی Skirk (SKIRK_EXIT_CONFIG)
+
+<div dir="ltr" markdown="1">
+
+**Secret Name:** `SKIRK_EXIT_CONFIG`
+**وضعیت:** **الزامی** برای Skirk Exit Node
+**مورد استفاده در:** skirk-vps
+
+</div>
+
+این Secret شامل **کل محتوای فایل `exit.json`** است که یکبار برای همیشه تولید میشود. فایل `exit.json` شامل شناسه صندوق دریافتی Drive و Refresh Token دائمی است.
+
+#### 🛠️ مراحل یکباره تولید `exit.json` و افزودن به Secret
+
+**پیش‌نیاز:** یک پروژه Google Cloud با **Google Drive API** فعال و یک OAuth Client ID از نوع **Desktop app** (مراحل ۱ تا ۷ از بخش Google Drive را انجام دهید، اما نیازی به Web application و redirect URI نیست — **Desktop app** کافیست). همچنین برنامه را **Publish** کنید (مرحله ۱۳ تا ۱۵ بالا).
+
+**مرحله ۱: باز کردن GitHub Codespaces**
+1. به مخزن خود بروید.
+2. روی دکمه سبز **Code** کلیک کنید → تب **Codespaces** → **Create codespace on main**.
+3. صبر کنید تا محیط آماده شود (حدود ۱ دقیقه).
+
+**مرحله ۲: نصب Skirk در ترمینال Codespaces**
+در ترمینال (اگر باز نیست، Ctrl+Shift+` را بفشارید) دستور زیر را اجرا کنید:
+
+<div dir="ltr" markdown="1">
+
++++
+curl -fsSL https://raw.githubusercontent.com/ShahabSL/Skirk/main/install.sh | sh
++++
+
+</div>
+
+**مرحله ۳: اجرای تنظیمات OAuth**
+دستور زیر را با جایگزین کردن `CLIENT_ID` و `CLIENT_SECRET` خود (از Google Cloud) اجرا کنید:
+
+<div dir="ltr" markdown="1">
+
++++
+skirk setup init \
+  --out skirk-kit \
+  --reset-google-login \
+  --oauth-mode personal \
+  --oauth-client-id "CLIENT_ID" \
+  --oauth-client-secret "CLIENT_SECRET"
++++
+
+</div>
+
+**مرحله ۴: ورود به حساب Google**
+- دستور یک URL چاپ می‌کند. روی آن Ctrl+Click کنید (در مرورگر عادی باز می‌شود).
+- وارد حساب Google خود شوید و اجازه دسترسی بدهید.
+- کد Authorization نمایش داده شده را **کپی** کنید و در ترمینال Codespaces بچسبانید (Enter بزنید).
+- پس از پایان، پوشه `skirk-kit` با فایل `exit.json` ایجاد می‌شود.
+
+**مرحله ۵: دانلود فایل `exit.json`**
+- در پنل فایل‌ها (سمت چپ Codespaces) وارد پوشه `skirk-kit` شوید.
+- روی `exit.json` راست‌کلیک کرده و **Download** را بزنید.
+- فایل را در جای امن ذخیره کنید. ⚠️ این فایل را **هرگز** در مخزن Commit نکنید!
+
+**مرحله ۶: ذخیره در Secret**
+- فایل `exit.json` را با یک ویرایشگر متن باز کنید و **همه محتویات آن را کپی** کنید.
+- در مخزن GitHub به **Settings** → **Secrets and variables** → **Actions** بروید.
+- **New repository secret** با نام `SKIRK_EXIT_CONFIG` بسازید و محتوا را بچسبانید.
+- پس از اطمینان از ذخیره، Codespace را حذف کنید (گوشه پایین-چپ **Codespaces** → **Delete Codespace**).
+
+> ℹ️ این عملیات فقط **یک بار** نیاز است. فایل `exit.json` یک Refresh Token دائمی دارد (به شرطی که OAuth App را Publish کرده باشید) و نیازی به تمدید ندارد.
+
+---
+
+### ۹. کانفیگ WireGuard (WG_CONFIG)
+
+<div dir="ltr" markdown="1">
+
+**Secret Name:** `WG_CONFIG`
+**وضعیت:** کاملاً اختیاری (فقط در صورت تمایل به تغییر IP خروجی)
+**مورد استفاده در:** تمام workflowهای دارای گزینه `vpn_enabled` (aio-leecher، تمام Exit Nodeها، skirk-vps)
+
+</div>
+
+این Secret شامل **کل محتوای فایل کانفیگ WireGuard** (از ProtonVPN یا هر سرویس‌دهنده دیگر) به صورت متن ساده است.
+
+#### 📝 مراحل دریافت کانفیگ رایگان از ProtonVPN:
+
+1. یک حساب رایگان در [ProtonVPN](https://protonvpn.com) بسازید (بدون کارت اعتباری).
+2. پس از ورود، به [Account → OpenVPN / IKEv2 username](https://account.protonvpn.com/) بروید (بله، بخش WireGuard هم همانجاست).
+3. زیر **WireGuard configuration**، یک کلید جدید بسازید و **سرور رایگان** (مثلاً Netherlands, Japan, US) و پروتکل WireGuard را انتخاب کنید.
+4. فایل `.conf` را دانلود کنید. محتوای آن شبیه زیر است:
+
+<div dir="ltr" markdown="1">
+
++++
+[Interface]
+PrivateKey = ...
+Address = 10.2.0.2/32
+DNS = 10.2.0.1
+
+[Peer]
+PublicKey = ...
+AllowedIPs = 0.0.0.0/0
+Endpoint = 185.159.158.146:51820
++++
+
+</div>
+
+5. **همه خطوط را کپی** کرده و به عنوان یک Secret جدید با نام `WG_CONFIG` در مخزن ذخیره کنید (Settings → Secrets → Actions → New secret).
+
+> ⚠️ کانفیگ را دقیقاً همانطور که هست (با Line Break) بچسبانید. DNS داخل آن برای جلوگیری از نشت DNS ضروری است.
+
+> ℹ️ اگر می‌خواهید IP خروجی آلمان یا کشور دیگری باشد، می‌توانید با نسخه پولی ProtonVPN یا هر سرویس WireGuard دیگر این کار را انجام دهید. در صورت عدم نیاز، این Secret را ایجاد نکنید.
+
+---
+
 ## 📋 راهنمای کامل هر گردش کار (Workflow)
 
-در این بخش، **تمامی ۱۷ گردش کار** به همراه **Secretهای مورد نیاز هر کدام**، **نحوه استفاده**، و **نکات مهم** توضیح داده شده است.
+در این بخش، **تمامی ۱۹ گردش کار** به همراه **Secretهای مورد نیاز هر کدام**، **نحوه استفاده**، و **نکات مهم** توضیح داده شده است.
 
 ---
 
@@ -412,12 +492,12 @@ GOOGLE_REFRESH_TOKEN → Refresh Token خود را بچسبانید
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 480
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 1080 60
 https://www.youtube.com/watch?v=VIDEO_ID a max
 https://www.youtube.com/watch?v=VIDEO_ID v 4k
-```
++++
 
 </div>
 
@@ -454,11 +534,11 @@ https://www.youtube.com/watch?v=VIDEO_ID v 4k
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.instagram.com/p/DX2y7oLDFOb/,
 https://www.instagram.com/reel/DVRXhn0gjL3/,
 https://www.instagram.com/p/DX6US4uCNGb/
-```
++++
 
 </div>
 
@@ -486,10 +566,10 @@ https://www.instagram.com/p/DX6US4uCNGb/
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://x.com/username/status/123456789,
 https://x.com/otheruser/status/987654321
-```
++++
 
 </div>
 
@@ -516,9 +596,9 @@ https://x.com/otheruser/status/987654321
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://example.com/file.zip, https://example.com/video.mp4
-```
++++
 
 </div>
 
@@ -545,9 +625,9 @@ https://example.com/file.zip, https://example.com/video.mp4
 
 <div dir="ltr" markdown="1">
 
-```
++++
 ["VahidOOnLine", "mwarmonitor", "channelname"]
-```
++++
 
 </div>
 
@@ -572,9 +652,9 @@ https://example.com/file.zip, https://example.com/video.mp4
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://t.me/channelname/123, https://t.me/channelname/456
-```
++++
 
 </div>
 
@@ -603,10 +683,10 @@ https://t.me/channelname/123, https://t.me/channelname/456
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://example.com/article
 https://github.com/ProAlit/aio-downloader
-```
++++
 
 </div>
 
@@ -629,6 +709,7 @@ https://github.com/ProAlit/aio-downloader
 **Secretهای مورد نیاز:** `YOUTUBE_COOKIES`, `INSTAGRAM_COOKIES`, `X_COOKIES` (همگی اختیاری، خودکار تشخیص داده میشوند)
 **Secretهای Google Drive:** `GOOGLE_CLIENT_ID`, `GOOGLE_CLIENT_SECRET`, `GOOGLE_REFRESH_TOKEN` (اختیاری)
 **زمان اجرا:** حداکثر ۷۰۰ دقیقه
+**قابلیت تانل WireGuard:** دارد (گزینه `vpn_enabled`)
 
 </div>
 
@@ -639,7 +720,7 @@ https://github.com/ProAlit/aio-downloader
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.youtube.com/watch?v=VIDEO_ID -- --format "bestvideo[height<=1080]+bestaudio/best[height<=1080]" --merge-output-format mkv
 https://www.tiktok.com/@user/video/ID -- --write-subs --sub-lang en
 # یوتیوب با زیرنویس
@@ -652,7 +733,7 @@ https://x.com/user/status/ID -- --format best
 https://www.pinterest.com/pin/ID -- --format best
 # ساندکلاد
 https://soundcloud.com/artist/track -- --format bestaudio
-```
++++
 
 </div>
 
@@ -661,10 +742,10 @@ https://soundcloud.com/artist/track -- --format bestaudio
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 1080
 https://soundcloud.com/artist/track a 320
-```
++++
 
 </div>
 
@@ -675,6 +756,7 @@ https://soundcloud.com/artist/track a 320
 - `bundle_all`: تجمیع همه فایلها در یک ZIP
 - `upload_as_release`: آپلود به عنوان GitHub Release
 - `upload_to_drive`: **🆕 آپلود در Google Drive**
+- **`vpn_enabled`**: فعال‌سازی WireGuard VPN برای عبور از محدودیت‌های جغرافیایی (نیاز به Secret `WG_CONFIG`)
 
 ---
 
@@ -693,10 +775,10 @@ https://soundcloud.com/artist/track a 320
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://soundcloud.com/artist/track,
 https://soundcloud.com/artist/track
-```
++++
 
 </div>
 
@@ -728,11 +810,11 @@ https://soundcloud.com/artist/track
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://open.spotify.com/track/xxxxx,
 https://open.spotify.com/album/xxxxx,
 https://open.spotify.com/playlist/xxxxx
-```
++++
 
 </div>
 
@@ -798,11 +880,11 @@ https://open.spotify.com/playlist/xxxxx
 
 <div dir="ltr" markdown="1">
 
-```
++++
 app: com.spotify.music
 architecture: arm64
 merge_splits: true
-```
++++
 
 </div>
 
@@ -837,10 +919,10 @@ merge_splits: true
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://mega.nz/file/xxxxx,
 https://mega.nz/folder/xxxxx
-```
++++
 
 </div>
 
@@ -858,7 +940,9 @@ https://mega.nz/folder/xxxxx
 <div dir="ltr" markdown="1">
 
 **Secretهای مورد نیاز:** `TUNNEL_AUTH_KEY` (اختیاری)
+**Secretهای WireGuard:** `WG_CONFIG` (اختیاری)
 **خروجی:** URL موقت trycloudflare.com (اعتبار ۶ ساعت)
+**قابلیت تانل WireGuard:** دارد (گزینه `vpn_enabled`)
 
 </div>
 
@@ -868,9 +952,9 @@ https://mega.nz/folder/xxxxx
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://random-name.trycloudflare.com
-```
++++
 
 </div>
 
@@ -878,14 +962,14 @@ https://random-name.trycloudflare.com
 
 <div dir="ltr" markdown="1">
 
-```
++++
 "exit_node": {
   "enabled": true,
   "provider": "vps",
   "url": "https://random-name.trycloudflare.com",
   "psk": "همان_رمز_مخفی"
 }
-```
++++
 
 </div>
 
@@ -898,7 +982,9 @@ https://random-name.trycloudflare.com
 <div dir="ltr" markdown="1">
 
 **Secretهای مورد نیاز:** `TUNNEL_AUTH_KEY` (اختیاری), `CF_TUNNEL_TOKEN` (الزامی ⚠️)
+**Secretهای WireGuard:** `WG_CONFIG` (اختیاری)
 **خروجی:** دامنه ثابت Cloudflare (مثلاً `exit.yourdomain.com`)
+**قابلیت تانل WireGuard:** دارد (گزینه `vpn_enabled`)
 
 </div>
 
@@ -916,8 +1002,10 @@ https://random-name.trycloudflare.com
 <div dir="ltr" markdown="1">
 
 **Secretهای مورد نیاز:** `TUNNEL_AUTH_KEY` (اختیاری)
+**Secretهای WireGuard:** `WG_CONFIG` (اختیاری)
 **زبان برنامهنویسی:** Go (عملکرد سریعتر)
 **خروجی:** URL موقت trycloudflare.com (اعتبار ۶ ساعت)
+**قابلیت تانل WireGuard:** دارد (گزینه `vpn_enabled`)
 
 </div>
 
@@ -935,7 +1023,9 @@ https://random-name.trycloudflare.com
 <div dir="ltr" markdown="1">
 
 **Secretهای مورد نیاز:** `TUNNEL_AUTH_KEY` (اختیاری), `CF_TUNNEL_TOKEN` (الزامی ⚠️)
+**Secretهای WireGuard:** `WG_CONFIG` (اختیاری)
 **زبان برنامهنویسی:** Go
+**قابلیت تانل WireGuard:** دارد (گزینه `vpn_enabled`)
 
 </div>
 
@@ -946,83 +1036,119 @@ https://random-name.trycloudflare.com
 
 ---
 
+### ۱۸. Exit Node Rust — استاتیک (mhrv-rust-static-exit-node) 🆕
+
+<div dir="ltr" markdown="1">
+
+**Secretهای مورد نیاز:** `TUNNEL_AUTH_KEY` (اختیاری), `CF_TUNNEL_TOKEN` (الزامی ⚠️)
+**Secretهای WireGuard:** `WG_CONFIG` (اختیاری)
+**زبان برنامهنویسی:** Rust (بسیار سریع و کم‌حجم)
+**خروجی:** دامنه ثابت Cloudflare
+**قابلیت تانل WireGuard:** دارد (گزینه `vpn_enabled`)
+
+</div>
+
+#### 📝 نحوه استفاده:
+1. توکن `CF_TUNNEL_TOKEN` را تنظیم کنید.
+2. **Actions** → **mhrv-rust-static-exit-node** → **Run workflow**
+3. تونل روی دامنه ثابت فعال می‌شود.
+
+> ℹ️ نسخه Rust برای کسانی که به حداکثر سرعت و پایداری نیاز دارند ایده‌آل است.
+
+---
+
+### ۱۹. Skirk Exit Node (skirk-vps) 🆕
+
+<div dir="ltr" markdown="1">
+
+**Secretهای مورد نیاز:** `SKIRK_EXIT_CONFIG` (**الزامی** ⚠️)
+**Secretهای WireGuard:** `WG_CONFIG` (اختیاری)
+**مدت زمان اجرا:** حداکثر ۶ ساعت
+**قابلیت تانل WireGuard:** دارد (گزینه `vpn_enabled`)
+
+</div>
+
+این گردش کار یک **سرویس خروجی Skirk** مبتنی بر Google Drive راه‌اندازی می‌کند که به‌عنوان رله ترافیک عمل می‌کند. برخلاف Exit Nodeهای دیگر، نیازی به Cloudflare Tunnel ندارد و از زیرساخت گوگل برای انتقال داده استفاده می‌کند.
+
+#### ✨ ویژگی‌ها:
+- احراز هویت خودکار از طریق Google OAuth (بدون نیاز به دخالت دستی پس از تنظیم اولیه)
+- Refresh Token دائمی (به شرط Publish بودن OAuth App)
+- امکان تانل WireGuard برای تغییر IP خروجی
+- اجرای خودکار یا دستی
+
+#### 📝 نحوه استفاده:
+1. مطمئن شوید Secret **`SKIRK_EXIT_CONFIG`** طبق راهنمای بخش [۸. کانفیگ خروجی Skirk](#۸-کانفیگ-خروجی-skirk-skirk_exit_config) تنظیم شده باشد.
+2. **Actions** → **skirk-vps** → **Run workflow**
+3. در صورت تمایل، گزینه `vpn_enabled` را فعال کنید (نیاز به `WG_CONFIG`).
+4. پس از شروع، Skirk به‌طور خودکار سرویس خروجی را اجرا می‌کند و توکن‌ها را تمدید می‌کند.
+
+#### دریافت فایل Client:
+هنگام تنظیم اولیه (بخش ۸)، علاوه بر `exit.json`، یک فایل `client.skirk` نیز در پوشه `skirk-kit` ایجاد می‌شود. برای استفاده از این Exit Node روی سیستم شخصی:
+- فایل `client.skirk` را به ماشین محلی منتقل کنید.
+- با دستور `skirk serve-client --config client.skirk` یک پروکسی SOCKS5 روی `127.0.0.1:1080` راه‌اندازی کنید.
+- مرورگر یا برنامه خود را برای استفاده از این پروکسی تنظیم کنید.
+
+> ⚠️ برای عملکرد ۲۴/۷، می‌توانید این workflow را با یک زمان‌بندی (cron) هر ۵.۵ ساعت یکبار اجرا کنید تا وقفه‌ها به حداقل برسد.
+
+---
+
+## 🌐 راهنمای تانل WireGuard (اختیاری برای تمام Workflowها)
+
+از این پس **بسیاری از گردش‌کارها** (لیچر، تمام Exit Nodeها، Skirk) دارای یک گزینه **`vpn_enabled`** هستند. با فعال کردن آن، تمام ترافیک خروجی رانر از یک تانل WireGuard عبور کرده و IP شما به IP سرور VPN تغییر می‌کند. این قابلیت برای موارد زیر بی‌نظیر است:
+
+- دور زدن تحریم‌ها و محدودیت‌های جغرافیایی
+- دانلود از سایت‌هایی که IP دیتاسنتر GitHub را بلاک کرده‌اند
+- تست سرویس‌ها از لوکیشن‌های مختلف
+
+### نحوه فعال‌سازی:
+
+1. یک کانفیگ WireGuard معتبر دریافت کنید (پیشنهاد: ProtonVPN رایگان).  
+2. محتوای فایل `.conf` را **دقیقاً** به عنوان Secret با نام `WG_CONFIG` ذخیره کنید.  
+3. هنگام اجرای دستی هر Workflow، چک‌باکس **`vpn_enabled`** را تیک بزنید.  
+4. اگر اتصال موفق باشد، در لاگ پیام `✅ WireGuard VPN connected.` را می‌بینید.  
+5. در صورت شکست (مثلاً عدم وجود Secret یا مشکل کانفیگ)، Workflow **بدون VPN ادامه می‌یابد** — هیچ خطایی رخ نمی‌دهد.
+
+### نکات فنی:
+- کانفیگ WireGuard باید دارای `DNS` مناسب باشد تا از نشت DNS جلوگیری شود.  
+- برای تغییر کشور خروجی، کافیست کانفیگ مربوط به آن سرور را جایگزین Secret کنید.  
+- اگر از ProtonVPN استفاده می‌کنید، سرورهای رایگان شامل **هلند، ژاپن و آمریکا** هستند.  
+- این Secret به صورت رمزنگاری شده ذخیره می‌شود و فقط در طول اجرای Job در دسترس است.
+
+---
+
 ## 🆕 ویژگیهای جدید (که در README قبلی نیستند)
 
 ### ۱. آپلود خودکار در Google Drive
-تمام workflowهای اصلی اکنون از گزینه `upload_to_drive` پشتیبانی میکنند. با تنظیم سه Secret مربوط به Google، فایلها مستقیماً در پوشه `github-actions` در Google Drive شما ذخیره میشوند. این ویژگی:
-- فضای مخزن GitHub را اشغال نمیکند
-- محدودیت ۵ گیگابایتی مخزن را دور میزند
-- فایلهای حجیم (>2GB) را میتوان بدون تقسیم شدن آپلود کرد
+...
 
-### ۲. آپلود به عنوان GitHub Release
-گزینه `upload_as_release` در بسیاری از workflowها اضافه شده است. این گزینه فایلها را به عنوان Release در مخزن شما منتشر میکند (به جای push در مخزن).
-
-### ۳. گزینه bundle_all
-در workflowهای یوتیوب، مستقیم، گوگل پلی، لیچر و MEGA، گزینه `bundle_all` به شما امکان میدهد همه فایلهای دانلودی را در یک فایل ZIP تجمیع کنید.
-
-### ۴. دانلودر MEGA.nz
-دانلود فایل و فولدر از MEGA.nz بدون نیاز به اکانت.
-
-### ۵. دانلودر اسپاتیفای (مجزا از ساندکلود)
-قبلاً در README به صورت ترکیبی با ساندکلود ذکر شده بود. اکنون یک workflow مجزا با پشتیبانی از Spotify, Tidal, Apple Music, SoundCloud, YouTube, Pandora و قابلیت دانلود FLAC بدون اتلاف.
-
-### ۶. Exit Nodeهای Zyrln (Go)
-دو workflow جدید برای Exit Node با زبان Go اضافه شده است (داینامیک و استاتیک).
-
-### ۷. Exit Node استاتیک پایتون
-قبلاً فقط نسخه داینامیک در README بود. نسخه استاتیک با دامنه ثابت اضافه شده است.
-
-### ۸. گزینههای پیشرفته در downloader-youtube
-ورودیهای جدید: `output_format` (mp4/mp3), `video_quality`, `audio_quality`.
+### ۸. Skirk Exit Node و تانل WireGuard برای تمام گردش‌کارها
+- **Skirk Exit Node**: یک سرویس خروجی قدرتمند مبتنی بر Google Drive با Refresh Token دائمی.  
+- **WireGuard Toggle**: اکنون لیچر و تمام Exit Nodeها (Python, Zyrln, Rust, Skirk) دارای سوئیچ `vpn_enabled` هستند که با یک Secret ساده (`WG_CONFIG`) می‌توان IP خروجی را تغییر داد.  
+- **پشتیبانی از ProtonVPN رایگان**: با یک حساب رایگان می‌توانید کانفیگ WireGuard دریافت کرده و از IP کشورهای مختلف استفاده کنید.
 
 ---
 
 ## 🐢 مشکل کندی checkout و راهحل آن
 
-گاهی مرحلهی **Checkout repository** در workflowها بسیار کند میشود. این مشکل دو علت اصلی دارد:
-
-| دلیل | توضیح |
-|---|---|
-| **انباشته شدن فایلهای ریز تلگرام** | اگر از fetcher-telegram زیاد استفاده کنید، هزاران فایل کوچک در `telegram/content/` ذخیره میشود. از آنجا که checkout کل مخزن را میخواند، این حجم بالا سرعت را کاهش میدهد و روی **تمام workflowهای دیگر** اثر میگذارد. |
-| **اوج مصرف GitHub Actions (Peak Times)** | در ساعات شلوغی سرورهای GitHub (معمولاً روزهای کاری، ساعتهای اداری UTC)، عملیات checkout برای همه کندتر میشود — حتی اگر فایلهای کمی داشته باشید. |
-
-### راه حل:
-- **برای فایلهای تلگرام:** هر از گاهی با `aio-cleaner`، گزینه **Clean Telegram** را اجرا کنید.
-- **برای peak times:** صبر کنید تا از ساعت شلوغی خارج شوید، یا workflow را در ساعات خلوتتر اجرا کنید.
-
-> ❗ **نکته خیلی مهم!!! حتما بعد هر آپدیت مرحله کلینر رو برای همه اجرا کنید وگرنه دانلودهاتون به شدت کند انجام میشه!!**
+...
 
 ---
 
 ## ⚠️ محدودیتها و هشدارهای مهم
 
-| هشدار | توضیح |
-|---|---|
-| **فضای مخزن ≈ ۵ گیگابایت** | فایلهای دانلودی (مخصوصاً ویدیو) به سرعت فضا را پر میکنند. مرتباً از AIO Cleaner استفاده کنید یا از Google Drive برای آپلود استفاده کنید. |
-| **حداکثر زمان اجرا** | ۶ ساعت (برای مخازن عمومی، دقیقه رایگان نامحدود) |
-| **فایلهای >۹۹MB** | خودکار به ZIP چندبخشی تقسیم میشوند — با 7‑Zip یا WinRAR باز کنید. |
-| **دانلودر X** | حتماً کوکی `X_COOKIES` را تنظیم کنید. |
-| **تلگرام** | فقط کانالهای عمومی. نام کانال را **بدون @** وارد کنید. |
-| **وبسایت** | فقط صفحات عمومی (بدون دیوار ورود). |
-| **گوگل پلی** | احراز هویت خودکار — بدون نیاز به اکانت گوگل. |
-| **MEGA** | بدون نیاز به اکانت — لینکهای عمومی را دانلود میکند. |
-| **همگامسازی فورک** | حداقل هفتهای یکبار با دکمه Sync fork انجام دهید. اگر commit اضافی دارید، آن را Discard کنید. |
-| **کوکیها** | فقط در پنجره ناشناس استخراج کنید و پس از خروجی گرفتن، پنجره را ببندید. **حتماً از robots.txt استفاده کنید.** |
-| **Google Drive** | Refresh Token ممکن است بعد از مدتها منقضی شود — در صورت خطای 401، دوباره Refresh Token بگیرید. |
+...
 
 ---
 
 ## 📞 پشتیبانی
 
-باگ یا پیشنهاد؟ یک [Issue](https://github.com/ProAlit/aio-downloader/issues) باز کنید و ذکر کنید:
-- نام گردشکار
-- ورودی (بدون کوکی)
-- پیام خطا از تب Actions
+...
 
 ---
 
 ## 👀 فایل zoomusers.md چیست
-- این فایل یک راهنمای جامع بر اساس موضوعات فورام زوم یوزرز برای ارائه روشهای دسترسی به سرویس های گوگل و راه اندازی فیلترشکن برای کاربران ایرانی می باشد.
+
+...
 
 ---
 
@@ -1038,6 +1164,8 @@ https://random-name.trycloudflare.com
 | `GOOGLE_CLIENT_ID` | تمام workflowها (آپلود در Drive) | اختیاری | OAuth Client ID از Google Cloud |
 | `GOOGLE_CLIENT_SECRET` | تمام workflowها (آپلود در Drive) | اختیاری | OAuth Client Secret از Google Cloud |
 | `GOOGLE_REFRESH_TOKEN` | تمام workflowها (آپلود در Drive) | اختیاری | Refresh Token از OAuth Playground |
+| `SKIRK_EXIT_CONFIG` | skirk-vps | **الزامی** | محتوای کامل فایل `exit.json` |
+| `WG_CONFIG` | تمام workflowهای دارای `vpn_enabled` | اختیاری | کانفیگ WireGuard (متن کامل) |
 
 ---
 
