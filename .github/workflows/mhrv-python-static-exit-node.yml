@@ -1,4 +1,4 @@
-name: "python-mhrv-static-exit-node"
+name: "mhrv-python-static-exit-node"
 
 on:
   workflow_dispatch:
