@@ -7,6 +7,191 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 15:32
+---
+
+## VahidOOnLine — post 242116
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242116_1779710577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام آگاه گزارش داد محمدباقر قالیباف و عباس عراقچی برای دیدار با نخست‌وزیر قطر، در خصوص توافق احتمالی میان جمهوری اسلامی و آمریکا، وارد دوحه شده‌اند.
+
+پیش‌تر رسانه‌های ایران از سفر عبدالناصر همتی، رییس کل بانک مرکزی به قطر خبر داده بودند.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همتی رئیس بانک مرکزی هم در تیمه برای پیگیری آزادسازی منابع ارزی ایران و راهی قطر شد ه
+
+قرار شده است که قطر بخشی از پول‌های بلوکه شده ایران را پرداخت کند و بعد آمریکا به آن بپردازد!
+
+سید محمد مرندی، عضو سابق تیم مذاکره‌کننده هسته‌ای: ظاهرا قرار بر این است قطری ها بخشی از پول را برای ما تامین و بعداز آمریکا دریافت کنند.
+@withyashar
+</div>
+
+## WithYashar — post 12412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز : قالیباف و عراقچی امروز رفتن قطر برای مذاکرات
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342196
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342196_1779710578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Memorial Day ceremony to honor fallen service members https://twitter.com/i/broadcasts/1lJQRRRrOEkxE
+</div>
+
+## DEJradio — post 4935
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4935_1779710578.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑🎥 درخواست شهروندان داخل کشور؛ "اتحاد برای ایران"
+
+#ایران #اتحاد
+@DEJradio
+</div>
+
+## IranIntlTV — post 338913
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338913_1779710580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام آگاه گزارش داد محمدباقر قالیباف و عباس عراقچی برای دیدار با نخست‌وزیر قطر، در خصوص توافق احتمالی میان جمهوری اسلامی و آمریکا، وارد دوحه شده‌اند.
+
+پیش‌تر رسانه‌های ایران از سفر عبدالناصر همتی، رییس کل بانک مرکزی به قطر خبر داده بودند.
+iranintl.com/202605250172
+</div>
+
+## IranIntlTV — post 338912
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338912_1779710581.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نعیم قاسم، دبیرکل حزب‌الله لبنان، ابراز امیدواری کرد هرگونه توافق احتمالی میان جمهوری اسلامی و ایالات متحده به توقف کامل جنگ در لبنان منجر شود.
+
+گفت‌وگو با می فرحات، خبرنگار ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## DW_Farsi — post 125128
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125128_1779710582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 رئیس جمهور لبنان: خروج نیروهای اسرائیلی غیرقابل مذاکره است
+
+جوزف عون، رئیس جمهور لبنان، می‌گوید عقب‌نشینی اسرائیل از جنوب این کشور "یک خواسته غیرقابل مذاکره" است که مقامات لبنانی آن را در قالب گفت‌وگوها پیگیری خواهند کرد.
+عون در بیانیه‌ای به مناسبت بزرگداشت عقب‌نشینی اسرائیل از اشغال جنوب لبنان در ۲۵ مه ۲۰۰۰ گفت: «امسال، سالگرد آزادسازی در حالی فرا می‌رسد که لبنان زیر بار یک واقعیت دردناک کمر خم کرده است.»
+او افزود: «حملات اسرائیل متوقف نشده است و روستاهای عزیز جنوبی ما هنوز از اشغال مجدد رنج می‌برند.»
+به گفته عون، "لبنان این واقعیت را نخواهد پذیرفت".
+او تصریح کرد: «مسیر خروج کامل اسرائیل همچنان یک مطالبه ملی پایدار و بدون مصالحه خواهد بود که دولت لبنان برای دستیابی به آن از طریق گزینه مذاکره تلاش می‌کند.»
+مقامات اسرائیلی گفته‌اند که نیروهای این کشور "تا زمان رفع تهدید حزب‌الله" در جنوب لبنان باقی خواهند ماند.
+@dw_farsi
+</div>
+
+## IranianMinds — post 20720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری رویترز :
+
+عباس عراقچی و محمدباقر قالیباف وارد قطر شدن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20719
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20719_1779710583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارک لوین :
+
+در اینترنت مطالب زیادی درباره یک توافق احتمالی با جمهوری اسلامی وجود دارد. اما من هیچ چیزی درباره خود مردم ایران ندیدم و کسی در مورد مردم ایران حرف نمی زند..
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282015
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282015_1779710584.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آژانس پناهندگان فلسطینی سازمان ملل، اونروا، می‌گوید که بیش از ۱۲۵ هزار مورد عفونت پوستی ناشی از جوندگان و حشرات را در این منطقه محاصره‌شده شناسایی کرده است.
+
+این نهاد در حسابش در شبکه اجتماعی ایکس نوشت: «تیم‌های بهداشت ما در حال سم‌پاشی و آفت‌کشی ایمن در مناطقی هستند که تعداد زیادی از آوارگان هنوز در سکونتگاه‌های موقت پرجمعیت زندگی می‌کنند.»
+
+این آژانس می‌گوید: «کمبود شدید سوخت، آفت‌کش‌، چادر و دارو واکنش به این بحران را محدود می‌کند.»
+
+به گفته اونروا، غزه نیاز به «ورود نامحدود لوازم بهداشتی و پزشکی» دارد.
+
+براساس گزارش‌ها، با توجه به اینکه همچنان صدها هزار فلسطینی آواره در غزه هنوز در چادرها زندگی می‌کنند و هیچ نشانه‌ای از بازسازی این منطقه به چشم نمی‌خورد، تلاش برای تهیه آب تمیز و مقابله با حیوانات ناقل بیماری به طور فزاینده‌ای دشوار شده است.
+
+📸Anadolu via Getty Images
+https://bbc.in/4uFNNTh
+@BBCPersian
+</div>
+
+## alonews — post 122550
+
+<div align="center">
+  <a href="telegram/content/alonews_122550_1779710584.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 همچنان حمله‌های ارتش اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122549
+
+<div align="center">
+  <a href="telegram/content/alonews_122549_1779710585.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دو مقام اسرائیلی به رویترز: نتانیاهو به نزدیکان خود می‌گوید که هیچ تأثیری بر تصمیمات ترامپ ندارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122547
+
+<div align="center">
+  <a href="telegram/content/alonews_122547_1779710585.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تخریب در قانا و نبطیه در جنوب لبنان پس از حملات اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 15:22
 ---
 
