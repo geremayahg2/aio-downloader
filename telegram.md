@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 10:32
+---
+
+## VahidOOnLine — post 242078
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242078_1779692568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه چین روز دوشنبه چهارم خردادماه با انتقاد دوباره از جنگ آمریکا و اسرائیل علیه جمهوری اسلامی، اعلام کرد این کشور آماد ایفای هرگونه نقش سازنده برای برقراری صلح در خاورمیانه است.
+
+وزارت امور خارجه چین با ابراز نگرانی از احتمال شکست مذاکرات تاکید کرد «درهای گفتگوها هرگز نباید بسته شود. امنیت کشتیرانی و تامین زنجیره کالا باید تضمین شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : یکی از بدترین توافق‌هایی که کشور ما تا به حال انجام داده، «توافق هسته‌ای ایران» بود که توسط باراک حسین اوباما و افراد کاملاً غیرحرفه‌ای دولت اوباما طراحی و امضا شد. این توافق، یک مسیر مستقیم برای ایران جهت دستیابی به سلاح هسته‌ای ایجاد می‌کرد.…
+</div>
+
+## WithYashar — post 12398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتخابات هیئت رئیسه مجلس که از ساعت ۷:۳۰ صبح امروز آغاز شد، دقایقی پیش پایان یافت
+با آرا اکثریت نمایندگان قالیباف رئیس‌مجلس ماند
+این انتخابات بصورت حضوری و با رای مستقیم نمایندگان برای انتخاب ۱۲ عضو هیئت رئیسه مجلس شامل یک رئیس، ۲ نایب رئیس، ۶ دبیر و ۳ ناظر بود.
+@withyashar
+</div>
+
+## WithYashar — post 12397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂
+</div>
+
+## WithYashar — post 12396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نعیم قاسم دبیرکل حزب الله:به خیابان ها بیاید و دولت لبنان را سرنگون کنید
+@withyashar
+</div>
+
+## pm_afshaa — post 91430
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91430_1779692569.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم تروریستی جمهوری اسلامی برای بچه های اکباتان حکم اعدام صادر کرد
+
+میلاد آرمون، نوید نجاران، مهدی ایمانی و سید محمدمهدی حسینی به اعدام محکوم شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338873
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338873_1779692570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال یک شرکت محصولات پتروشیمی را در حوالی ساوه نشان می‌دهد و از تعطیلی آن پس از جنگ و بیکاری کارگرانش می‌گوید.
+</div>
+
+## FarsiVOA — post 218594
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218594_1779692572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد یک خریدار کشتی‌های فرسوده گفته وزارت خزانه‌داری آمریکا اجازه داده چهار شناور تحریمی مرتبط با حمل محموله‌های ایران برای اوراق خریداری شوند.
+
+بر اساس گزارش‌ها، شرکت جی‌ام‌اس مستقر در دبی، مجوز خرید چهار کشتی یوگی، تیمون، رانتانپلن و بیگلی را دریافت کرده است؛ شناورهایی که به شبکه کشتیرانی مرتبط با محمدحسین شمخانی نسبت داده شده‌اند. این شبکه از سوی آمریکا به انتقال نفت و کالاهای مرتبط با ایران متهم شده است.
+
+این تصمیم در حالی گرفته شده که وزارت خزانه‌داری آمریکا اخیراً در چارچوب فشار حداکثری تازه، ۱۹ کشتی و بیش از ۵۰ فرد و شرکت مرتبط با تجارت نفت و پتروشیمی ایران را تحریم کرده بود.
+
+مالکان ناشناس این کشتی‌ها می‌توانند از ارزش آهن‌قراضه آنها میلیون‌ها دلار دریافت کنند و واشنگتن می‌گوید خروج کنترل‌شده کشتی‌های فرسوده از «ناوگان سایه» می‌تواند ریسک‌های ایمنی و زیست‌محیطی را کاهش دهد.
+@FarsiVOA
+</div>
+
+## Hranews — post 113145
+
+<div align="center">
+  <img src="telegram/content/Hranews_113145_1779692573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمعی از رانندگان استیجاری برای سومین روز متوالی در مقابل ساختمان نهاد ریاست جمهوری در تهران، #تجمع_اعتراضی برگزار کردند.
+
+به گفته این رانندگان، ما از استان‌های مختلف در حالی برای اعتراض به تهران آمده‌ایم که از سال ۱۴۰۰ به دنبال اجرای قانون و تبدیل وضعیت هستیم اما هیچ نهادی پیگیر وضعیت ما نیست.
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122478
+
+<div align="center">
+  <a href="telegram/content/alonews_122478_1779692574.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش دفاعی اسرائیل از کشته شدن یک سرباز در لبنان خبر داد: گروهبان نهورای لایزر، ۱۹ ساله.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122477
+
+<div align="center">
+  <a href="telegram/content/alonews_122477_1779692574.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سخنگوی کمیسیون امنیت ملی مجلس:آمریکا منتظر بنزین ۶ دلاری باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 10:22
 ---
 
