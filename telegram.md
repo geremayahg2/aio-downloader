@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 00:13
+---
+
+## VahidOOnLine — post 242180
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242180_1779741808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران شامگاه دوشنبه از شنیده‌شدن صداهای انفجار در بندرعباس و همزمان در خلیج فارس حوالی سیریک و جاسک خبر دادند.
+
+معاون استاندار هرمزگان اعلام کرد منشا صدای انفجار در حال بررسی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌶️🫑
+</div>
+
+## WithYashar — post 12467
+
+
+
+
+## WithYashar — post 12466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: صداهای مشابهی در جزایر سیریک و جاسک شنیده شد.
+@withyashar
+</div>
+
+## WithYashar — post 12465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: دلیل انفجارها در بندرعباس مشخص نیست.
+
+@withyashar
+</div>
+
+## mwarmonitor — post 9713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥صدای انفجارهایی در خلیج فارس در نزدیکی مقابلِ سیریک و جاسک شنیده شد.
+</div>
+
+## kianmeli1 — post 87664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداهای انفجاری که در بندر عباس شنیده شده به احتمال زیاد مربوط به خنثی سازی مهمات عمل نکرده جنگ اخیر است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338989
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338989_1779741808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران شامگاه دوشنبه از شنیده‌شدن صداهای انفجار در بندرعباس و همزمان در خلیج فارس حوالی سیریک و جاسک خبر دادند.
+
+معاون استاندار هرمزگان اعلام کرد منشا صدای انفجار در حال بررسی است.
+https://iranintl.com/202605254215
+</div>
+
+## Shin_Persian — post 6222
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6222_1779741809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 20:32:58 UTC
+
+State-owned Mehr News and IRGC's Fars News confirm the explosions in Bandar Abbas, Fars adds "At the same time, several blasts were heard from Sirik and Jask as well"
+Hormozgan Province, #Iran
+
+فارسی
+
+خبرگزاری دولتی مهر و خبرگزاری فارس متعلق به سپاه پاسداران انقلاب اسلامی (سپاه)، وقوع انفجارها در بندرعباس را تأیید کردند. فارس افزود: «همزمان، چندین صدای انفجار از سیریک و جاسک نیز شنیده شده است.»
+استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218650
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218650_1779741809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌های شبکه‌های اجتماعی از شنیده شدن صدای چند انفجار شدید در بندر عباس حکایت دارد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14997
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14997_1779741809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرگزاری تسنیم به نقل از یک منبع نظامی گزارش می‌دهد که تحقیقات فنی نیروهای مسلح ایران نشان می‌دهد اسرائیل در چند هفته گذشته تحت پوشش عملیات پرچم دروغین، چندین حمله پهپادی علیه امارات انجام داده است، با هدف تحریک اماراتی‌ها.🇮🇷🇦🇪🇮🇱
+
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گمانه‌زنی‌ها درباره احتمال درگیری دریایی در خلیج فارس
+
+▪️ برخی منابع غیررسمی احتمال می‌دهند انفجارهای شنیده‌شده در نزدیکی جاسک و سیرک ناشی از درگیری دریایی با یک شناور بوده باشد
+▪️ گفته می‌شود این شناور احتمالاً از دستورات نیروی دریایی ایران تبعیت نکرده است
+▪️ تاکنون هیچ تأیید رسمی درباره وقوع درگیری دریایی یا هویت شناور منتشر نشده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 122670
+
+<div align="center">
+  <a href="telegram/content/alonews_122670_1779741810.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهر: دلیل انفجار های بندرعباس مشخص نیست 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122669
+
+<div align="center">
+  <a href="telegram/content/alonews_122669_1779741810.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: همزمان در خلیج فارس حوالی سیریک و جاسک نیز صداهای مشابه شنیده شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122668
+
+<div align="center">
+  <a href="telegram/content/alonews_122668_1779741810.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش آکسیوس، ویتکاف و کوشنر در روزهای آینده به اسرائیل سفر خواهند کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 00:03
 ---
 
