@@ -528,8 +528,72 @@ jobs:
           CLIENT_SECRET: ${{ secrets.GOOGLE_CLIENT_SECRET }}
           REFRESH_TOKEN: ${{ secrets.GOOGLE_REFRESH_TOKEN }}
         run: |
-          # ... (same drive upload logic as before, unchanged)
-          echo "Drive upload logic unchanged."
+          # 1. Obtain access token
+          ACCESS_TOKEN=$(curl -s -X POST https://oauth2.googleapis.com/token \
+            -d client_id="$CLIENT_ID" \
+            -d client_secret="$CLIENT_SECRET" \
+            -d refresh_token="$REFRESH_TOKEN" \
+            -d grant_type=refresh_token | jq -r '.access_token')
+          if [ -z "$ACCESS_TOKEN" ] || [ "$ACCESS_TOKEN" = "null" ]; then
+            echo "❌ Failed to obtain access token"
+            exit 1
+          fi
+      
+          # 2. Find or create 'github-actions' folder
+          FOLDER_NAME="github-actions"
+          QUERY="mimeType='application/vnd.google-apps.folder' and name='$FOLDER_NAME' and trashed=false"
+          FOLDER_ID=$(curl -s -G \
+            -H "Authorization: Bearer $ACCESS_TOKEN" \
+            --data-urlencode "q=$QUERY" \
+            --data-urlencode "fields=files(id)" \
+            "https://www.googleapis.com/drive/v3/files" | jq -r '.files[0].id // ""')
+          if [ -z "$FOLDER_ID" ]; then
+            echo "→ Creating folder '$FOLDER_NAME'"
+            FOLDER_ID=$(curl -s -X POST \
+              -H "Authorization: Bearer $ACCESS_TOKEN" \
+              -H "Content-Type: application/json" \
+              -d "{\"name\":\"$FOLDER_NAME\", \"mimeType\":\"application/vnd.google-apps.folder\"}" \
+              "https://www.googleapis.com/drive/v3/files?fields=id" | jq -r '.id')
+            if [ -z "$FOLDER_ID" ] || [ "$FOLDER_ID" = "null" ]; then
+              echo "❌ Failed to create folder"
+              exit 1
+            fi
+          fi
+          echo "✅ Folder ID: $FOLDER_ID"
+      
+          OUTPUT_DIR="music"   # <-- adjust if your archive step uses a different output directory
+          for file in "$OUTPUT_DIR"/*; do
+            [ -f "$file" ] || continue
+            fname=$(basename "$file")
+            size=$(stat -c%s "$file")
+            echo "→ Uploading $fname ($size bytes)..."
+      
+            # Initiate resumable upload session
+            SESSION_URI=$(curl -s -X POST \
+              -H "Authorization: Bearer $ACCESS_TOKEN" \
+              -H "Content-Type: application/json; charset=UTF-8" \
+              -H "X-Upload-Content-Type: application/zip" \
+              -d "{\"name\":\"$fname\", \"parents\":[\"$FOLDER_ID\"]}" \
+              "https://www.googleapis.com/upload/drive/v3/files?uploadType=resumable" \
+              -D - | tr -d '\r' | grep -i '^location:' | sed 's/^location: //i' | tr -d ' ')
+            if [ -z "$SESSION_URI" ]; then
+              echo "❌ Failed to initiate upload session for $fname, skipping"
+              continue
+            fi
+      
+            # Upload the entire file in one chunk
+            HTTP_CODE=$(curl -s -o /dev/null -w "%{http_code}" -X PUT \
+              -H "Authorization: Bearer $ACCESS_TOKEN" \
+              -H "Content-Length: $size" \
+              -H "Content-Range: bytes 0-$((size-1))/$size" \
+              --data-binary "@$file" \
+              "$SESSION_URI")
+            if [ "$HTTP_CODE" -eq 200 ] || [ "$HTTP_CODE" -eq 201 ]; then
+              echo "✅ Uploaded $fname"
+            else
+              echo "❌ Upload failed with HTTP $HTTP_CODE"
+            fi
+          done
 
       - name: Upload to repository (split_push method)
         if: ${{ inputs.upload_method == 'repo' }}
