@@ -7,6 +7,143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 00:32
+---
+
+## mwarmonitor — post 9778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔰نماینده روسیه در سازمان ملل خطاب به کشورهای خلیج فارس درباره ایران: شما در سیاست آمریکا در خاورمیانه به گروگان گرفته شده‌اید. ما مدت‌هاست می‌گوییم اگر چنین چیزی رخ دهد، شما ناگزیر وارد این بحران خواهید شد، چه بخواهید و چه نخواهید.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 دونالد ترامپ قرار است فردا جلسه کابینه خود را در کمپ دیوید برگزار کند؛ اقدامی نادر که شامل سفر به اقامتگاه ریاست‌جمهوری است (در صورت مساعد بودن هوا). 🔸به گفته یک مقام کاخ سفید، انتظار می‌رود تمام اعضای کابینه در این جلسه حضور داشته باشند. نیویورک پست …
+</div>
+
+## FoxNewsTwitter — post 342282
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342282_1779829335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A beach day turned chaotic in seconds.
+
+A waterspout came ashore in Miramar Beach, Florida, sending umbrellas and chairs flying as Memorial Day beachgoers ran for cover.
+
+Video shows the twister spinning over the Gulf before sweeping onto the sand and moving down the shoreline.
+</div>
+
+## pm_afshaa — post 91592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv متصل سرعت بالا 
+💧 Rainbet.com…
+</div>
+
+## pm_afshaa — post 91591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چنل مردمی فایتر رادار دنبال کنید
+
+
+https://t.me/+9C1ENi5qn6hhZjk0
+
+https://t.me/+9C1ENi5qn6hhZjk0
+</div>
+
+## Shin_Persian — post 6255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 26 May 2026 21:01:02 UTC
+
+https://www.timesofisrael.com/liveblog_entry/initial-assessments-said-to-indicate-hamass-new-military-chief-successfully-killed-in-strike/
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 282131
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282131_1779829337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک شب پس از آن که فرماندهی مرکزی نیروی دریایی آمریکا - سنتکام - از حمله به چند سایت پرتاب موشک و قایق تندرو ایران در نزدیکی سواحل بندرعباس و تنگه هرمز خبر داد و آن را «حمله تدافعی» خواند، وزارت خارجه ایران با صدور بیانیه‌ای این اقدام را «نقض فاحش آتش‌بس» و «دلیل سوءظن عمیق» ایران به آمریکا دانسته است.
+
+در بیانیه روز سه‌شنبه وزارت خارجه ایران که بخشی از آن را برایتان پیش تر همینجا گزارش کردیم و متن کامل آن اکنون منتشر شده،‌ آمده است: « ارتکاب این اقدامات تجاوزکارانه، همزمان با روند دیپلماتیک جاری به میانجیگری پاکستان، بار دیگر بدسگالی و بدعهدی هیات حاکمه آمریکا را برای ملت ایران، مردمان منطقه و جامعه جهانی عیان کرد و نشان داد که رویکرد اصولی ملت ایران، در هر سه عرصه میدان، خیابان و دیپلماسی، مبنی بر سوء ظن عمیق نسبت به رژیم آمریکا مبتنی بر منطق و فهمی عمیق از ماهیت و عملکرد کین‌توزانه و جنایتکارانه آن در قبال مردم ایران است.»
+
+ادامه خبر در لینک زیر:
+
+https://bbc.in/4306rcp
+📷EPA
+@bbcpersian
+</div>
+
+## alonews — post 122943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش ما هم مثل اینترنت به وضعیت قبل دی ماه برمیگشتیم. [@AloTweet]
+</div>
+
+## alonews — post 122942
+
+<div align="center">
+  <a href="telegram/content/alonews_122942_1779829338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز:
+جمهوری اسلامی درخواست ۲۴ میلیارد دلار برای هر توافقی با آمریکا کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122941
+
+<div align="center">
+  <a href="telegram/content/alonews_122941_1779829340.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب الله امروز تصاویری منتشر کرد که نشان می دهد یک Fpv به طور مستقیم به یک وسیله نقلیه نظامی اسرائیلی که سربازان ارتش اسرائیل را در بنت جبیل ، جنوب لبنان حمل می کند ، حمله کرده است.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122940
+
+<div align="center">
+  <a href="telegram/content/alonews_122940_1779829340.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جمهوری اسلامی چقدر مردم رو فقیر و بدبخت نگه داشته که بخاطر یدونه مرغ صدقه‌ای اینجوری صف کشیدن.
+
+
+🔴کشوری که روی بزرگترین منابع طبیعی قرار داره.
+
+
+🔴خمینی: شمارا به مقام انسانیت می‌رسانیم.
+
+
+🤔ویدیو یه نکته‌ داره ببینیم میتونید پیدا کنید
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 00:22
 ---
 
