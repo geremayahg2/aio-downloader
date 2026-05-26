@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 04:33
+---
+
+## FarsiVOA — post 218663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کارزار سرکوب در سایه قطع اینترنت در ایران؛ هر ۴۸ ساعت یک چوبه دار
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15027
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15027_1779757383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️پست جدید دونالد ترامپ
+
+
+پ ن: آیا هنوز عقیده دارید ترامپ پولی به جمهوری اسلامی خواهد داد؟
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 04:23
 ---
 
