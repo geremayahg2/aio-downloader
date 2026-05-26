@@ -7,6 +7,330 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 22:33
+---
+
+## VahidOOnLine — post 242340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن آلمان روز سه‌شنبه در تجمعی در هامبورگ علیه قطع اینترنت و اعدام شهروندان معترض در ایران شعار دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242339
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242339_1779822218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه نیویورک‌ تایمز به نقل از دو مقام آمریکایی نوشت که حملات نظامی آمریکا به هدافی در جنوب ایران در شامگاه دوشنبه پس از آن انجام شد که تحلیلگران اطلاعاتی مجموعه‌ای از اقدامات نظامی جمهوری اسلامی را شناسایی کردند که به‌طور «بالقوه تهدیدآمیز» بود.
+
+این رسانه در گزارشی کوتاه که شامگاه سه‌شنبه منتشر شد، نوشت این مقام‌ها گفتند جمهوری اسلامی چند پهپاد انتحاری را در نزدیکی شماری از حدود ۲۴ ناو جنگی نیروهای آمریکا در محدوده دریای عمان و دریای عرب به پرواز درآورده بودند. این ناوها در اجرای عملیات محاصره دریایی بندرهای جنوب ایران نقش دارند.
+
+به گفته این منابع که به دلیل حساسیت مسائل عملیاتی نخواستند نامشان فاش شود، تحلیلگران اطلاعاتی آمریکا تحرکاتی را در برخی از مواضع موشک‌های زمین‌به‌هوای جمهوری اسلامی در نزدیکی تنگه هرمز شناسایی کردند که هواپیماهای تهاجمی مستقر در خشکی و ناوهای هواپیمابرِ فعال در عملیات محاصره دریایی را تهدید می‌کرد.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242338
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242338_1779822219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دو مقام آمریکایی روز سه‌شنبه پنجم خردادماه،‌به روزنامه نیویورک تایمز گفتند جمهوری اسلامی دوشنبه‌شب پهپادهای تهاجمی را به سمت ناوها و کشتی‌های جنگی آمریکا در خلیج عمان و دریای عرب پرتاب کرده و همین اقدام به حملات متقابل آمریکا علیه اهدافی در جنوب ایران منجر شده است.
+
+به گفته این مقام‌ها، نیروهای جمهوری اسلامی همچنین قایق‌های مین‌گذار را در تنگه هرمز مستقر کرده بودند و ارتش آمریکا پس از رصد این تحرکات، در آنچه «حملات دفاع از خود» توصیف شد، قایق‌ها و محل‌های پرتاب موشک را هدف قرار داد.
+
+نیویورک تایمز نوشت ارتش آمریکا علاوه بر پرواز پهپادها، تحرکات سامانه‌های پدافند هوایی ایران در نزدیکی تنگه هرمز را نیز تهدیدی برای نیروهای خود ارزیابی کرده بود.
+
+این گزارش در حالی منتشر می‌شود که مذاکرات درباره توافق احتمالی برای پایان جنگ و بازگشایی تنگه هرمز ادامه دارد و مقام‌های آمریکایی و جمهوری اسلامی همچنان پیام‌های متفاوتی درباره آینده این گفتگوها ارسال می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل گزارش داد که دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در حال حاضر در یک تماس تلفنی هستند.
+@withyashar
+</div>
+
+## WithYashar — post 12597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت بلاکس : ۸۶٪ اینترنت ایران برگشته @withyashar
+</div>
+
+## mwarmonitor — post 9765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رادیو ارتش اسرائیل گزارش داد که دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در حال حاضر در یک تماس تلفنی هستند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342280
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342280_1779822219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: VP Vance shares a gut-wrenching example of Medicaid fraud uncovered by his task force:
+
+"A man who was supposed to be providing services to allow elderly people to live full and independent lives... What happened instead is that the man who was supposed to provide these services, reimbursed by the Medicaid program, was providing nothing, no services, no help, no check ins."
+
+"The vulnerable elderly man that he was supposed to be protecting and looking after, was reimbursed by the taxpayer in order to do exactly that, that man died."
+
+"That man lived his final moments on this earth, neglected while a fraudster got rich by providing services that he never actually provided."
+</div>
+
+## FoxNewsTwitter — post 342279
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342279_1779822221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Stephen Miller reveals how America's welfare system was ransacked by fraudsters who took advantage of the U.S. and its generous programs meant to help the most vulnerable:
+
+"All of the systems in our country... were set up based on the honor system. They're set up based on the idea that you could trust the average person through their own morality, to abide by the rules and comply with the law."
+
+"We take your word for it. If you fill out a piece of paper and you say your kids are hungry, you are going to get food stamps. We don't check, as a country, if you even have kids. In fact, as basic as that, we don't even check if you even have children, you would just start getting the checks."
+
+"What's happened to our country is we became a society... where you have a large number of people that are not following the honor system, they're not playing by the rules, they're not abiding by our laws. And the amount that has been fleeced from us is in the hundreds of billions of dollars."
+</div>
+
+## pm_afshaa — post 91563
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد عوده فرمانده ارشد حماس توسط اسراییل به درک واصل شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91562
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو مجوز ترور مقامات حزب الله در بیروت را از ترامپ گرفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91561
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در جریان جلسه کابینه اسراییل: نتانیاهو برای گفت‌وگو با ترامپ جلسه را ترک کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339148
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن آلمان روز سه‌شنبه در تجمعی در هامبورگ علیه قطع اینترنت و اعدام شهروندان معترض در ایران شعار دادند.
+</div>
+
+## IranIntlTV — post 339147
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339147_1779822223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه نیویورک‌ تایمز به نقل از دو مقام آمریکایی نوشت که حملات نظامی آمریکا به هدافی در جنوب ایران در شامگاه دوشنبه پس از آن انجام شد که تحلیلگران اطلاعاتی مجموعه‌ای از اقدامات نظامی جمهوری اسلامی را شناسایی کردند که به‌طور «بالقوه تهدیدآمیز» بود.
+
+این رسانه در گزارشی کوتاه که شامگاه سه‌شنبه منتشر شد، نوشت این مقام‌ها گفتند جمهوری اسلامی چند پهپاد انتحاری را در نزدیکی شماری از حدود ۲۴ ناو جنگی نیروهای آمریکا در محدوده دریای عمان و دریای عرب به پرواز درآورده بودند. این ناوها در اجرای عملیات محاصره دریایی بندرهای جنوب ایران نقش دارند.
+
+به گفته این منابع که به دلیل حساسیت مسائل عملیاتی نخواستند نامشان فاش شود، تحلیلگران اطلاعاتی آمریکا تحرکاتی را در برخی از مواضع موشک‌های زمین‌به‌هوای جمهوری اسلامی در نزدیکی تنگه هرمز شناسایی کردند که هواپیماهای تهاجمی مستقر در خشکی و ناوهای هواپیمابرِ فعال در عملیات محاصره دریایی را تهدید می‌کرد.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید.
+https://iranintl.com/202605265826
+</div>
+
+## Shin_Persian — post 6248
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 26 May 2026 18:55:10 UTC
+
+PM @netanyahu has left the ministerial meeting to talk with @POTUS on the phone.
+
+فارسی
+
+نخست‌وزیر @netanyahu جلسه وزرا را برای گفتگوی تلفنی با @POTUS (رئیس‌جمهور ایالات متحده) ترک کرده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پاسخ سنتکام به ادعاهای رسانه‌ای: آمریکا کشتی‌های تجاری را در تنگه هرمز اسکورت نمی‌کند
+
+◾️فرماندهی مرکزی ایالات متحده، سنتکام، سه‌شنبه ۵ اردیبهشت برخی ادعاهای رسانه‌ای را رد کرد و اعلام کرد که «پروژه آزادی» از سرگرفته نشده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/centcom-project-freedom-strait-of-hormuz-commercial-ships/8154112.html
+</div>
+
+## FarsiVOA — post 218733
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی فوتبال جمهوری اسلامی و چالش بزرگ در جام جهانی ۲۰۲۶: اقامت در مکزیک، بازی در خاک آمریکا؛ گفت‌وگو با فرید اشرفیان
+</div>
+
+## Dirty_Kids — post 390266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فروش سیگار به صورت نخی ممنوع شد
+دلیلش واسه این بوده که جوونا راحت به سیگار دسترسی نداشته باشن
+
++ کصخلا خب یه پاکت میگیرن کامل پاکتو میکشن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390265
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390265_1779822223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلاصه جنگ ۴۰ روزه برای اونایی که تازه نتشون وصل شده:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122913
+
+<div align="center">
+  <a href="telegram/content/alonews_122913_1779822224.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀 ترول تیم‌ها و بازیکن‌ها
+
+🎥 ویدیوها و لحظه‌های فان فوتبالی
+
+📊 آمار، ترکیب‌ها و اخبار فوری
+
+🌍 حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 122912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت پورن هاب به دلیل هجوم کاربران دقایقی قبل از دسترس خارج شد [@AloTweet]
+</div>
+
+## alonews — post 122911
+
+<div align="center">
+  <a href="telegram/content/alonews_122911_1779822224.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نتانیاهو، و ترامپ در حال حاضر در تماس تلفنی هستند، طبق گزارش کانال ۱۲ اسرائیل 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122910
+
+<div align="center">
+  <a href="telegram/content/alonews_122910_1779822225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایلان ماسک : وقتشه یه پایگاه بزرگ روی ماه ساخته بشه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122909
+
+<div align="center">
+  <a href="telegram/content/alonews_122909_1779822225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید نت بلاکس در صفحه خودش: خوش برگشتی ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122908
+
+<div align="center">
+  <a href="telegram/content/alonews_122908_1779822225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نتانیاهو، و ترامپ در حال حاضر در تماس تلفنی هستند، طبق گزارش کانال ۱۲ اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 22:24
 ---
 
