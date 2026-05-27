@@ -7,6 +7,189 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 12:42
+---
+
+## VahidOOnLine — post 242397
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242397_1779873149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با گزارش‌ها درباره رایزنی‌ها برای دستیابی به توافق میان جمهوری اسلامی و آمریکا، علی‌اکبر ولایتی، مشاور رهبر جمهوری اسلامی در امور بین‌الملل، گفت ضامن عینی بقای توافق، تنگه هرمز است.
+
+او در ایکس نوشت: «خط قرمز ایران روشن است، این بار کاغذها و امضاها تضمین نیستند، ضامن عینی بقای توافق، تنگه هرمز است. جغرافیا دروغ نمی‌گوید و قاضی نهایی عهدنامه، روی کاغذ نیست.»
+
+او همچنین گفت: «تاریخ گواهی می‌دهد همه مهاجمانی که با سودای سلطه آمدند، از اسکندر تا چنگیز و ترامپ، همگی در هاضمه تمدن غنی ایران هضم شدند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242396
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242396_1779873149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دولت کره‌جنوبی روز چهارشنبه ششم خردادماه اعلام کرد سفیر جمهوری اسلامی در سئول را در اعتراض به حمله به یک کشتی احضار خواهد کرد.
+
+مقام‌های کره‌جنوبی جزئیات بیشتری درباره این حادثه منتشر نکرده‌اند، اما تاکید کرده‌اند امنیت کشتیرانی و آزادی تردد دریایی برای سئول اهمیت حیاتی دارد.
+
+این خبر در حالی اعلام شد که حدود چهار هفته پیش یک کشتی باری کره جنوبی در تنگه هرمز هدف حمله پهپادی قرار گرفت و به‌شدت آسیب دید.
+دفتر ریاست جمهوری کره جنوبی اعلام کرد بسیار بعید است این حمله از جایی به‌جز ایران انجام شده باشد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باقری: ذخایر اورانیوم غنی‌شده ایران در دستورکار مذاکرات نیست
+ریانووستی به نقل از معاون دبیر شورای عالی امنیت ملی ایران:
+ایران و ایالات متحده هنوز در مورد رفع انسداد تنگه هرمز به توافق نرسیده‌اند.
+ایران و عمان در حال مذاکره درباره رویه جدید عبور کشتی‌ها از تنگه هرمز هستند.
+تماس‌های غیرمستقیم میان ایران و آمریکا ادامه دارد.
+ذخایر اورانیوم غنی‌شده ایران در دستور کار مذاکرات نیست.
+@withyashar
+</div>
+
+## WithYashar — post 12647
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12647_1779873150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان ، تهران شوش
+@withyashar
+</div>
+
+## pm_afshaa — post 91625
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=91.107.182.200&port=8443&secret=dd104462821249bd7ac519130220c25d09
+
+پروکسی متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=49.13.35.164&port=8443&secret=dd104462821249bd7ac519130220c25d09
+
+پروکسی متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vmess://ew0KICAidiI6ICIyIiwNCiAgInBzIjogIlBNVFYgTkVXUyBcdUQ4M0VcdUREODFcdTI2MDBcdUZFMEYiLA0KICAiYWRkIjogIjIxMi44Ny4xOTguNzkiLA0KICAicG9ydCI6ICI0NTI1NSIsDQogICJpZCI6ICJkZDVmZmQyMy1jZWY1LTQ0ZGQtYTE0My02NThiZDdmMzk0M2EiLA0KICAiYWlkIjogIjAiLA0KICAic2N5IjogImF1dG8iLA0KICAibmV0IjogInRjcCIsDQogICJ0eXBlIjogImh0dHAiLA0KICAiaG9zdCI6ICJiYWxlLmFpIiwNCiAgInBhdGgiOiAiLyIsDQogICJ0bHMiOiAiIiwNCiAgInNuaSI6ICIiLA0KICAiYWxwbiI6ICIiLA0KICAiZnAiOiAiIg0KfQ==
+
+متصل سرعت بالا برای تمامی سرور ها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5015
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5015_1779873150.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 کمک عمان و عراق به جمهوری اسلامی در دور زدن محاصره دریایی آمریکا
+
+یک منبع داخلی به دژ می‌گوید دولت عمان از طریق بنادر صلاله، صحار و دقم به کشتی‌های جمهوری اسلامی در دور زدن محاصره دریایی بنادر ایران توسط آمریکا کمک می‌کند. شماری از عوامل سـ.ـپاه پاسداران به اسم نمایندگان گمرک و کشترانی ایران در این بنادر مستقر شدند و روند ترخیص و جابجایی کالاها را مدیریت می‌کنند. کشتی‌هی وابسته به جمهوری اسلامی با مدارک و اطلاعات جعلی در این بنادر پهلو می‌گیرند. همین وضعیت در بندر بندر ام‌القصر عراق برقرار است.
+طبق اعلام سنتکام از آغاز محاصره دریایی ایران تا پنجم خرداد ۱۴۰۵ بیش از ۱۰۸ کشتی تجاری مجبور به تغییر مسیر شده‌اند.
+
+#محاصره_دریایی #جنگ
+@DEJradio
+</div>
+
+## IranIntlTV — post 339209
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339209_1779873151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با گزارش‌ها درباره رایزنی‌ها برای دستیابی به توافق میان جمهوری اسلامی و آمریکا، علی‌اکبر ولایتی، مشاور رهبر جمهوری اسلامی در امور بین‌الملل، گفت ضامن عینی بقای توافق، تنگه هرمز است.
+
+او در ایکس نوشت: «خط قرمز ایران روشن است، این بار کاغذها و امضاها تضمین نیستند، ضامن عینی بقای توافق، تنگه هرمز است. جغرافیا دروغ نمی‌گوید و قاضی نهایی عهدنامه، روی کاغذ نیست.»
+
+او همچنین گفت: «تاریخ گواهی می‌دهد همه مهاجمانی که با سودای سلطه آمدند، از اسکندر تا چنگیز و ترامپ، همگی در هاضمه تمدن غنی ایران هضم شدند.»
+https://iranintl.com/202605278676
+</div>
+
+## DW_Farsi — post 125184
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125184_1779873151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶ولایتی: ضامن عینی بقای توافق، تنگه هرمز است
+
+علی‌اکبر ولایتی، مشاور رهبر جمهوری اسلامی در امور بین‌الملل، در پیامی در شبکه اجتماعی ایکس نوشته است که "ضامن عینی بقای توافق، تنگه هرمزاست". او تاکید کرده که ایران این بار تنها به "کاغذها و امضاها" تکیه نخواهد کرد.
+
+او همچنین نوشت، "ملت بودن" ریشه‌ای تمدنی دارد و "کالایی نیست که با دلار نفتی بتوان خرید یا اجاره کرد".
+
+اظهارات ولایتی در حالی مطرح می‌شود که تنش‌ها در منطقه و بحث درباره امنیت تنگه هرمز، یکی از مهم‌ترین مسیرهای انتقال نفت جهان، بار دیگر افزایش یافته است. شمار زیادی از مقام‌های حکومت ایران، از جمله مجتبی خامنه‌ای، رهبر کنونی جمهوری اسلامی، در ادبیاتی تهدیدآمیز گفته‌اند که وضعیت تنگه هرمز به گذشته بازنخواهد گشت.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 20857
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20857_1779873152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه‌ ترور محمد عوده و فرماندهان شاخه نظامی حماس
+
+@IranianMinds
+</div>
+
+## alonews — post 123011
+
+<div align="center">
+  <a href="telegram/content/alonews_123011_1779873153.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / منتسب به تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123010
+
+<div align="center">
+  <a href="telegram/content/alonews_123010_1779873153.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ عبری تهدید پهپادهای بمب‌گذاری شده خطرناک‌تر از آن است که «اسرائیل» تصور می‌کند، و راه‌حل‌های فعلی مانع فاجعه بعدی نخواهند شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 12:32
 ---
 
