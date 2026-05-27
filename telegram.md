@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 17:03
+---
+
+## FoxNewsTwitter — post 342299
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342299_1779888786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Iranian state TV has published what it claims is a new draft proposal for peace with the U.S. — and it reportedly still clashes with several major American red lines.
+
+The proposal allegedly includes demands tied to Iran’s nuclear program and future enforcement measures, while also calling for $20 billion in frozen funds to be released as part of the deal.
+
+VP Vance says he’s hopeful an agreement can still be reached, but warned the administration is focused on securing a deal that Iran won’t violate in the future.
+
+@JacquiHeinrich breaks down the latest developments and what could still blow up the negotiations.
+</div>
+
+## DEJradio — post 5036
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5036_1779888788.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 ایران فراموش‌شده در سایه بحران هرمز
+
+گزارش: ایمان صفتی
+
+#شاهزاده_رضا_پهلوی #تنگه_هرمز #ایران
+@DEJradio
+</div>
+
+## IranIntlTV — post 339240
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339240" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | چهارشنبه ۶ خرداد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 218801
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218801_1779888790.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیشتر ارتش اسرائیل و سازمان امنیت داخلی این کشور، شاباک، اعلام کردند محمد عوده، فرمانده تازه شاخه نظامی حماس در نوار غزه، در حمله هوایی سه‌شنبه شب در شمال غزه کشته شده است.
+
+به گزارش ارتش اسرائیل چند ساختمان در غزه که به‌عنوان محل اختفای او استفاده می‌شد هدف قرار گرفت. این حملات پس از ماه‌ها رصد اطلاعاتی برای شناسایی الگوهای رفت‌وآمد او و همکارانش انجام شد.
+
+به گفته مقام‌های اسرائیلی، محمد عوده هفته گذشته و پس از کشته شدن عزالدین حداد، به‌عنوان رئیس شاخه نظامی سازمان تروریستی حماس منصوب شده بود.
+</div>
+
+## FarsiVOA — post 218800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چشم‌انداز تورمی که با وقوع جنگ و درگیری نظامی در ایران می‌بینیم چیست؟ معصومه طاهرخانی، اقتصاددان در میدان می‌گوید شرایط خیلی سخت‌تری در پیش است
+</div>
+
+## Dirty_Kids — post 390319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏الان دارن روی سرور‌های سوپراپلیکیشن بله رو پلاستیک و کاور میکشن که گرد و خاک نره توش تا اینترنت ملی بعدی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390318
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390318_1779888792.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شلواری که به تازگی مد شده و رکورد خرید توسط پسرا برای دوس دخترشون رو داشته!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123066
+
+<div align="center">
+  <a href="telegram/content/alonews_123066_1779888793.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل در اقدامی بسیار غیر عادی و عجیب دستور تخلیه کامل شهر بندری صور، بزرگ ترین شهر جنوب لبنان به همراه تمام روستاهای اطراف آن را صادر کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 16:52
 ---
 
