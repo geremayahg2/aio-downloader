@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 04:52
+---
+
+## VahidOOnLine — post 242372
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242372_1779844960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال به نقل از مقام‌های ایرانی و میانجی‌های عرب گزارش داد جمهوری اسلامی در راهبرد مذاکره با آمریکا به دنبال دستیابی به گشایش مالی برای اقتصاد خود است، بدون آنکه در برنامه هسته‌ای خود در حدی امتیاز بدهد که ترامپ بتواند ادعای پیروزی کند.
+به گفته این مقام‌ها، تهران در پی آن است که با بازپس‌گیری کنترل بخشی از حدود ۱۰۰ میلیارد دلار دارایی مسدودشده از سوی غرب و بازیابی دسترسی به بازارهای جهانی نفت، به گشایش اقتصادی دست یابد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242371
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242371_1779844961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مقام‌هایی که نخواستند نامشان فاش شود، به نیویورک تایمز گفتند جمهوری اسلامی پهپادهای انتحاری یک‌طرفه را در نزدیکی برخی از نزدیک به ۲۴ ناو جنگی نیروی دریایی آمریکا در خلیج فارس و دریای عرب به پرواز درآورد. این ناوها در حال اجرای محاصره دریایی علیه کشتی‌هایی هستند که تلاش می‌کنند وارد بنادر ایران شوند یا از آن‌ها خارج شوند.
+برایاس این گزارش، تحلیلگران نظامی آمریکا همچنین تحرکاتی را در برخی از سایت‌های موشکی زمین‌به‌هوای ایران در نزدیکی تنگه هرمز شناسایی کردند؛ تحرکاتی که جنگنده‌های مستقر در پایگاه‌های زمینی و ناوهای هواپیمابر آمریکا را که در چارچوب محاصره دریایی در منطقه فعالیت می‌کنند، تهدید می‌کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342292
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342292_1779844962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Senator Cornyn speaks after losing GOP primary to Trump-ally Ken Paxton https://twitter.com/i/broadcasts/1rGmqqpEvPwGy
+</div>
+
+## IranIntlTV — post 339180
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339180_1779844963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال به نقل از مقام‌های ایرانی و میانجی‌های عرب گزارش داد جمهوری اسلامی در راهبرد مذاکره با آمریکا به دنبال دستیابی به گشایش مالی برای اقتصاد خود است، بدون آنکه در برنامه هسته‌ای خود در حدی امتیاز بدهد که ترامپ بتواند ادعای پیروزی کند.
+به گفته این مقام‌ها، تهران در پی آن است که با بازپس‌گیری کنترل بخشی از حدود ۱۰۰ میلیارد دلار دارایی مسدودشده از سوی غرب و بازیابی دسترسی به بازارهای جهانی نفت، به گشایش اقتصادی دست یابد.
+
+https://iranintl.com/202605272549
+</div>
+
+## FarsiVOA — post 218764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هوش مصنوعی و آینده بازار کار؛ هشدار یا امید؟
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15093
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15093_1779844964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تصاویر منتشرشده از حملات هوایی جدید به شهر Sohmor در شرق لبنان
+
+💢 ویدئوهای منتشرشده نشان می‌دهد حملات هوایی تازه‌ای شهر Sohmor در شرق لبنان را هدف قرار داده است
+▪️ تاکنون جزئیات دقیقی درباره تلفات یا اهداف حمله منتشر نشده
+▪️ همزمان حملات اسرائیل در جنوب و شرق لبنان طی ساعات اخیر شدت گرفته است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 04:42
 ---
 
