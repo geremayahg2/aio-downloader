@@ -7,6 +7,72 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 02:42
+---
+
+## FarsiVOA — post 218942
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ردپای نفت ایران در سوئیس؛ شبکه دور زدن تحریم‌ها و پولشویی برای سپاه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218941
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218941_1780009949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بحران سلامت در ایران و افزایش شدید هزینه‌های درمانی؛ گفت‌وگو با دکتر رضا سعیدی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15211
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15211_1780009950.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: یک پهپاد متجاوز امریکایی در نزدیکی بوشهر با موفقیت رهگیری شد. همچنین فرماندار شهرستان جم در استان بوشهر گفت: اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود. هم اینک شهرستان در وضعیت عادی است. 📝 Amir 📌 @persian_trend_official پرشین…
+</div>
+
+## IranianMinds — post 20984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم : یه پهپاد آمریکایی رو تو بوشهر زدیم بمولا. @IranianMinds
+</div>
+
+## BBCPersian — post 282287
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282287_1780009950.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+مقام‌های آمریکایی اعلام کردند که یک راننده کامیون سابق به دلیل نقش‌اش در توطئه برای قتل مسیح علی‌نژاد، فعال سیاسی ایرانی-آمریکایی، به ۱۰ سال زندان محکوم شد.
+
+وزارت خارجه ایالات متحده اعلام کرد که جاناتان لودهولت، ۳۷ ساله، به پولشویی و توطئه‌‌ای که مسیح علی‌نژاد را در خانه‌اش در بروکلین در سال ۲۰۲۴ هدف قرار می‌داد، اعتراف کرده است.
+
+اف‌بی‌آی پیش از انجام هرگونه سوءقصد علیه خانم علی‌نژاد، این توطئه را خنثی کرد.
+
+مسیح علی‌نژاد به بی‌بی‌سی گفت که از مقامات سپاسگزار است، اما احساس آرامش نمی‌کند.
+
+او گفت: «آرامش به معنای تمام شدن است. تمام نشده است. این سومین باری است که ایران سعی کرده است مرا در خاک آمریکا بکشد.»
+
+خانم علی‌نژاد گفت: «هر بار که شکست می‌خورند، با چیز جدیدی برمی‌گردند.»
+
+مقام‌های آمریکایی می‌گویند در حالی که این توطئه از ایران هدایت می‌شد، قاتلان احتمالی شهروندان آمریکایی بودند که برای پول با کشتن خانم علی‌نژاد موافقت کردند.
+
+متن کامل این خبر را در سایت فارسی بی‌بی‌سی بخوانید.
+
+https://bbc.in/4wWMhOa
+📷 Roy Rochlin/Getty Images for ADL
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 02:32
 ---
 
