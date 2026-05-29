@@ -7,6 +7,89 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 16:52
+---
+
+## pm_afshaa — post 91815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.12&port=15&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی سرعت بالا مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره: اسرائیل بزرگترین مانع رسیدن ایران و آمریکا به توافق است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://a184bab0-4005-4807-b76e-58c37b9d16a5@185.143.235.200:2095?encryption=none&security=none&type=ws&host=irbert.skycmd.org&path=%2Firbert#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+v2ray نامحدود مخصوص اینستا و دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339579
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339579_1780060979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرور تعطیلی و بازگشایی بورس ابوظبی در طول جنگ، و مقایسه‌اش با مدیریت بورس تهران در همین دوره راهگشاست.
+
+وال‌استریت پس از حملات یازده سپتامبر، فقط شش روز تعطیل بود، اما روسیه پس از حمله به اوکراین، بازار مسکو را یک ماه تعطیل کرد. بورس‌های امارات پس از حملات موشکی و پهپادی جمهوری اسلامی فقط دو روز معاملات را متوقف کردند، در حالیکه بورس تهران، در یک رکورد تاریخی، بیش از هشتاد روز تعطیل بود. در این قسمت چرتکه، محمد ماشین‌چیان رویکرد آمریکایی و روسی به بازار را در مقیاس ایران و امارات بررسی می‌کند.
+
+تماشای نسخه کامل «چرتکه» در یوتیوب ایران‌اینترنشنال:
+https://youtu.be/gPWijjjbR5M
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 339578
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339578_1780060981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، گفت: «اگر محاصره دریایی فراتر از بازه زمانی معینی ادامه یابد، حمله خواهیم کرد.»
+
+او ادامه داد: «سپاه بر پایه جنگ نامتقارن عمل می‌کند و از پهپادهای بسیار مقرون‌به‌صرفه و قایق‌های تندرو به عنوان ابزار اصلی بازدارندگی استفاده می‌کند.»
+
+رضایی افزود: «آمریکا در تاریکی به سمت ما می‌آید، در حالی که ما هر حرکت آنها را رصد می‌کنیم.»
+https://iranintl.com/202605290902
+</div>
+
+## FarsiVOA — post 218975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در دیدار با لارنس وانگ، نخست‌وزیر سنگاپور، و همچنین وزیر دفاع این کشور، بر نقش محوری سنگاپور در حمایت از تلاش‌های ایالات متحده برای تقویت بازدارندگی در منطقه تاکید کرد.
+
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 16:42
 ---
 
