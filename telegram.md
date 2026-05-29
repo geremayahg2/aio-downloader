@@ -7,6 +7,198 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 23:12
+---
+
+## VahidOOnLine — post 242819
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242819_1780083766.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا اعلام کرد این کشور یک میلیارد دلار از دارایی‌های رمزارزی مرتبط با جمهوری اسلامی را توقیف کرده است.
+
+بسنت در پاسخ به پرسشی درباره محاصره دریایی بنادر ایران گفت هر اقدامی برای کاهش یا لغو محدودیت‌ها، به‌صورت تدریجی انجام خواهد شد.
+
+وزیر خزانه‌داری آمریکا پیش‌تر نیز اعلام کرده بود دسترسی شرکت‌های هواپیمایی ایران به محل‌های فرود، سوخت‌گیری و فروش بلیت را قطع خواهیم کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242818
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242818_1780083767.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خزایی، عضو کمیسیون آموزش مجلس گفت که هرگونه تعرض و تجاوز از سوی آمریکا، اسرائیل و متحدانشان با «پاسخ قاطع، سخت و دندان‌شکن» مواجه خواهد شد.
+
+خزایی افزود: «دشمن بار دیگر دچار خطای محاسباتی شده و تصور کرده جمهوری اسلامی در میدان نبرد دچار سکوت یا انفعال شده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل :
+نتانیاهو خواستار از سرگیری حملات به ایران است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342409
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342409_1780083767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Hand to God" this video is real.
+
+A Florida deputy thought he had caught a distracted driver red-handed.
+
+Then he walked up to the window and discovered the driver...only had one hand.
+
+Kathleen Thomas was pulled over on suspicion of using a cellphone with her right hand while driving, but the stop quickly took an unexpected turn when she explained she doesn't have a right hand.
+
+In the video, the officer asks Thomas to swear "hand to God" that she did not have the phone in her hand.
+
+After video of the encounter went viral, officials dropped the citation over what they called a lack of evidence.
+</div>
+
+## FoxNewsTwitter — post 342408
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342408_1780083769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Let them hear you at the f***ing White House.”
+
+Bruce Springsteen rages against President Trump and his administration during his latest Washington, DC show:
+
+"This White House is destroying the American idea and our reputation around the world."
+
+"We are America, the reckless, unpredictable, predatory, untrustworthy, rogue nation."
+
+The crowd at Nationals Park roared as Springsteen urged fans to “fight back.”
+</div>
+
+## pm_afshaa — post 91869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان اسرائیل:نتانیاهو خواستار از سرگیری حملات به ایران است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339639
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339639_1780083772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا اعلام کرد این کشور یک میلیارد دلار از دارایی‌های رمزارزی مرتبط با جمهوری اسلامی را توقیف کرده است.
+
+بسنت در پاسخ به پرسشی درباره محاصره دریایی بنادر ایران گفت هر اقدامی برای کاهش یا لغو محدودیت‌ها، به‌صورت تدریجی انجام خواهد شد.
+
+وزیر خزانه‌داری آمریکا پیش‌تر نیز اعلام کرده بود دسترسی شرکت‌های هواپیمایی ایران به محل‌های فرود، سوخت‌گیری و فروش بلیت را قطع خواهیم کرد.
+https://iranintl.com/202605296456
+</div>
+
+## IranIntlTV — post 339638
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339638_1780083772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خزایی، عضو کمیسیون آموزش مجلس گفت که هرگونه تعرض و تجاوز از سوی آمریکا، اسرائیل و متحدانشان با «پاسخ قاطع، سخت و دندان‌شکن» مواجه خواهد شد.
+
+خزایی افزود: «دشمن بار دیگر دچار خطای محاسباتی شده و تصور کرده جمهوری اسلامی در میدان نبرد دچار سکوت یا انفعال شده است.»
+https://iranintl.com/202605297926
+</div>
+
+## FarsiVOA — post 219013
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219013_1780083773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️افزایش تهدیدات جمهوری اسلامی در کشورهای اسکاندیناوی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دیدار وزیر خارجه آمریکا با همتای پاکستانی‌اش و گفتگوی‌ تلفنی او با رئیس جمهور لبنان در میانه تحولات منطقه‌ای
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15292
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15292_1780083774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خزانه‌داری ایالات‌متحده : یک میلیارد دلار از دارایی‌های رمزارز ایران(سپاه) را مصادره کردیم.
+
+🔹اسکات بسنت، وزیر خزانه‌داری آمریکا، روز (جمعه) مدعی شد که ایالات متحده حدود یک میلیارد دلار از دارایی‌های رمزارزی ایران را مصادره کرده است.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 123572
+
+<div align="center">
+  <a href="telegram/content/alonews_123572_1780083774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تانکر ترکرز اعلام کرد: صادرات نفت و فرآورده‌های نفتی ایران تداوم دارد و امروز یک ابرنفتکش دو میلیون بشکه نفت خام ایران را بارگیری کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123571
+
+<div align="center">
+  <a href="telegram/content/alonews_123571_1780083774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خزانه‌داری آمریکا: یک میلیارد دلار از دارایی‌های رمزارز ایران را مصادره کردیم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123570
+
+<div align="center">
+  <a href="telegram/content/alonews_123570_1780083774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کان اسرائیل: نتانیاهو خواستار از سرگیری حملات به ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 23:02
 ---
 
