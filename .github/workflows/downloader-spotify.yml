@@ -56,6 +56,18 @@ on:
         description: 'Route downloads through WireGuard VPN (requires secret WG_CONFIG)'
         type: boolean
         default: false
+      # ─── NEW INPUTS ───────────────────────────────────
+      concurrent_downloads:
+        description: 'Number of URLs to download at the same time'
+        type: number
+        default: 4
+        required: false
+      retry_count:
+        description: 'How many times to retry a failed URL before falling back to SpotiFLAC'
+        type: number
+        default: 3
+        required: false
+      # ─── END NEW INPUTS ───────────────────────────────
 
 permissions:
   contents: write
@@ -93,7 +105,7 @@ jobs:
           spotiflac --version 2>/dev/null || echo "SpotiFLAC version unknown (installed successfully)"
           echo "::endgroup::"
 
-      # ────────────── VPN SETUP (same pattern as aio-leecher) ──────────────
+      # ────────────── VPN SETUP (unchanged) ──────────────
       - name: "Set up WireGuard VPN (if enabled)"
         id: vpn
         shell: bash
@@ -169,113 +181,119 @@ jobs:
             exit 1
           fi
 
-      # ────────────── PRIMARY: spotdl (with VPN fallback & file‑check) ──────────────
-      - name: Download with spotdl (primary)
+      # ══════════ PRIMARY DOWNLOAD WITH spotdl (parallel + retry) ══════════
+      - name: Download with spotdl (primary, parallel)
         if: steps.parse.outputs.HAS_URLS == 'true'
         id: spotdl_download
         shell: bash
         run: |
+          set -x   # ← FULL COMMAND TRACING
           FORMAT="${{ github.event.inputs.output_format }}"
           BITRATE="${{ github.event.inputs.audio_quality }}"
+          PARALLEL="${{ inputs.concurrent_downloads }}"
+          MAX_RETRIES="${{ inputs.retry_count }}"
+          VPN_AVAILABLE="${{ steps.vpn.outputs.vpn_available }}"
           FAILED="failed_urls_spotdl.txt"
           rm -f "$FAILED"
 
+          # Quality argument for spotdl
           case "$BITRATE" in
             LOSSLESS|HI_RES_LOSSLESS|DOLBY_ATMOS|HIGH|LOW)
-              BITRATE_ARG="disable"
-              ;;
+              BITRATE_ARG="disable" ;;
             320k|256k|192k|128k)
-              BITRATE_ARG="$BITRATE"
-              ;;
+              BITRATE_ARG="$BITRATE" ;;
             *)
-              BITRATE_ARG="128k"
-              ;;
+              BITRATE_ARG="128k" ;;
           esac
 
           OUTPUT_TEMPLATE="music/{title} - {artists}.{output-ext}"
-          VPN_AVAILABLE="${{ steps.vpn.outputs.vpn_available }}"
 
-          # fallback helper (same as aio-leecher)
-          run_with_fallback() {
-            desc="$1"
-            shift
-            if [ "$VPN_AVAILABLE" = "true" ]; then
-              echo "→ [VPN] $desc"
-              if "$@"; then
-                echo "✅ [VPN] succeeded."
-                return 0
-              else
-                echo "⚠️ [VPN] failed – falling back to direct connection..."
-                sudo wg-quick down wg0 2>/dev/null || true
-                echo "→ [Direct] $desc"
-                if "$@"; then
-                  echo "✅ [Direct] succeeded (VPN failed)."
-                  sudo wg-quick up wg0 2>/dev/null || true
-                  return 0
-                else
-                  echo "❌ [Direct] also failed."
-                  sudo wg-quick up wg0 2>/dev/null || true
-                  return 1
-                fi
-              fi
-            else
-              echo "→ $desc"
-              "$@"
-              return $?
-            fi
-          }
-
-          echo "::group::spotdl download config"
-          echo "Format      : $FORMAT"
-          echo "Bitrate     : $BITRATE_ARG"
-          echo "Output      : $OUTPUT_TEMPLATE"
-          echo "VPN         : $VPN_AVAILABLE"
+          echo "::group::Download configuration"
+          echo "Format          : $FORMAT"
+          echo "Bitrate arg     : $BITRATE_ARG"
+          echo "Parallel jobs   : $PARALLEL"
+          echo "Max retries     : $MAX_RETRIES"
+          echo "VPN available   : $VPN_AVAILABLE"
           echo "::endgroup::"
 
-          while IFS= read -r url; do
-            [ -z "$url" ] && continue
-            echo "::group::spotdl: $url"
+          # ---------- helper: retry a spotdl download for ONE URL ----------
+          download_with_retry() {
+            local url="$1"
+            local attempt=1
+            local success=0
 
-            # Count existing files before trying this URL
-            BEFORE_COUNT=$(find music -type f ! -name 'failed_downloads.txt' | wc -l)
+            while [ $attempt -le $MAX_RETRIES ]; do
+              echo "━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━"
+              echo "▶ spotdl attempt $attempt/$MAX_RETRIES for: $url"
+              echo "━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━"
 
-            if run_with_fallback "spotdl download $url" \
-              spotdl download "$url" \
-                --format "$FORMAT" \
-                --bitrate "$BITRATE_ARG" \
-                --output "$OUTPUT_TEMPLATE" \
-                --threads 4; then
+              BEFORE=$(find music -type f ! -name 'failed_downloads.txt' | wc -l)
 
-              # Check if any new file appeared
-              AFTER_COUNT=$(find music -type f ! -name 'failed_downloads.txt' | wc -l)
-              if [ "$AFTER_COUNT" -gt "$BEFORE_COUNT" ]; then
-                echo "✓ spotdl success (new files: $((AFTER_COUNT - BEFORE_COUNT)))"
+              # Try to download (with VPN fallback if enabled)
+              if [ "$VPN_AVAILABLE" = "true" ]; then
+                echo "→ [VPN] Downloading..."
+                spotdl download "$url" \
+                  --format "$FORMAT" \
+                  --bitrate "$BITRATE_ARG" \
+                  --output "$OUTPUT_TEMPLATE" \
+                  --threads 4 && DOWNLOAD_EXIT=0 || DOWNLOAD_EXIT=1
+                if [ $DOWNLOAD_EXIT -ne 0 ]; then
+                  echo "⚠️ VPN download failed – trying direct connection..."
+                  sudo wg-quick down wg0 2>/dev/null || true
+                  spotdl download "$url" \
+                    --format "$FORMAT" \
+                    --bitrate "$BITRATE_ARG" \
+                    --output "$OUTPUT_TEMPLATE" \
+                    --threads 4 && DOWNLOAD_EXIT=0 || DOWNLOAD_EXIT=1
+                  sudo wg-quick up wg0 2>/dev/null || true
+                fi
               else
-                echo "✗ spotdl reported success but no new files – queued for fallback"
-                echo "$url" >> "$FAILED"
+                spotdl download "$url" \
+                  --format "$FORMAT" \
+                  --bitrate "$BITRATE_ARG" \
+                  --output "$OUTPUT_TEMPLATE" \
+                  --threads 4 && DOWNLOAD_EXIT=0 || DOWNLOAD_EXIT=1
               fi
-            else
-              echo "✗ spotdl failed – queued for SpotiFLAC fallback"
-              echo "$url" >> "$FAILED"
-            fi
-            echo "::endgroup::"
-          done < spotify_urls.txt
+
+              AFTER=$(find music -type f ! -name 'failed_downloads.txt' | wc -l)
+              if [ $DOWNLOAD_EXIT -eq 0 ] && [ $AFTER -gt $BEFORE ]; then
+                echo "✅ spotdl succeeded on attempt $attempt (new files: $((AFTER - BEFORE)))"
+                return 0
+              else
+                echo "❌ Attempt $attempt failed (exit code: $DOWNLOAD_EXIT, files before=$BEFORE after=$AFTER)"
+                attempt=$((attempt + 1))
+              fi
+            done
+
+            echo "::warning::spotdl failed after $MAX_RETRIES attempts for: $url"
+            echo "$url" >> "$FAILED"
+            return 1
+          }
+
+          export -f download_with_retry
+          export FORMAT BITRATE_ARG OUTPUT_TEMPLATE VPN_AVAILABLE MAX_RETRIES FAILED
+
+          # Run downloads in parallel using xargs
+          echo "→ Starting parallel downloads (max $PARALLEL concurrent)"
+          cat spotify_urls.txt | xargs -P "$PARALLEL" -I '{}' bash -c 'download_with_retry "{}"'
 
           echo "::group::spotdl summary"
           ls -lhR music/ 2>/dev/null || echo "No files yet"
           if [ -f "$FAILED" ]; then
-            echo "::warning::Some URLs failed with spotdl (see below)"
+            echo "::warning::URLs that failed spotdl:"
             cat "$FAILED"
           else
             echo "All spotdl downloads succeeded."
           fi
           echo "::endgroup::"
+          set +x
 
-      # ────────────── FALLBACK: SpotiFLAC (same VPN + file‑check) ──────────────
-      - name: Download with SpotiFLAC (fallback)
+      # ══════════ FALLBACK: SpotiFLAC (parallel + retry) ══════════
+      - name: Download with SpotiFLAC (fallback, parallel)
         if: steps.parse.outputs.HAS_URLS == 'true'
         shell: bash
         run: |
+          set -x
           FALLBACK_FILE="failed_urls_spotdl.txt"
           if [ ! -f "$FALLBACK_FILE" ] || [ ! -s "$FALLBACK_FILE" ]; then
             echo "No fallback needed – all URLs succeeded with spotdl."
@@ -283,82 +301,91 @@ jobs:
           fi
 
           QUALITY="${{ github.event.inputs.audio_quality }}"
+          PARALLEL="${{ inputs.concurrent_downloads }}"
+          MAX_RETRIES="${{ inputs.retry_count }}"
           VPN_AVAILABLE="${{ steps.vpn.outputs.vpn_available }}"
 
-          run_with_fallback() {
-            desc="$1"
-            shift
-            if [ "$VPN_AVAILABLE" = "true" ]; then
-              echo "→ [VPN] $desc"
-              if "$@"; then
-                echo "✅ [VPN] succeeded."
-                return 0
-              else
-                echo "⚠️ [VPN] failed – falling back to direct connection..."
-                sudo wg-quick down wg0 2>/dev/null || true
-                echo "→ [Direct] $desc"
-                if "$@"; then
-                  echo "✅ [Direct] succeeded (VPN failed)."
-                  sudo wg-quick up wg0 2>/dev/null || true
-                  return 0
-                else
-                  echo "❌ [Direct] also failed."
-                  sudo wg-quick up wg0 2>/dev/null || true
-                  return 1
-                fi
-              fi
-            else
-              echo "→ $desc"
-              "$@"
-              return $?
-            fi
-          }
-
-          echo "::group::SpotiFLAC fallback"
-          echo "Quality: $QUALITY"
-          echo "VPN   : $VPN_AVAILABLE"
-          echo "URLs to retry:"
+          echo "::group::SpotiFLAC fallback configuration"
+          echo "Quality        : $QUALITY"
+          echo "Parallel jobs  : $PARALLEL"
+          echo "Max retries    : $MAX_RETRIES"
+          echo "VPN available  : $VPN_AVAILABLE"
+          echo "URLs to retry  :"
           cat "$FALLBACK_FILE"
           echo "::endgroup::"
 
           FINAL_FAILED="failed_urls_spotiflac.txt"
           rm -f "$FINAL_FAILED"
 
-          while IFS= read -r url; do
-            [ -z "$url" ] && continue
-            echo "::group::SpotiFLAC: $url"
+          # ---------- helper: retry SpotiFLAC for ONE URL ----------
+          spotiflac_with_retry() {
+            local url="$1"
+            local attempt=1
 
-            BEFORE_COUNT=$(find music -type f ! -name 'failed_downloads.txt' | wc -l)
+            while [ $attempt -le $MAX_RETRIES ]; do
+              echo "━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━"
+              echo "▶ SpotiFLAC attempt $attempt/$MAX_RETRIES for: $url"
+              echo "━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━"
 
-            if run_with_fallback "SpotiFLAC download $url" \
-              spotiflac "$url" music \
-                --service tidal qobuz deezer amazon \
-                --quality "$QUALITY" \
-                --use-album-subfolders \
-                --use-artist-subfolders \
-                --filename-format "{artist} - {title}"; then
+              BEFORE=$(find music -type f ! -name 'failed_downloads.txt' | wc -l)
 
-              AFTER_COUNT=$(find music -type f ! -name 'failed_downloads.txt' | wc -l)
-              if [ "$AFTER_COUNT" -gt "$BEFORE_COUNT" ]; then
-                echo "✓ SpotiFLAC fallback success"
+              if [ "$VPN_AVAILABLE" = "true" ]; then
+                echo "→ [VPN] Downloading with SpotiFLAC..."
+                spotiflac "$url" music \
+                  --service tidal qobuz deezer amazon \
+                  --quality "$QUALITY" \
+                  --use-album-subfolders \
+                  --use-artist-subfolders \
+                  --filename-format "{artist} - {title}" && FLAC_EXIT=0 || FLAC_EXIT=1
+                if [ $FLAC_EXIT -ne 0 ]; then
+                  echo "⚠️ VPN SpotiFLAC failed – trying direct..."
+                  sudo wg-quick down wg0 2>/dev/null || true
+                  spotiflac "$url" music \
+                    --service tidal qobuz deezer amazon \
+                    --quality "$QUALITY" \
+                    --use-album-subfolders \
+                    --use-artist-subfolders \
+                    --filename-format "{artist} - {title}" && FLAC_EXIT=0 || FLAC_EXIT=1
+                  sudo wg-quick up wg0 2>/dev/null || true
+                fi
               else
-                echo "✗ SpotiFLAC reported success but no new files – final failure"
-                echo "$url" >> "$FINAL_FAILED"
+                spotiflac "$url" music \
+                  --service tidal qobuz deezer amazon \
+                  --quality "$QUALITY" \
+                  --use-album-subfolders \
+                  --use-artist-subfolders \
+                  --filename-format "{artist} - {title}" && FLAC_EXIT=0 || FLAC_EXIT=1
               fi
-            else
-              echo "✗ SpotiFLAC also failed"
-              echo "$url" >> "$FINAL_FAILED"
-            fi
-            echo "::endgroup::"
-          done < "$FALLBACK_FILE"
+
+              AFTER=$(find music -type f ! -name 'failed_downloads.txt' | wc -l)
+              if [ $FLAC_EXIT -eq 0 ] && [ $AFTER -gt $BEFORE ]; then
+                echo "✅ SpotiFLAC succeeded on attempt $attempt"
+                return 0
+              else
+                echo "❌ Attempt $attempt failed (exit: $FLAC_EXIT, files before=$BEFORE after=$AFTER)"
+                attempt=$((attempt + 1))
+              fi
+            done
+
+            echo "::warning::SpotiFLAC failed after $MAX_RETRIES attempts for: $url"
+            echo "$url" >> "$FINAL_FAILED"
+            return 1
+          }
+
+          export -f spotiflac_with_retry
+          export QUALITY VPN_AVAILABLE MAX_RETRIES FINAL_FAILED
+
+          echo "→ Starting parallel fallback downloads (max $PARALLEL concurrent)"
+          cat "$FALLBACK_FILE" | xargs -P "$PARALLEL" -I '{}' bash -c 'spotiflac_with_retry "{}"'
 
           if [ -f "$FINAL_FAILED" ] && [ -s "$FINAL_FAILED" ]; then
             echo "::warning::Some URLs failed even with SpotiFLAC"
             cat "$FINAL_FAILED"
             cp "$FINAL_FAILED" music/failed_downloads.txt
           fi
+          set +x
 
-      # ────────────── Audio conversion (unchanged) ──────────────
+      # ────────────── Audio conversion (unchanged, just add set -x if desired) ──────────────
       - name: Convert Audio Format (if needed)
         if: steps.parse.outputs.HAS_URLS == 'true'
         shell: bash
@@ -373,7 +400,6 @@ jobs:
 
           echo "::group::Converting to $TARGET_FMT ($BITRATE)"
           find music -type f \( -iname "*.flac" -o -iname "*.m4a" -o -iname "*.mp3" -o -iname "*.ogg" -o -iname "*.opus" -o -iname "*.wav" \) | while read -r f; do
-            # --- Skip if already in the target format ---
             ext="${f##*.}"
             if [ "${ext,,}" = "${TARGET_FMT,,}" ]; then
               echo "Skipping (already $TARGET_FMT): $f"
