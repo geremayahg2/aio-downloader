@@ -7,6 +7,266 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 20:03
+---
+
+## VahidOOnLine — post 242793
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242793_1780072396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، نوشت که تا این لحظه تفاهم نهایی بین جمهوری اسلامی و آمریکا صورت نگرفته و پست ترامپ در تروث سوشال در چارچوب الگوی همیشگی آن در اعلام نظرهای یکسویه و خود بزرگ‌بینانه است.
+
+تسنیم افزود: «اصرار ترامپ مبنی بر عدم پرداخت پول‌های بلوکه شده، صرفا سوءظن تهران نسبت به جدیت آمریکا را تشدید می‌کند.»
+
+رسانه سپاه نوشت که اظهارات دونالد ترامپ درباره برداشتن محاصره دریایی ایران را باید با تردید نگریست و البته اگر واقعا در عمل انجام شود، تازه به منزله توقف یکی از موارد نقض آتش‌بس است؛ زیرا از ابتدا نباید محاصره‌ای صورت می‌گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- جمعه ۸ خرداد:
+
+🔹از کاشان: واقعا وضعیت افتضاحه، اصلا نمی‌شه زندگی کرد، مدام منتظر یک اتفاقیم که این وضعیت تموم شه؛ داره بهترین سال‌های عمرمون این‌جوری می‌گذره، خیلی سخته.
+
+🔹هنوز که هنوزه واسه جاویدنامان اشک می‌ریزیم. وقتی خودم رو جای خانواده‌های این عزیزان می‌ذارم قلبم به درد میاد. نباید این خون‌ها پایمال بشه.
+
+🔹از لار پیام می‌دم، زندگی خیلی سخت شده، حقوق‌های کارمندها رو سر ماه نمی‌دن و همه چیز بیش از اندازه گرون شده.
+
+🔹چرا ما دهه‌ نودی‌ها باید در گرانی و آرزو به دل ماندن زندگی کنیم؟
+
+🔹از اول هم قرار نبود که آمریکا و اسرائیل رژیم رو برای ما تغییر بدن. این کار خودمونه. بازم هم دستشون درد نکنه. کی ما می‌تونستیم این همه مهره‌ کلیدی رو از سر راه انقلابمون برداریم. نیمه‌ی پر لیوان رو ببینید. کسی برای حکومت نمونده جز سروصدای چند ارزشی.
+
+🔹گفتن جریمه اقساط رو می‌بخشیم ولی الان دارن با چند برابر سود دیرکرد اقساط می‌گیرن.
+
+🔹برای یک شانه تخم‌مرغ باید یک روز کار کنی.
+
+🔹خریدهای عادی ماهانه هر دفعه گران‌تر از قبل می‌شه، نمی‌دونم دیگه تا کی می‌شه ادامه داد، اعتراض کنی می‌کشنت، سکوت کنی هم کم‌کم دیگه هیچی برای خوردن نداری.
+
+🔹من یک تئاتری‌ام. شرایط بچه‌های تئاتر خوب نیست. خیلی‌ها خرج بچه و اجاره خانه دارن. تا هر اتفاقی افتاد کرکره تئاتر رو کشیدن پایین. تنها شغلی هستیم در ایران که اتفاقا اصلا شغل محسوب نمی‌شیم. اگر کار نکنم هیچ‌کس نمیاد بگه کجایی. ۴۷ ساله که دیواری کوتاه‌تر از ما نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش جای ترامپ دو تا بی بی داشتیم البته همون یدونشم کارو در میاره .این کله زرد به خاطر پول زرد میکنه اخرش
+</div>
+
+## WithYashar — post 12881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش جای ترامپ دو تا بی بی داشتیم البته همون یدونشم کارو در میاره .این کله زرد به خاطر پول زرد میکنه اخرش
+</div>
+
+## WithYashar — post 12880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب دیگه عمو یاشار با پای پیاده میریم نه با ترامپ
+</div>
+
+## WithYashar — post 12879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب دیگه عمو یاشار با پای پیاده میریم نه با ترامپ
+</div>
+
+## WithYashar — post 12878
+
+
+
+
+## DEJradio — post 5105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تهران بیش از پیش در تهدیدهای تروریستی در دانمارک دست دارد
+
+سازمان اطلاعاتی دانمارک اعلام کرد جمهوری اسلامی نقشی پررنگ‌تر از پیش در تهدیدهای امنیتی و تروریستی علیه این کشور ایفا می‌کند.
+رئیس سازمان امنیت و اطلاعات ملی دانمارک گفت این تهدیدها به‌ویژه متوجه منافع اسرائیلی و یهودی و همچنین مخالفان ایرانی ساکن اروپا، از جمله در دانمارک است.
+به گزارش این نهاد امنیتی، سرویس‌های اطلاعاتی جمهوری اسلامی برای برنامه‌ریزی عملیات از شبکه‌های بزهکار و جذب نیرو در اروپا استفاده می‌کنند.
+دانمارک همچنین گفت تشدید تنش میان جمهوری اسلامی، اسرائیل و آمریکا در ماه‌های پیشین، بر میزان تهدید در کشورهای شمال و غرب اروپا تاثیر گذاشت.
+
+#خبر #دژ #تروریسم
+@DEJradio
+</div>
+
+## IranIntlTV — post 339615
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339615_1780072397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حمله شبانه روسیه به اوکراین، یک پهپاد به ساختمانی در جنوب‌شرقی رومانی برخورد کرد و دو نفر زخمی شدند. رییس کمیسیون اروپا با اعلام همبستگی با رومانی گفت روسیه بار دیگر از خط قرمز عبور کرده است.
+
+گزارش لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339614
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339614_1780072398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، نوشت که تا این لحظه تفاهم نهایی بین جمهوری اسلامی و آمریکا صورت نگرفته و پست ترامپ در تروث سوشال در چارچوب الگوی همیشگی آن در اعلام نظرهای یکسویه و خود بزرگ‌بینانه است.
+
+تسنیم افزود: «اصرار ترامپ مبنی بر عدم پرداخت پول‌های بلوکه شده، صرفا سوءظن تهران نسبت به جدیت آمریکا را تشدید می‌کند.»
+
+رسانه سپاه نوشت که اظهارات دونالد ترامپ درباره برداشتن محاصره دریایی ایران را باید با تردید نگریست و البته اگر واقعا در عمل انجام شود، تازه به منزله توقف یکی از موارد نقض آتش‌بس است؛ زیرا از ابتدا نباید محاصره‌ای صورت می‌گرفت.
+https://iranintl.com/202605291710
+</div>
+
+## IranIntlTV — post 339613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- جمعه ۸ خرداد:
+
+🔹از کاشان: واقعا وضعیت افتضاحه، اصلا نمی‌شه زندگی کرد، مدام منتظر یک اتفاقیم که این وضعیت تموم شه؛ داره بهترین سال‌های عمرمون این‌جوری می‌گذره، خیلی سخته.
+
+🔹هنوز که هنوزه واسه جاویدنامان اشک می‌ریزیم. وقتی خودم رو جای خانواده‌های این عزیزان می‌ذارم قلبم به درد میاد. نباید این خون‌ها پایمال بشه.
+
+🔹از لار پیام می‌دم، زندگی خیلی سخت شده، حقوق‌های کارمندها رو سر ماه نمی‌دن و همه چیز بیش از اندازه گرون شده.
+
+🔹چرا ما دهه‌ نودی‌ها باید در گرانی و آرزو به دل ماندن زندگی کنیم؟
+
+🔹از اول هم قرار نبود که آمریکا و اسرائیل رژیم رو برای ما تغییر بدن. این کار خودمونه. بازم هم دستشون درد نکنه. کی ما می‌تونستیم این همه مهره‌ کلیدی رو از سر راه انقلابمون برداریم. نیمه‌ی پر لیوان رو ببینید. کسی برای حکومت نمونده جز سروصدای چند ارزشی.
+
+🔹گفتن جریمه اقساط رو می‌بخشیم ولی الان دارن با چند برابر سود دیرکرد اقساط می‌گیرن.
+
+🔹برای یک شانه تخم‌مرغ باید یک روز کار کنی.
+
+🔹خریدهای عادی ماهانه هر دفعه گران‌تر از قبل می‌شه، نمی‌دونم دیگه تا کی می‌شه ادامه داد، اعتراض کنی می‌کشنت، سکوت کنی هم کم‌کم دیگه هیچی برای خوردن نداری.
+
+🔹من یک تئاتری‌ام. شرایط بچه‌های تئاتر خوب نیست. خیلی‌ها خرج بچه و اجاره خانه دارن. تا هر اتفاقی افتاد کرکره تئاتر رو کشیدن پایین. تنها شغلی هستیم در ایران که اتفاقا اصلا شغل محسوب نمی‌شیم. اگر کار نکنم هیچ‌کس نمیاد بگه کجایی. ۴۷ ساله که دیواری کوتاه‌تر از ما نیست.
+</div>
+
+## Shin_Persian — post 6305
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6305_1780072399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet: Shin ✓ @hey_itsmyturn Fri, 29 May 2026 16:27:26 UTC IRGC-owned Tasnim News: "No final agreement has been reached between Iran and the United States at this time. According to Tasnim News Agency’s reporter, no final agreement has…
+</div>
+
+## Shin_Persian — post 6304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 16:27:26 UTC
+
+IRGC-owned Tasnim News:
+
+"No final agreement has been reached between Iran and the United States at this time.
+
+According to Tasnim News Agency’s reporter, no final agreement has been concluded between Iran and the United States so far. President Trump's tweet aligns with his consistent pattern of unilateral and self-aggrandizing pronouncements.
+
+Donald Trump's statements concerning the lifting of the naval blockade on Iran, emanating from the head of the terrorist U.S. administration, should be viewed with skepticism. Should such an action materialize, it would merely signify the cessation of one of numerous ceasefire violations, given that such a blockade should never have been initiated.
+
+Furthermore, Trump's assertions and those of American media outlets regarding the nuclear issue are unfounded, as no detailed discussions on nuclear matters are currently taking place in this area.
+
+The U.S. President's insistence on not releasing Iran's blocked funds solely intensifies Iran's suspicion regarding the seriousness of the United States.
+
+The Islamic Republic of Iran has repeatedly emphasized that the status of its blocked assets must be clarified prior to any preliminary agreement."
+
+فارسی
+
+خبرگزاری تسنیم وابسته به سپاه پاسداران انقلاب اسلامی (IRGC):
+
+«تا این لحظه هیچ توافق نهایی میان ایران و ایالات متحده حاصل نشده است.
+
+به گزارش خبرنگار خبرگزاری تسنیم، تاکنون هیچ توافق نهایی بین ایران و ایالات متحده منعقد نشده است. توئیت پرزیدنت ترامپ با الگوی همیشگی او در اظهارات یک‌جانبه و خودبزرگ‌بینانه مطابقت دارد.
+
+اظهارات دونالد ترامپ در خصوص رفع محاصره دریایی ایران که از سوی رئیس دولت تروریست آمریکا مطرح شده، باید با تردید نگریسته شود. در صورت تحقق چنین اقدامی، این تنها به معنای توقف یکی از موارد متعدد نقض آتش‌بس خواهد بود، چرا که چنین محاصره‌ای اساساً نباید هرگز آغاز می‌شد.
+
+علاوه بر این، ادعاهای ترامپ و رسانه‌های آمریکایی در مورد موضوع هسته‌ای بی‌اساس است، زیرا در حال حاضر هیچ بحث مفصلی در مورد مسائل هسته‌ای در این زمینه در جریان نیست.
+
+اصرار رئیس‌جمهور آمریکا بر عدم آزادسازی اموال بلوکه شده ایران، صرفاً سوءظن ایران را نسبت به جدیت ایالات متحده تشدید می‌کند.
+
+جمهوری اسلامی ایران بارها تأکید کرده است که وضعیت دارایی‌های بلوکه شده‌اش باید پیش از هرگونه توافق مقدماتی روشن شود.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6303
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6303_1780072399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 29 May 2026 14:55:22 UTC President Trump @POTUS: "Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in…
+</div>
+
+## Shin_Persian — post 6302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 14:55:22 UTC
+
+President Trump @POTUS:
+"Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in both directions. All water mines (bombs), if any, will be terminated (we have removed, through
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«ایران باید موافقت کند که هرگز سلاح هسته‌ای یا بمب نخواهد داشت. تنگه هرمز باید فوراً برای تردد نامحدود کشتی‌رانی در هر دو جهت، بدون هیچ‌گونه حق‌العبوری، باز شود. تمام مین‌های دریایی (بمب‌ها)، در صورت وجود، نابود خواهند شد (ما حذف کرده‌ایم، از طریق
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وخامت وضعیت جسمی و مشکلات قلبی زرتشت احمدی راغب فعال مدنی در زندان مرکزی کرج
+</div>
+
+## Persian_Trend_Official — post 15259
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15259_1780072400.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت نفت برنت، هم اکنون:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 123535
+
+<div align="center">
+  <a href="telegram/content/alonews_123535_1780072401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین، رئیس جمهور روسیه : ما باید سیستم دفاع هوایی رو تقویت کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 19:53
 ---
 
