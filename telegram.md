@@ -7,6 +7,143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 18:13
+---
+
+## VahidOOnLine — post 242774
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242774_1780065803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدمهدی حسینی همدانی، امام جمعه کرج گفت: «موشک فقط وسیله دفاعی نیست بلکه مقدمه آبادانی، ایجاد امنیت و سازندگی است و این مهم را مردم فهمیده‌اند که اول باید دشمن را از بین برد تا مقدمات کار فراهم شود.»
+
+او افزود: «داشتن مواد هسته‌ای بازدارندگی دارد و لازم نیست تبدیل به بمب شود و همین سوخت هسته‌ای سبب‌شده دشمنان پای مذاکره بنشینند.»
+
+او ادامه داد: «ما نباید انقلابی‌گری را به عنوان افراطی‌گری نفی کنیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12860
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12860_1780065805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوش‌چشم تحلیلگر ارشد صدا و سیما: دوران بمب اتم دیگه گذشته الان با عملیات میکروبی و بیولوژیک میشه حمله کنیم و بعدش نگیم که ما بودیم
+@withyashar
+</div>
+
+## IranIntlTV — post 339594
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339594_1780065807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای جمعه ۸ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339593
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339593_1780065809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدمهدی حسینی همدانی، امام جمعه کرج گفت: «موشک فقط وسیله دفاعی نیست بلکه مقدمه آبادانی، ایجاد امنیت و سازندگی است و این مهم را مردم فهمیده‌اند که اول باید دشمن را از بین برد تا مقدمات کار فراهم شود.»
+
+او افزود: «داشتن مواد هسته‌ای بازدارندگی دارد و لازم نیست تبدیل به بمب شود و همین سوخت هسته‌ای سبب‌شده دشمنان پای مذاکره بنشینند.»
+
+او ادامه داد: «ما نباید انقلابی‌گری را به عنوان افراطی‌گری نفی کنیم.»
+https://iranintl.com/202605299509
+</div>
+
+## FarsiVOA — post 218984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، از دیدار با آدول بونتامچاروئن، وزیر دفاع تایلند، خبر داد.
+
+او گفت دو طرف در حال تدوین یک بیانیه مشترک جدید تا پایان سال هستند و همکاری‌های صنعتی دفاعی میان آمریکا و تایلند را بررسی می‌کنند.
+
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تو لاهیجان یه هنرستان دخترانه هست به اسم شیخ فضل الله نوری. بابا اون اصلا مخالف تحصیل دخترا بود بعد اسمشو گذاشتین رو مدرسه دخترونه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390480
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390480_1780065810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درحالیکه ممد اسحاق‌دار وزیر خارجه پاکستان خایه‌مال رفته واشنگتن تا امروز با عمو مارک‌روبیو دیدار کنه و ‌خایه‌های آمریکا رو در خصوص تفاهم با روافض بماله،
+
+ممدباقر چاقال لحظاتی پیش در توئیتی چنان گه‌ اضافی خورده سه قاشقه که همچنان نشون از بگا رفتنشون می‌ده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آتش بسی که نقض نشده رو میشه نقض کرد
+ولی آتش بسی که خودشو زده به نقض نشدنو نه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390475
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390475_1780065811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عادیسازای حکومتی این شکلین
+
+ورداشتن آهنگ "مهدی رسولی"(مداح) ریمیکس کردن (تو رستم تهمتنی، بزن که خوب میزنی) باهاش قر میدن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123512
+
+<div align="center">
+  <a href="telegram/content/alonews_123512_1780065813.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیت هگست به پرسنل نیروی دریایی مستقر در ناو یو‌اس‌اس باکسر: رئیس‌جمهور ترامپ گفت «ایران یا باید به روش درست عمل کند — با توافقی روی میز — یا باید با مرد من در سمت چپ سر و کار داشته باشد.»
+
+
+🔴آن مرد من بودم.
+
+
+🔴اما من نیستم.
+
+
+🔴شما هستید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 18:03
 ---
 
