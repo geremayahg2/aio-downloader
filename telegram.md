@@ -7,6 +7,181 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 17:52
+---
+
+## VahidOOnLine — post 242762
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242762_1780064572.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در سیاست بین‌الملل، کشورها بیش از آنکه بر پایه دوستی، همدلی یا شعارهای اخلاقی تصمیم بگیرند، بر اساس منافع ملی خود عمل می‌کنند. قدرت‌های بزرگ ممکن است از آزادی، امنیت، حقوق بشر یا نظم جهانی سخن بگویند، اما در لحظه تصمیم، محاسبه اصلی این است که چه چیزی به سود آن‌هاست.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️فاکس نیوز به نقل از وزیر جنگ آمریکا: ایران دو گزینه دارد: یا از طریق مذاکره برنامه هسته ای خود را کنار بگذارد یا از طریق نیروهای ما
+@withyashar
+</div>
+
+## VahidOnline — post 75788
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75788_1780064573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو با شرح عبور موشک‌های تاماهاک در مرز عراق و ایران در شبکه‌های اجتماعی و چند رسانه منتشر شده و گفته می‌شود مربوط به روزهای نخست جنگ است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75787
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75787_1780064574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا، روز پنجشنبه هفتم خرداد ماه اعلام کرد عمان پس از دریافت هشدار واشنگتن درباره پیامدهای احتمالی مشارکت در طرح دریافت عوارض از کشتی‌های عبوری از تنگه هرمز، به آمریکا اطمینان داده است که برنامه‌ای برای اجرای چنین طرحی ندارد.
+بسنت روز پنجشنبه در نشست خبری کاخ سفید گفت که صبح همان روز با سفیر عمان گفتگو کرده و از او شنیده است که مسقط هیچ برنامه‌ای برای دریافت عوارض در تنگه هرمز ندارد.
+او افزود: «به او گفتم این موضوع از اساس غیرقابل قبول است و او نیز نمی‌خواهد افراد عمانی یا موسسات مالی عمانی را در معرض خطر تحریم قرار دهد.»
+بسنت ساعاتی پیش‌تر در پیامی در شبکه اجتماعی ایکس هشدار داده بود که وزارت خزانه‌داری آمریکا هر فرد یا نهادی را که به‌صورت مستقیم یا غیرمستقیم در تسهیل دریافت عوارض در تنگه هرمز نقش داشته باشد، هدف تحریم قرار خواهد داد. او تصریح کرده بود که هر شریک احتمالی این طرح نیز با مجازات و تحریم روبه‌رو خواهد شد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75786
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75786_1780064574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه به نقل از منابع آگاه گزارش داد جمهوری اسلامی می‌خواهد اورانیوم غنی‌سازی‌شده خود را به چین منتقل کند، مشروط بر آن‌که چین تضمین دهد این مواد را به آمریکا تحویل نخواهد داد.
+
+به گفته این منابع، بسیاری از نکات مرتبط با برنامه هسته‌ای جمهوری اسلامی در مذاکرات جاری حل‌وفصل شده است.
+
+بر اساس این گزارش، جمهوری اسلامی با نظارت بین‌المللی بر تاسیسات هسته‌ای خود برای جلوگیری از تعطیل‌شدن آن‌ها موافقت کرده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339591
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339591_1780064574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس صداوسیما گفت دوران بمب اتم سپری شده و اکنون می‌توان با عملیات میکروبی و بیولوژیک حملاتی انجام داد بدون آنکه مسئولیت آن پذیرفته شود. او همچنین با اشاره به امکان استفاده از «بمب چرک» تاکید کرد با توجه به احتمال رسیدن شرایط به مرحله رویارویی هسته‌ای، انجام اقدامات پیشگیرانه ضروری است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339590
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339590_1780064576.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در جریان بازدید از نیروهای آمریکایی مستقر در ناو یواس‌اس باکسر در سنگاپور، با استناد به سخنان دونالد ترامپ در نشست روز چهارشنبه کابینه، به نیروها گفت اگر جمهوری اسلامی توافق پیشنهادی را نپذیرد، با نیروهای نظامی آمریکا روبه‌رو خواهد شد. هگست گفت ترامپ در نشست کابینه اعلام کرده ایران باید توافق روی میز را بپذیرد وگرنه با «مردی در سمت چپ» او روبه‌رو می‌شود، و این جمله را خطاب به نیروهای حاضر تکرار کرد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339589
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339589_1780064577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هانیه شه‌پری دونده ۱۹ ساله اهل ایذه خوزستان در مسابقات دوومیدانی قهرمانی جوانان آسیا در هنگ‌کنگ، مدال نقره ماده ۳۰۰۰ متر بامانع را کسب کرد.
+
+🔹ملی‌پوش ایران با ثبت زمان ۱۰:۲۶.۳۴ دقیقه ضمن کسب عنوان نایب‌قهرمانی، رکورد ملی بزرگسالان این ماده را نیز شکست. رکورد پیشین با زمان ۱۰:۲۹.۲۴ دقیقه در اختیار خود او بود.
+
+@iranintltvsport
+</div>
+
+## ManotoTV — post 105869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در سیاست بین‌الملل، کشورها بیش از آنکه بر پایه دوستی، همدلی یا شعارهای اخلاقی تصمیم بگیرند، بر اساس منافع ملی خود عمل می‌کنند. قدرت‌های بزرگ ممکن است از آزادی، امنیت، حقوق بشر یا نظم جهانی سخن بگویند، اما در لحظه تصمیم، محاسبه اصلی این است که چه چیزی به سود آن‌هاست.
+</div>
+
+## FarsiVOA — post 218983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیران خارجه آمریکا و پاکستان در واشنگتن دیدار می‌کنند؛ تمرکز بر مذاکرات و تلاش برای دستیابی به توافق
+
+▪️اسحاق دار، وزیر امور خارجه پاکستان، روز جمعه ۸ خرداد برای دیدار با مارکو روبیو، وزیر امور خارجه ایالات متحده، وارد واشنگتن شد. پیش‌بینی می‌شود تازه‌ترین تحولات در مذاکرات برای پایان دادن به تنش بین آمریکا و جمهوری اسلامی از محورهای اصلی گفت‌و‌گوها باشد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-us-rubio-pakistan-negotiations/8155268.html
+</div>
+
+## IranianMinds — post 21017
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21017_1780064577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این حرومیو
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه العربیه به نقل از منابع آگاه:
+
+ایران می‌خواهد اورانیوم غنی‌شده را به چین منتقل کند، مشروط بر آن‌که چین تضمین دهد که این مواد را به آمریکا تحویل ندهد.
+
+@IranianMinds
+</div>
+
+## manototv — post 105869
+
+<div align="center">
+  <a href="telegram/content/manototv_105869_1780064578.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در سیاست بین‌الملل، کشورها بیش از آنکه بر پایه دوستی، همدلی یا شعارهای اخلاقی تصمیم بگیرند، بر اساس منافع ملی خود عمل می‌کنند. قدرت‌های بزرگ ممکن است از آزادی، امنیت، حقوق بشر یا نظم جهانی سخن بگویند، اما در لحظه تصمیم، محاسبه اصلی این است که چه چیزی به سود آن‌هاست.
+</div>
+
+## alonews — post 123510
+
+<div align="center">
+  <a href="telegram/content/alonews_123510_1780064579.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هشدار ورود موج گرمای شدید؛ دمای در برخی نقاط کشور به ۵۰ درجه می‌رسد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123509
+
+<div align="center">
+  <a href="telegram/content/alonews_123509_1780064579.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز به نقل از وزیر جنگ آمریکا: ایران دو گزینه دارد: یا از طریق مذاکره برنامه هسته ای خود را کنار بگذارد یا از طریق نیروهای ما
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 17:42
 ---
 
