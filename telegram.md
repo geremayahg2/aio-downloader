@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 04:22
+---
+
+## VahidOOnLine — post 242688
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242688_1780015951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای سردبیری وال‌استریت‌ژورنال در مطلبی نوشت مذاکره‌کنندگان آمریکایی بیش از هر زمان دیگری مطمئن هستند که به توافق اولیه با جمهوری اسلامی نزدیک شده‌اند؛ توافقی که مزیت اصلی آن، وعده بازگشایی تنگه هرمز است.
+این مطلب ساختار دومرحله‌ای توافق را بزرگ‌ترین خطر آن دانست و نوشت بدون محاصره آمریکا در جریان مذاکرات هسته‌ای، گرفتن امتیاز از ایران دشوارتر می‌شود؛ زیرا تهران ممکن است مهلت ۶۰ روزه ترامپ را مانند مذاکرات اوباما کش بدهد.
+وال‌استریت‌ژورنال نوشت پایان محاصره‌های متقابل می‌تواند به اقتصاد جهانی و به‌ویژه اقتصاد ایران کمک کند، اما «پیروزی» محسوب نمی‌شود. به نوشته این روزنامه، توافق خوب باید همه اورانیوم غنی‌شده، سایت‌های زیرزمینی، بازرسی‌های سخت‌گیرانه و ممنوعیت غنی‌سازی را در بر بگیرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342380
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342380_1780015952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+KELLYANNE CONWAY: "I hold Jill Biden most responsible and here's why: She let her ego and her thirst for power and fame to overtake the love and protection of her husband." https://twitter.com/IngrahamAngle/status/2060148754733240589#m
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 04:12
 ---
 
