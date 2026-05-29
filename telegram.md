@@ -7,6 +7,52 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 05:22
+---
+
+## VahidOOnLine — post 242690
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242690_1780019561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدرضا جمشیدی، دبیرکل کانون بانک‌ها و موسسات اعتباری خصوصی، درباره کمبود نقدینگی و اسکناس در برخی دستگاه‌های خودپرداز گفت: یکی از علل اصلی کمبود اسکناس و حتی سکه در مقطع اخیر، به اختلالات و تأخیر‌های به وجود آمده در برقراری ارتباط بانکی دستگاه‌های الکترونیکی بازمی‌گردد. حکومت ایران اینترنت را ۸۸ روز قطع کرد که پیامدهای شدیدی برای بخش‌های مختلف اقتصاد به همراه داشت. جمشیدی همچنین به افزایش تلاش مردم برای ذخیره کردن پول نقد اشاره کرد. تلاشی که به دلیل عدم اطمینان مردم به حاکمیت است. جمشیدی با اشاره به چالش‌های چاپ اسکناس تصریح کرد: چاپ اسکناس برای دولت هزینه سنگینی دارد؛ به‌طوری که هزینه چاپ برخی اسکناس‌های کوچک تقریبا با ارزش خود آن اسکناس برابری می‌کند. به همین دلیل بانک مرکزی بیشتر بر چاپ و توزیع اسکناس‌های درشت تمرکز کرده و این عامل هم به کمبود اسکناس در عابربانک‌ها دامن زده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342384
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342384_1780019562.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A dog in trouble was rescued from a pond at a Colorado golf course after becoming trapped with no way out.
+
+Westminster Animal Management responded to the scene after the dog, Luna, was spotted stuck in the pond.
+
+The officer carefully pulled the dog to safety before Luna was evaluated and reunited with her family.
+</div>
+
+## FoxNewsTwitter — post 342383
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342383_1780019564.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Dallas officials confirm three people — including two women and one child — were killed after a massive explosion and fire tore through an apartment building in the city’s Oak Cliff neighborhood.
+
+Dallas Fire-Rescue says three additional victims were transported to hospitals, including one person in critical but stable condition.
+
+The incident was initially reported as a gas leak before escalating into a five-alarm fire.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 05:12
 ---
 
