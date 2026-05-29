@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 15:32
+---
+
+## FoxNewsTwitter — post 342395
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342395_1780056177.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: JPMorgan Chase CEO Jamie Dimon delivers a powerful tribute to American exceptionalism on @MorningsMaria:
+
+“America is still the beacon of light, and the hill is still the arsenal of democracy, the bastion of freedom.”
+
+“I’m quite patriotic in that, and that this country provides safety to the whole world.”
+
+“We have the strongest military in the world, underpinned by the strongest economy in the world.”
+
+@MariaBartiromo
+</div>
+
+## IranIntlTV — post 339565
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339565_1780056179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، جمعه هشتم خرداد در جریان بازدید از نیروهای آمریکایی مستقر در ناو یواس‌اس باکسر در سنگاپور، با اشاره به سخنان دونالد ترامپ، رییس‌جمهوری آمریکا، گفت اگر جمهوری اسلامی توافق را نپذیرد، با این نیروها روبه‌رو خواهد شد.
+
+او با اشاره به نشست کابینه دولت ترامپ، گفت: «رییس‌جمهوری در نشست کابینه گفت ایران یا باید توافق روی میز را به روش درست بپذیرد یا با مرد من در سمت چپ روبه‌رو شود. آن فرد من بودم. اما در واقع من نیستم، بلکه شما هستید.»
+
+هگست این سخنان را در جمع نیروهای نظامی آمریکا مستقر در ناو یواس‌اس باکسر که در سنگاپور پهلو گرفته است، بیان کرد و در جریان این بازدید در تمرین‌های آمادگی جسمانی آن‌ها نیز شرکت کرد.
+https://iranintl.com/202605299765
+</div>
+
+## FarsiVOA — post 218972
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218972_1780056180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل روز جمعه با صدور هشدار تخلیه برای هفت شهر و روستا در جنوب لبنان، از ساکنان این مناطق خواست پیش از آغاز حملات هوایی برنامه‌ریزی‌شده علیه مواضع حزب‌الله، محل سکونت خود را ترک کنند.
+
+بر اساس اعلام ارتش اسرائیل، ساکنان مناطق انصاریه، خرایب، شبریحه، صرفند، عدلون و بیساریه باید دست‌کم یک کیلومتر از این مناطق فاصله بگیرند. پیش از این نیز هشدار مشابهی برای روستای عین قانا صادر شده بود.
+
+آویخای ادرعی، سخنگوی عرب‌زبان ارتش اسرائیل، در پیامی اعلام کرد که این اقدام در واکنش به آنچه «نقض توافق آتش‌بس از سوی حزب‌الله» خواند، انجام می‌شود. او گفت ارتش اسرائیل ناچار است با قدرت علیه این گروه اقدام کند، اما قصد آسیب رساندن به غیرنظامیان را ندارد.
+
+این هشدارها در حالی صادر شده که تنش‌ها در مرز لبنان و اسرائیل همچنان ادامه دارد و احتمال گسترش درگیری‌ها افزایش یافته است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218971
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218971_1780056180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حرکت جالب معاون رئیس‌جمهور آمریکا در جشن دانش‌آموختگی نیروی هوایی؛
+
+جی‌دی ونس، معاون رئیس‌جمهور ایالات متحده، در جریان مراسم دانش‌آموختگی دانشجویان آکادمی نیروی هوایی این کشور، در حرکتی صمیمانه با یکی از فارغ‌التحصیلان نظامی «چِست بامپ» انجام داد.
+
+این حرکت مهیج و صمیمی که در بخش اعطای مدرک رخ داد، به سرعت توجه رسانه‌ها و حاضران در مراسم را به خود جلب کرد.
+
+«چِست بامپ» یا اصطلاحاً «سینه به سینه شدن»، یک حرکت نمادین برای ابراز شادی است که در بین نظامیان به عنوان نشانه‌ای از همبستگی و جشن گرفتن یک موفقیت بزرگ رایج است.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390462
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390462_1780056182.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق تحقیقات جدید:
+بغل کردن پارتنر یا کسی که دوسش داری میتونه مشکل بی‌خوابی یا بدخوابیتو درمان کنه؛
+
+به گفته پژوهشگر‌ها؛ حتی یه بغل 20 ثانیه‌ای یا بیشتر می‌تونه اثر قابل‌توجهی روی ترشح اکسی‌توسین و کاهش استرس داشته باشه و باعث بشه شب خواب عمیق‌تر و بدون استرسی رو تجربه کنید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123492
+
+<div align="center">
+  <a href="telegram/content/alonews_123492_1780056183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان به نقل از مقامات:
+ترامپ به مشاورانش گفته است که برای تصمیم‌گیری در مورد امضای توافق احتمالی با تهران به چند روز زمان نیاز دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 15:22
 ---
 
