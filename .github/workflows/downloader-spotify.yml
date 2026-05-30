@@ -498,17 +498,17 @@ jobs:
 
             if [ "$METHOD" = "release" ]; then
               echo "Creating unsplit ZIP (will split only if > 1950 MiB)"
-              zip -r "../music_archive/${ZIP_NAME}" .
+              zip -0 -r "../music_archive/${ZIP_NAME}" .
               FULLZIP="../music_archive/${ZIP_NAME}"
               SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
               if [ "$SIZE" -gt 2044723200 ]; then
                 echo "ZIP larger than 1950 MiB, splitting into 1950M parts"
                 rm "$FULLZIP"
-                zip -r -s 1950m "../music_archive/${ZIP_NAME}" .
+                zip -0 -r -s 1950m "../music_archive/${ZIP_NAME}" .
               fi
             else
               echo "Creating split ZIP (99 MB parts)"
-              zip -r -s 99m "../music_archive/${ZIP_NAME}" .
+              zip -0 -r -s 99m "../music_archive/${ZIP_NAME}" .
             fi
             cd ..
 
