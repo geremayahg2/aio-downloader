@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 05:53
+---
+
+## FoxNewsTwitter — post 342418
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342418_1780107801.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+KAYLEE MCGHEE WHITE: “The Biden years weren't an aberration, they weren't an accident. They were the blueprint. They were exactly what Democrats plan to do every single time they regain power.” https://twitter.com/IngrahamAngle/status/2060512372586909976#m
+</div>
+
+## IranIntlTV — post 339678
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339678_1780107804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در نشست امنیتی گفت‌وگوی شانگری‌لا در سنگاپور گفت: «کشورهایی که فکر می‌کنند می‌توانند همچنان از سخاوت مالیات‌دهندگان آمریکایی سواری مجانی بگیرند، همین حالا بشنوند؛ آن روزها به پایان رسیده است.»
+او گفت متحدانی که از افزایش سهم خود و پذیرش مسئولیتشان خودداری کنند، با تغییری روشن در نحوه همکاری آمریکا روبه‌رو خواهند شد.
+هگست تاکید کرد اولویت آمریکا بر همکاری با متحدانی است که توانمندتر، واقع‌بین و آماده هستند.
+او با اشاره به اینکه ترامپ امسال ۱.۵ تریلیون دلار سرمایه‌گذاری نسلی در حوزه دفاع انجام خواهد داد، از متحدان و شرکای آمریکا خواست ۳.۵ درصد از تولید ناخالص داخلی خود را به هزینه‌های دفاعی اختصاص دهند.
+هگست گفت آمریکا در حال اجرای بسیج تاریخی ملی برای تقویت پایه صنعتی دفاعی خود است.
+
+https://iranintl.com/202605308362
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 05:43
 ---
 
