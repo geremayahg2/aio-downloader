@@ -25,6 +25,17 @@ on:
           - release       # GitHub Release (unsplit, split if >1950MB)
           - drive         # Google Drive (folder: github-actions)
         default: repo
+      # ── NEW INPUTS ───────────────────────────
+      vpn_enabled:
+        description: 'Route downloads through WireGuard VPN (requires secret WG_CONFIG)'
+        type: boolean
+        default: false
+      concurrent_downloads:
+        description: 'Number of URLs to download at the same time'
+        type: number
+        default: 1
+        required: false
+      # ─────────────────────────────────────────
 
 permissions:
   contents: write
@@ -60,7 +71,98 @@ jobs:
           NUM=$(wc -l < urls.txt)
           echo "NUM_URLS=$NUM" >> $GITHUB_OUTPUT
 
-      - name: Download and process files
+      # ── VPN SETUP (identical to other workflows) ──
+      - name: '🔒 Set up WireGuard VPN (if enabled)'
+        id: vpn
+        shell: bash
+        run: |
+          VPN_ENABLED="${{ inputs.vpn_enabled }}"
+          echo "VPN_ENABLED=$VPN_ENABLED"
+
+          if [ "$VPN_ENABLED" = "true" ]; then
+            if [ -z "${{ secrets.WG_CONFIG }}" ]; then
+              echo "⚠️ VPN enabled but WG_CONFIG secret is empty – VPN disabled for this run."
+              echo "vpn_available=false" >> $GITHUB_OUTPUT
+              exit 0
+            fi
+
+            echo "→ Installing WireGuard tools..."
+            sudo apt-get update -qq
+            sudo apt-get install -y -qq wireguard-tools openresolv 2>/dev/null || sudo apt-get install -y -qq wireguard-tools
+
+            echo "→ Writing WireGuard config..."
+            cat <<'EOF' > /tmp/wg0.conf
+          ${{ secrets.WG_CONFIG }}
+          EOF
+            sudo cp /tmp/wg0.conf /etc/wireguard/wg0.conf
+            sudo chmod 600 /etc/wireguard/wg0.conf
+
+            echo "→ Bringing up wg0..."
+            if sudo wg-quick up wg0; then
+              echo "✅ WireGuard VPN connected."
+              echo "vpn_available=true" >> $GITHUB_OUTPUT
+            else
+              echo "⚠️ Failed to bring up WireGuard – VPN disabled."
+              sudo wg-quick down wg0 2>/dev/null || true
+              echo "vpn_available=false" >> $GITHUB_OUTPUT
+            fi
+          else
+            echo "vpn_available=false" >> $GITHUB_OUTPUT
+          fi
+
+      # ═══════════ PARALLEL DOWNLOAD ═════════════════
+      - name: Download all files concurrently
+        run: |
+          set -e
+          VPN_AVAILABLE="${{ steps.vpn.outputs.vpn_available }}"
+          CONCURRENT="${{ inputs.concurrent_downloads }}"
+          DOWNLOAD_BASE="mega_downloads"
+          FAILED_FILE="failed_urls.txt"
+          FAILED_LOCK="/tmp/mega_failed.lock"
+
+          mkdir -p "$DOWNLOAD_BASE"
+          > "$FAILED_FILE"
+
+          # Helper: download ONE URL
+          download_one() {
+            local url="$1"
+            local idx="$2"
+            local dl_dir="${DOWNLOAD_BASE}/dl_${idx}"
+            mkdir -p "$dl_dir"
+
+            echo "→ Downloading [$idx]: $url"
+            if (cd "$dl_dir" && megatools dl "$url" 2>&1); then
+              echo "✅ Success [$idx]: $url"
+            else
+              echo "❌ Failed [$idx]: $url"
+              flock "$FAILED_LOCK" bash -c "echo \"$url\" >> \"$FAILED_FILE\""
+              return 1
+            fi
+          }
+
+          export -f download_one
+          export DOWNLOAD_BASE FAILED_FILE FAILED_LOCK VPN_AVAILABLE
+
+          echo "→ Starting parallel downloads (concurrency: $CONCURRENT, VPN: $VPN_AVAILABLE)"
+          # Use a file descriptor to pass the line number along with the URL
+          while IFS= read -r url; do
+            echo "$url"
+          done < urls.txt | cat -n | xargs -P "$CONCURRENT" -I '{}' bash -c '
+            set -e
+            read -r idx url <<<"$@"
+            download_one "$url" "$idx"
+          ' _
+
+          if [ -s "$FAILED_FILE" ]; then
+            echo "::warning::Some downloads failed, see $FAILED_FILE"
+            cat "$FAILED_FILE"
+          else
+            echo "All downloads succeeded."
+          fi
+        shell: bash
+
+      # ═══════════ SEQUENTIAL PROCESSING ═══════════
+      - name: Process downloaded files (flatten, zip, bundle)
         id: process
         run: |
           BUNDLE_ALL="${{ github.event.inputs.bundle_all }}"
@@ -73,95 +175,86 @@ jobs:
           fi
 
           OUTPUT_DIR="mega-nz"
+          DOWNLOAD_BASE="mega_downloads"
+          FAILED_FILE="failed_urls.txt"
+
           rm -rf "$OUTPUT_DIR"
           mkdir -p "$OUTPUT_DIR"
-
-          FAILED_FILE="failed_urls.txt"
-          > "$FAILED_FILE"
 
           if [ "$BUNDLE_ALL" = "true" ]; then
             BUNDLE_DIR="bundle_contents"
             mkdir -p "$BUNDLE_DIR"
           fi
 
-          index=0
-          while IFS= read -r url; do
-            index=$((index + 1))
-            echo "----------------------------------------"
-            echo "Processing URL $index: $url"
+          # Move all downloaded files into a flat structure for processing
+          PROCESS_DIR="flattened_downloads"
+          mkdir -p "$PROCESS_DIR"
 
-            DL_DIR="dl_$index"
-            mkdir -p "$DL_DIR"
+          for dl_dir in "$DOWNLOAD_BASE"/dl_*; do
+            [ -d "$dl_dir" ] || continue
+            # Flatten: move all files to PROCESS_DIR
+            find "$dl_dir" -type f -exec mv {} "$PROCESS_DIR/" \; 2>/dev/null || true
+            rm -rf "$dl_dir"
+          done
 
-            (
-              cd "$DL_DIR" || exit 1
-              megatools dl "$url" 2>&1 || echo "MEGA_DL_FAILED"
-            ) | tee "dl_${index}.log"
-
-            if grep -q "MEGA_DL_FAILED" "dl_${index}.log" || [ -z "$(ls -A "$DL_DIR" 2>/dev/null)" ]; then
-              echo "Download failed for $url"
-              echo "$url" >> "$FAILED_FILE"
-              rm -rf "$DL_DIR" "dl_${index}.log"
-              continue
-            fi
-
-            # Flatten directory structure (megatools may create subfolders)
-            find "$DL_DIR" -mindepth 2 -type f -exec mv {} "$DL_DIR/" \; 2>/dev/null || true
-            find "$DL_DIR" -mindepth 1 -type d -empty -delete 2>/dev/null || true
-
-            for DL_FILE in "$DL_DIR"/*; do
-              [ -f "$DL_FILE" ] || continue
-              fname=$(basename "$DL_FILE")
-
-              if [ "$BUNDLE_ALL" = "true" ]; then
-                TARGET="$BUNDLE_DIR/$fname"
-                if [ -e "$TARGET" ]; then
-                  base="${fname%.*}"
-                  ext="${fname##*.}"
-                  if [ "$base" = "$ext" ]; then
-                    base="$fname"
-                    ext=""
-                  else
-                    ext=".$ext"
-                  fi
-                  counter=1
-                  while [ -e "$BUNDLE_DIR/${base}_${counter}${ext}" ]; do
-                    counter=$((counter + 1))
-                  done
-                  TARGET="$BUNDLE_DIR/${base}_${counter}${ext}"
+          # Now process each downloaded file
+          if [ "$BUNDLE_ALL" = "true" ]; then
+            # Move everything into bundle dir
+            mv "$PROCESS_DIR"/* "$BUNDLE_DIR/" 2>/dev/null || true
+            if [ -n "$(ls -A "$BUNDLE_DIR" 2>/dev/null)" ]; then
+              RAND_BUNDLE=$(tr -dc 'a-z' </dev/urandom | head -c5)
+              BUNDLE_ZIP="bundle_${RAND_BUNDLE}.zip"
+              echo "Creating bundle: $BUNDLE_ZIP"
+              if [ "$METHOD" = "release" ]; then
+                (cd "$BUNDLE_DIR" && zip "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
+                FULLBUNDLE="${OUTPUT_DIR}/${BUNDLE_ZIP}"
+                SIZE=$(stat -c%s "$FULLBUNDLE" 2>/dev/null || echo 0)
+                if [ "$SIZE" -gt 2044723200 ]; then
+                  echo "Bundle ZIP larger than 1950 MiB, splitting"
+                  rm "$FULLBUNDLE"
+                  (cd "$BUNDLE_DIR" && zip -s 1950m "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
                 fi
-                cp "$DL_FILE" "$TARGET"
-                echo "Added to bundle: $TARGET"
               else
-                RAND5=$(tr -dc 'a-z' </dev/urandom | head -c5)
-                ZIP_BASE="${fname}_${RAND5}"
-                ZIP_NAME="${ZIP_BASE}.zip"
-                echo "ZIP output: $ZIP_NAME"
-
-                TMPZIP="tmpzip_${index}_$(tr -dc 'a-z0-9' </dev/urandom | head -c6)"
-                mkdir -p "$TMPZIP"
-                cp "$DL_FILE" "$TMPZIP/"
-
-                if [ "$METHOD" = "release" ]; then
-                  # Create unsplit ZIP first
-                  (cd "$TMPZIP" && zip "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
-                  FULLZIP="${OUTPUT_DIR}/${ZIP_NAME}"
-                  SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
-                  if [ "$SIZE" -gt 2044723200 ]; then
-                    echo "ZIP larger than 1950 MiB, splitting"
-                    rm "$FULLZIP"
-                    (cd "$TMPZIP" && zip -s 1950m "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
-                  fi
-                else
-                  (cd "$TMPZIP" && zip -s 99m "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
-                fi
-                rm -rf "$TMPZIP"
+                (cd "$BUNDLE_DIR" && zip -s 99m "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
               fi
+              rm -rf "$BUNDLE_DIR"
+            else
+              echo "No files to bundle."
+              rm -rf "$BUNDLE_DIR"
+            fi
+          else
+            # One ZIP per file
+            for f in "$PROCESS_DIR"/*; do
+              [ -f "$f" ] || continue
+              fname=$(basename "$f")
+              RAND5=$(tr -dc 'a-z' </dev/urandom | head -c5)
+              ZIP_BASE="${fname}_${RAND5}"
+              ZIP_NAME="${ZIP_BASE}.zip"
+              echo "Zipping: $fname → $ZIP_NAME"
+
+              TMPZIP="tmpzip_$(tr -dc 'a-z0-9' </dev/urandom | head -c6)"
+              mkdir -p "$TMPZIP"
+              cp "$f" "$TMPZIP/"
+
+              if [ "$METHOD" = "release" ]; then
+                (cd "$TMPZIP" && zip "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
+                FULLZIP="${OUTPUT_DIR}/${ZIP_NAME}"
+                SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
+                if [ "$SIZE" -gt 2044723200 ]; then
+                  echo "ZIP larger than 1950 MiB, splitting"
+                  rm "$FULLZIP"
+                  (cd "$TMPZIP" && zip -s 1950m "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
+                fi
+              else
+                (cd "$TMPZIP" && zip -s 99m "../${OUTPUT_DIR}/${ZIP_NAME}" "$fname")
+              fi
+              rm -rf "$TMPZIP"
             done
+          fi
 
-            rm -rf "$DL_DIR" "dl_${index}.log"
-          done < urls.txt
+          rm -rf "$PROCESS_DIR" "$DOWNLOAD_BASE"
 
+          # Handle failed URLs log
           if [ -s "$FAILED_FILE" ]; then
             RAND_FAIL=$(tr -dc 'a-z' </dev/urandom | head -c5)
             FAIL_NAME="links-failed-${RAND_FAIL}.txt"
@@ -171,30 +264,17 @@ jobs:
             rm -f "$FAILED_FILE"
           fi
 
-          if [ "$BUNDLE_ALL" = "true" ] && [ -n "$(ls -A "$BUNDLE_DIR" 2>/dev/null)" ]; then
-            RAND_BUNDLE=$(tr -dc 'a-z' </dev/urandom | head -c5)
-            BUNDLE_ZIP="bundle_${RAND_BUNDLE}.zip"
-            echo "Creating bundle: $BUNDLE_ZIP"
-            if [ "$METHOD" = "release" ]; then
-              (cd "$BUNDLE_DIR" && zip "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
-              FULLBUNDLE="${OUTPUT_DIR}/${BUNDLE_ZIP}"
-              SIZE=$(stat -c%s "$FULLBUNDLE" 2>/dev/null || echo 0)
-              if [ "$SIZE" -gt 2044723200 ]; then
-                echo "Bundle ZIP larger than 1950 MiB, splitting"
-                rm "$FULLBUNDLE"
-                (cd "$BUNDLE_DIR" && zip -s 1950m "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
-              fi
-            else
-              (cd "$BUNDLE_DIR" && zip -s 99m "../${OUTPUT_DIR}/${BUNDLE_ZIP}" *)
-            fi
-            rm -rf "$BUNDLE_DIR"
-          else
-            rm -rf "$BUNDLE_DIR"
-          fi
-
           ls -1 "$OUTPUT_DIR" > "${OUTPUT_DIR}_assets.txt"
           echo "Assets to upload:"
           cat "${OUTPUT_DIR}_assets.txt"
+        shell: bash
+
+      # ── VPN DISCONNECT before uploads ──
+      - name: 'Disconnect VPN for uploads'
+        if: steps.vpn.outputs.vpn_available == 'true'
+        run: |
+          echo "→ Bringing down WireGuard to use runner's native internet for uploads"
+          sudo wg-quick down wg0
 
       # ────────────────────────────────────────────────────────
       # GOOGLE DRIVE UPLOAD
