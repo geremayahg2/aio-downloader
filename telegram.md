@@ -7,6 +7,90 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 23:43
+---
+
+## WithYashar — post 12963
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12963_1780172017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در اودسا:
+کشور من از همه طرف ضربه خورده؛ از داخل توسط همین رژیم، و از بیرون هم به خاطر پیامدهای بی‌فکری خودش. با این حال، جمهوری اسلامی هنوز سر جاشه.
+بعضی‌ها توی این جمع ممکنه اینو نشونه‌ی قدرت رژیم بدونن. من اینجام بگم که اینطور نیست.
+این فقط نشونه‌ی اینه که دنیا هنوز نتیجه‌ی درست از چیزی که داره می‌بینه نگرفته.
+پهپاد شاهد فرقی نمی‌کنه کجا باشه؛ چه یه ساختمون مسکونی، چه یه میدان اعتراض تو تهران، چه دفترهای تجاری تو دبی.
+پهپادهایی که آسمون شهرهای اوکراین رو تاریک کردن، توی همون کارخانه‌هایی ساخته شدن که زیر نظر همون رژیمی هستن که توی تهران برای شکار معترض‌ها، توی خیابون‌ها پهپادهای نظارتی فرستاد.
+@withyashar
+</div>
+
+## IranIntlTV — post 339787
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339787_1780172019.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنای یادبود لینکلن در واشینگتن میزبان تجمع ایرانیان و حامیان غیرایرانی جنبش دادخواهی بود.
+
+این گردهمایی در گرامی‌داشت جان‌باختگان و در اعتراض به ادامه اعدام‌ها و سرکوب در ایران برگزار شد.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال و گفت‌وگو با سیامک آرام، برگزارکننده، و یکی از شرکت‌کنندگان
+@iranintltv
+</div>
+
+## IranIntlTV — post 339786
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339786_1780172021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه صدور احکام سنگین برای معترضان و زندانیان سیاسی، حکم اعدام بنیامین نقدی، از معترضان دی‌ماه، به اتهام «افساد فی‌الارض» صادر شده است. هم‌زمان، گزارش‌ها از تایید حکم اعدام رئوف شیخ‌معروفی و محمد فرجی، از بازداشت‌شدگان جنبش «زن، زندگی، آزادی»، در دیوان عالی کشور حکایت دارد.
+
+جزییات بیشتر با پگاه بنی‌هاشمی، پژوهشگر ارشد حقوق
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/wwFLAgT9TwI?feature=share
+</div>
+
+## alonews — post 123816
+
+<div align="center">
+  <a href="telegram/content/alonews_123816_1780172023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بن گویر، وزیر امنیت ملی اسرائیل:
+«باید بیروت را صاف کنیم!»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123815
+
+<div align="center">
+  <a href="telegram/content/alonews_123815_1780172026.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی: محاصره دریایی یا با زور یا با مذاکره پایان خواهد یافت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی کمیسیون امنیت ملی: محاصره دریایی یا با زور یا با مذاکره پایان خواهد یافت
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 23:33
 ---
 
