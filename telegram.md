@@ -7,6 +7,29 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 02:02
+---
+
+## VahidOOnLine — post 242963
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242963_1780180347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس تصاویر رونمایی از شناور تندروی هجومی جدید سپاه با نام «۲۷ رجب» در تجمع حکومتی میدان انقلاب تهران را منتشر کرد. این خبرگزاری وابسته به سپاه نوشت که این شناور به قابلیت پرتاب دو فروند موشک کروز دریاپایه با برد ۷۰۰ کیلومتر و قدرت مانور و عملیات در موج با ارتفاع ۳ متر مجهز است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجب سکوت مرگباری …
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 01:52
 ---
 
