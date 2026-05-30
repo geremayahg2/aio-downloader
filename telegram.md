@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 01:12
+---
+
+## VahidOOnLine — post 242958
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242958_1780177344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با بازنشر تصاویر دیدار شهردار دموکرات شیکاگو با پاپ، در تروث‌سوشال نوشت: «باید کسی به پاپ توضیح دهد که شهردار شیکاگو بی‌فایده است و ایران نمی‌تواند سلاح هسته‌ای داشته باشد.» ترامپ اخیرا درباره مواضع مختلف پاپ از جمله مخالفت او با جنگ ایران، انتقادهای زیادی را مطرح کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242957
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242957_1780177345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرچم ملی اسپانیا روز شنبه نهم خرداد، در جریان رژه نظامی «روز نیروهای مسلح» در شهر ویگو، هنگام برافراشته شدن از میله جدا شد و سقوط کرد. این اتفاق در حضور پادشاه فیلیپه ششم رخ داد که منجر به واکنش او در چهره‌اش شد. نیروهای نظامی بلافاصله پرچم را جمع‌آوری کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242956
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242956_1780177346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس گلرو، عضو کمیسیون امنیت ملی مجلس، شنبه‌شب در جمع حامیان حکومت در گرمسار گفت: «آمریکایی‌ها در ابتدای مذاکرات دو خواسته اصلی داشتند. نخست توقف کامل غنی‌سازی و دوم تحویل اورانیوم غنی‌شده ایران به یک کشور ثالث که محمدباقر قالیباف با صراحت اعلام کرد جمهوری اسلامی ایران اساسا اجازه ورود به چنین مذاکراتی را نداده است و طرف آمریکایی باید ابتدا دارایی‌های بلوکه‌شده ایران را آزاد کند». او گفت: «سوال اصلی این است که آیا می‌توان به آمریکا اعتماد کرد، پاسخ روشن است؛ خیر. آیا می‌توان با آمریکا به تفاهم پایدار رسید، پاسخ خیر است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339794
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339794_1780177347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با بازنشر تصاویر دیدار شهردار دموکرات شیکاگو با پاپ، در تروث‌سوشال نوشت: «باید کسی به پاپ توضیح دهد که شهردار شیکاگو بی‌فایده است و ایران نمی‌تواند سلاح هسته‌ای داشته باشد.» ترامپ اخیرا درباره مواضع مختلف پاپ از جمله مخالفت او با جنگ ایران، انتقادهای زیادی را مطرح کرده است.
+https://iranintl.com/202605306421
+</div>
+
+## IranIntlTV — post 339793
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339793_1780177347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرچم ملی اسپانیا روز شنبه نهم خرداد، در جریان رژه نظامی «روز نیروهای مسلح» در شهر ویگو، هنگام برافراشته شدن از میله جدا شد و سقوط کرد. این اتفاق در حضور پادشاه فیلیپه ششم رخ داد که منجر به واکنش او در چهره‌اش شد. نیروهای نظامی بلافاصله پرچم را جمع‌آوری کردند.
+</div>
+
+## alonews — post 123834
+
+<div align="center">
+  <a href="telegram/content/alonews_123834_1780177348.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب الله: یه تانک اسرائیلی رو زدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 01:02
 ---
 
