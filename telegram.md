@@ -7,6 +7,52 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 07:42
+---
+
+## RadioFarda — post 157706
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157706" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، نهم خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 282385
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282385_1780114365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+لوئیز ایناسیو لولا دا سیلوا، رئیس جمهور برزیل، تصمیم دولت ایالات متحده برای تعیین دو باند بزرگ جرایم سازمان یافته کشورش به عنوان گروه‌های تروریستی خارجی را محکوم کرد.
+
+آقای لولا روز جمعه در سخنانی خشمگین، واشنگتن را به بازی با حاکمیت برزیل و رفتار با این کشور مانند یک جمهوری بی‌ارزش، متهم کرد.
+
+برازیلیا مدت‌هاست که با تروریست خواندن این گروه‌ها با نام‌های فرماندهی سرخ و فرماندهی اول پایتخت، مخالفت کرده و اصرار دارد که مداخله ایالات متحده ضروری نیست.
+
+با این حال، واشنگتن می‌گوید دامنه فعالیت این باندها اکنون در سراسر منطقه و به داخل ایالات متحده گسترش یافته است.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 123594
+
+<div align="center">
+  <a href="telegram/content/alonews_123594_1780114365.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خارجه پاکستان: ابداً قرار نیست اسرائیل را به رسمیت بشناسیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 07:33
 ---
 
