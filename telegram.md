@@ -7,6 +7,134 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 01:52
+---
+
+## VahidOOnLine — post 242962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، جشن قهرمانی پاریس سن ژرمن پس از پیروزی در دیدار نهایی لیگ قهرمانان اروپا، شنبه شب به درگیری، آتش‌سوزی و تنش در خیابان‌های پاریس کشیده شد.
+بر اساس این گزارش، پلیس فرانسه پس از آنکه در برخی مناطق مرکزی پاریس هدف شلیک مواد آتش‌زا قرار گرفت، برای متفرق کردن گروهی از هواداران از گاز اشک‌آور استفاده کرد.
+پاریس سن ژرمن زیر نظر لوئیس انریکه موفق شد در یک مسابقه نهایی نفس‌گیر در بوداپست، تیم آرسنال را در ضربات پنالتی با نتیجه ۴ بر ۳ شکست دهد و عنوان قهرمانی خود را حفظ کند. این پیروزی پس از تساوی ۱-۱ در وقت‌های اضافه رقم خورد تا نماینده فرانسه جایگاه خود را به عنوان قدرت برتر فوتبال اروپا تثبیت کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Dirty_Kids — post 390609
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390609_1780179732.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390608
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390608_1780179733.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A9
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390607
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390607_1780179733.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390606
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390606_1780179733.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوتا دختر خیلی شیک و تمیز از یه بوتیک تو نازی‌آباد یه لباس می‌دزدن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390605
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390605_1780179734.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک ویدیو که هر بار دیدنش، چیزی از روح آدم را کم می‌کند…
+۱۹ دی، شاهین‌شهر اصفهان
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390604
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390604_1780179735.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من هرشب:
+
+هندزفری 🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدونستید آقا سیدمجتبی تنها گونه جانوری هست که بجای حمله به قاتل پدر و همسر و بچه‌ش، تمام سعیشو میکنه باهاش توافق کنه؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390602
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390602_1780179737.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی سریال "بدنام" دختره به پسره میگه ساز دهنیت باحاله؟ اونم میگه آره، دختره هم میگه پس بریم تو اتاق صدای ساز دهنیمون همسایه‌ها رو بی‌خواب نکنه😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 01:42
 ---
 
