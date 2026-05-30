@@ -7,6 +7,149 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 20:34
+---
+
+## WithYashar — post 12948
+
+
+
+
+## WithYashar — post 12947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌊
+</div>
+
+## WithYashar — post 12946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود میشه یکم ویس بدی دلمون گرفت :)❤️
+</div>
+
+## FarsiVOA — post 219098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، اعلام کرد در حاشیه نشست «گفت‌وگوی شانگری لا» با کریس پنک، وزیر دفاع جدید نیوزیلند، دیدار کرده است.
+
+او گفت امیدوار است نیوزیلند در مشارکت خود در دفاع جمعی پیشرفت کند.
+
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21081
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21081_1780160647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست جدید ترامپ :
+
+۵ مرحله از سندرم ترامپ هراسی.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21080
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21080_1780160648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ :
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فینال لیگ قهرمانان اروپا در بوداپست بین پاری‌سن‌ژرمن و آرسنال امروز شنبه ۹ خرداد برگزار می‌شود. باشگاه آرسنال اسکرین بزرگی را در ورزشگاه خانگی این تیم، ورزشگاه امارات لندن آماده کرده است تا طرفدارانش بازی را در این ورزشگاه تماشا کنند.
+
+این بازی برای آرسنال که حدود یک هفته پیش توانست بعد از ۲۲ سال در لیگ برتر انگلستان قهرمان شود، بسیار مهم است.
+
+اگر آرسنال بتواند امروز به قهرمانی لیگ قهرمانان اروپا برسد، سالی استثنایی برای طرفدارانش رقم خواهد زد.
+@BBCPersian
+</div>
+
+## Hranews — post 113250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از بازداشت ۵ شهروند در شهرستان‌های مهرستان و سیب و سوران
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– روز پنجشنبه ۷ خردادماه، پنج شهروند ساکن شهرستان‌های سیب‌ و سوران و مهرستان توسط نیروهای امنیتی #بازداشت و به مکان‌های نامعلومی منتقل شدند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123773
+
+<div align="center">
+  <a href="telegram/content/alonews_123773_1780160649.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست ترامپ در طریق Truth Social
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123772
+
+<div align="center">
+  <a href="telegram/content/alonews_123772_1780160649.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ در شبکه اجتماعی «تروث سوشال» درباره «سندرم جنون ترامپ» پستی منتشر کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123771
+
+<div align="center">
+  <a href="telegram/content/alonews_123771_1780160649.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ از طریق Truth Social:
+می‌دانم که هنرمندان دچار «ییپس» شده‌اند و نگران اجرای خود در روز چهارشنبه هستند، بنابراین دارم به آوردن جذاب‌ترین شماره یک در هر جای دنیا فکر می‌کنم، مردی که مخاطبان بسیار بزرگ‌تری نسبت به الویس در اوجش دارد و این کار را بدون گیتار انجام می‌دهد، مردی که کشور ما را بیشتر از هر کس دیگری دوست دارد و مردی که برخی می‌گویند بزرگ‌ترین رئیس‌جمهور تاریخ است (THE GOAT!)، دونالد ج. ترامپ، برای جایگزینی این «هنرمندان» درجه سوم و بسیار پردرآمد، و ایراد یک سخنرانی مهم که کشور را به جلو سوق دهد، همانطور که از زمان ریاست‌جمهوری‌ام انجام داده‌ام!
+
+
+🔴دو سال پیش، ایالات متحده مرده بود. اکنون ما «داغ‌ترین» کشور در هر جای دنیا هستیم. من هنرمندان به اصطلاحی که پول زیادی می‌گیرند و راضی نیستند را نمی‌خواهم. من فقط می‌خواهم در کنار مردم خوشحال، باهوش، موفق و کسانی باشم که می‌دانند چگونه پیروز شوند.
+
+
+🔴پس، با کپی این حقیقت، به نمایندگانم دستور می‌دهم امکان‌سنجی برگزاری تجمع «آمریکا بازگشته است» را در روز چهارشنبه، واشنگتن دی.سی، همان زمان و مکان بررسی کنند. فقط میهن‌پرستان بزرگ دعوت خواهند شد — این جشن وحشیانه و زیبایی از آمریکا خواهد بود!
+
+﻿
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دلار در بازار آزاد تهران: ۱۶۹ هزار و ۷۰۰ تومان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 20:23
 ---
 
