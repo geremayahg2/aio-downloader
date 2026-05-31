@@ -7,6 +7,160 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 23:53
+---
+
+## VahidOOnLine — post 243112
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243112_1780258991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش تسنیم، خبرگزاری وابسته به سپاه، یکشنبه‌شب «نشت و انفجار شدید گاز» در یک مجتمع ۴۰ واحدی واقع در فاز یک اندیشه، دست‌کم ۴ مجروح برجای گذاشت. بر اساس اعلام سازمان آتش‌نشانی، این حادثه در طبقه سوم این مجتمع رخ داده و با توجه به شدت انفجار و ارزیابی‌های اولیه در محل، احتمال افزایش شمار مجروحان وجود دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243111
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243111_1780258991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل مکرون، رییس‌جمهور فرانسه، در شبکه اجتماعی ایکس اعلام کرد با محمد بن سلمان، ولیعهد عربستان سعودی، هیثم بن طارق، سلطان عمان، محمد بن زاید، رییس امارات متحده عربی، و عبدالفتاح السیسی، رییس‌جمهور مصر، گفت‌وگو کرده است.
+
+مکرون افزود به همه آن‌ها پیامی واحد منتقل کرده است: ضروری است توافقی میان ایالات متحده و جمهوری اسلامی هرچه سریع‌تر حاصل شود و این فرصت باید همین اکنون مورد استفاده قرار گیرد.
+
+او تاکید کرد اولویت باید دستیابی به آتش‌بس و بازگشایی فوری تنگه هرمز، بدون هیچ شرطی و در چارچوب حقوق بین‌الملل، باشد. سپس گفت‌وگوها باید برای دستیابی به توافقی کامل و مستحکم درباره برنامه هسته‌ای، موشک‌های بالستیک و ثبات منطقه‌ای ادامه یابد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13106
+
+
+
+
+## WithYashar — post 13105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در فاز یک اندیشه شهریار خیابان شیشم شرقی در یک ساختمان که چندین مصدوم داشته @withyashar
+</div>
+
+## pm_afshaa — post 91970
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91970_1780258992.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم به نقل از یک منبع آگاه:
+ایران اصلاحیه‌های جدید درباره متن تفاهم احتمالی اعمال خواهد کرد .
+
+ملاک برای ایران متنی است که خودمان قبول داشته باشیم و اعمال اصلاحیه از ناحیه ترامپ به معنای پذیرش آنها توسط ایران نیست؛ ایران برای وضعیت عدم تفاهم نیز کاملاً آمادگی دارد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339937
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339937_1780258992.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان گزارش داد جمهوری اسلامی بخش بزرگی از مسیرهای مسدودشده به سایت‌های زیرزمینی موشکی خود را بازسازی کرده است.
+
+به نوشته این رسانه، ایران اکنون توان شلیک شمار بیشتری موشک دوربرد به سمت اسرائیل و دیگر کشورهای منطقه را دارد.
+
+گفت‌وگو با آرام حسامی، استاد علوم سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 339936
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339936_1780258994.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل مکرون، رییس‌جمهور فرانسه، در شبکه اجتماعی ایکس اعلام کرد با محمد بن سلمان، ولیعهد عربستان سعودی، هیثم بن طارق، سلطان عمان، محمد بن زاید، رییس امارات متحده عربی، و عبدالفتاح السیسی، رییس‌جمهور مصر، گفت‌وگو کرده است.
+
+مکرون افزود به همه آن‌ها پیامی واحد منتقل کرده است: ضروری است توافقی میان ایالات متحده و جمهوری اسلامی هرچه سریع‌تر حاصل شود و این فرصت باید همین اکنون مورد استفاده قرار گیرد.
+
+او تاکید کرد اولویت باید دستیابی به آتش‌بس و بازگشایی فوری تنگه هرمز، بدون هیچ شرطی و در چارچوب حقوق بین‌الملل، باشد. سپس گفت‌وگوها باید برای دستیابی به توافقی کامل و مستحکم درباره برنامه هسته‌ای، موشک‌های بالستیک و ثبات منطقه‌ای ادامه یابد.
+https://iranintl.com/202605318416
+</div>
+
+## Shin_Persian — post 6339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 31 May 2026 20:12:22 UTC
+
+Explosions in Erbil, Kurdistan Region, #Iraq 🇮🇶
+
+فارسی
+
+انفجارها در اربیل، اقلیم کردستان، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219211
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219211_1780258994.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بازنشستگان ایرانی زیر فشار تورم ساختاری؛ گفت‌وگو با رضا غیبی
+@FarsiVOA
+</div>
+
+## alonews — post 124057
+
+<div align="center">
+  <a href="telegram/content/alonews_124057_1780258995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تانکرترکرز: چهار نفتکش ایرانی با محموله ۷ میلیون بشکه‌ای ظاهراً به ایران بازگردانده شدند
+
+
+🔴 بر اساس یک تحلیل تصویری، ۴ نفتکش شرکت ملی نفتکش ایران با مجموع ۷ میلیون بشکه نفت خام در ۲ تا ۳ روز گذشته ظاهراً برای خروج از آب‌های ایران حرکت کرده‌اند، اما به احتمال زیاد مسیرشان تغییر کرده و به داخل بازگشته‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124056
+
+<div align="center">
+  <a href="telegram/content/alonews_124056_1780258995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار گاز در مجتمع مسکونی فاز یک اندیشه با ۴ مصدوم؛ احتمال افزایش مصدومان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124055
+
+<div align="center">
+  <a href="telegram/content/alonews_124055_1780258995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ماکرون: ایران و آمریکا باید فورا به توافق برسند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 23:43
 ---
 
