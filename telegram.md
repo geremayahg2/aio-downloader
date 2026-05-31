@@ -7,6 +7,89 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 01:43
+---
+
+## VahidOOnLine — post 243121
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243121_1780265595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه، یکشنبه‌شب، ۱۰ خردادماه، از شنیده‌شدن صدای انفجار در محله باغ ابریشم کرمانشاه خبر داد. سازمان آتش نشانی کرمانشاه اعلام کرد: «وقوع یک حادثه ناشی از انفجار گاز در محله باغ ابریشم باعث ایجاد آتش‌سوزی در یک واحد مسکونی و سرایت آن به ساختمان‌ مجاور شد که ۲ مجروح برجا گذاشت». فارس همزمان از «نشت و انفجار شدید گاز» در یک مجتمع ۴۰ واحدی واقع در فاز یک اندیشه تهران خبر داده بود که دست‌کم ۴ نفر در آن مجروح شدند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342465
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342465_1780265596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Our community will resist again."
+
+Los Angeles Mayor Karen Bass warned that she and her city's residents are ready to oppose federal immigration enforcement if the Trump administration attempts widespread operations during the World Cup.
+
+Bass, who is facing a challenge in the mayoral election from Spencer Pratt, pledged her support for Los Angeles residents regardless of who they are or why they're in the city.
+
+Last year, ICE raids in Los Angeles sparked riots across the city.
+</div>
+
+## IranIntlTV — post 339946
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339946_1780265598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش اختصاصی ایران‌اینترنشنال به نقل از یک منبع آگاه نشان می‌دهد مسعود پزشکیان با ارسال نامه‌ای رسمی به دفتر مجتبی خامنه‌ای خواستار کناره‌گیری فوری از سمت خود شده است.
+
+او در این نامه تاکید کرده دولت و شخص رییس‌جمهور در عمل از روند تصمیم‌گیری‌های کلان کشور کنار گذاشته شده‌اند و ادامه مسئولیت در این شرایط ممکن نیست.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219214
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219214" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری یکشنبه ۱۰ خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## IranianMinds — post 21162
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21162_1780265601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین طاهری، مداح:
+
+اگر مذاکره می‌کنید، اگر توافق می‌کنید، اگر جنگ هست ، به ما نتیجشو بگید که ما حداقل تکلیف خودمونو توی خیابونا بدونیم.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 01:33
 ---
 
