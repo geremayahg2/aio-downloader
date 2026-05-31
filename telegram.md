@@ -7,6 +7,22 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 07:22
+---
+
+## pm_afshaa — post 91923
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی ها شب گذشته در میدان انقلاب دست به تجمع زدن و شعار «با قاتلین رهبر، مذاکره حرامه» سر دادن..
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 07:12
 ---
 
