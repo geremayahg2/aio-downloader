@@ -7,6 +7,67 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 02:32
+---
+
+## FarsiVOA — post 219218
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219218_1780268576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هم‌زمان با انتشار برخی گزارش‌ها از تلاش‌های جمهوری اسلامی برای دسترسی به سایت‌های زیرزمینی موشکی، وزارت امور خارجه اسرائيل با انتشار تصویر یک پرتابگر موشکی سوخته در حاشیه یک جاده، نوشت «لانچر‌های جمهوری اسلامی» نیروهای آمریکایی و اسرائيلی در طول عملیات مشترک اخیرشان پرتابگرهای موشکی بسیاری را در ایران نابود کردند. دونالد ترامپ، رئيس‌جمهوری آمریکا، پیشتر با اشاره به تلاش‌های جمهوری‌اسلامی برای دسترسی دوباره به مهماتی که بر اثر حملات آمریکا و اسرائيل از دسترسش خارج شده بود، گفته است که ایالات متحده فعالیت‌های رژیم در این باره را رصد می‌کند و می‌تواند آن تسلیحات را به‌سرعت نابود کند.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21165
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21165_1780268576.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫️ در شب ۹ اسفند احمدرضا و امیرحسین فیضی، دو برادر ۱۵ و ۱۹ ساله، فقط به‌ خاطر اینکه با شنیدن خبر مرگ خامنه‌ای بوق زدن و شادی کردن، توسط نیروهای نظامی به رگبار بسته شدن و کشته شدن.
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21164
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21164_1780268578.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+
+🎯همین حالا عضو شو و شروع کن👇e10
+https://t.me/+6ckCmywafrxiYzk0
+https://t.me/+6ckCmywafrxiYzk0
+</div>
+
+## IranianMinds — post 21163
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21163_1780268580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژه روز اسرائیل در نیویورک.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 02:22
 ---
 
