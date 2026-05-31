@@ -7,6 +7,265 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 14:33
+---
+
+## VahidOOnLine — post 243037
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243037_1780225388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صدای انفجار در محدوده جزیره قشم خبر داد و نوشت که ساکنان مناطق مرکزی و جنوبی این جزیره آن را تایید کرده‌اند اما ماهیت صدا هنوز مشخص نشده است.
+همزمان صداوسیما اعلام کرد صداهای شنیده‌شده در قشم و بندرعباس، ناشی از «امحای مهمات باقی‌مانده از جنگ» است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243036
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243036_1780225388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت دستور داده استقرار ارتش اسرائیل در مواضع حزب‌الله در شمال رود لیتانی گسترش یابد و عملیات زمینی در لبنان تعمیق شود. او تصرف قلعه بوفور را «تغییری بنیادین» در سیاست اسرائیل خواند و افزود ابتکار عمل در همه جبهه‌ها در دست اسرائیل است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243035
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243035_1780225389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️وزیر دفاع اسرائیل: نیروهای ما قلعه راهبردی «شقیف» در جنوب لبنان را تصرف کردند
+
+♦️اسرائیل کاتس، وزیر دفاع اسرائیل روز یکشنبه دهم خرداد با انتشار پیامی در اکس اعلام کرد که نیروهای ارتش این کشور قلعه تاریخی و راهبردی شقیف (بوفورت) در جنوب لبنان را تصرف کرده‌اند.
+وزیر دفاع اسرائیل همچنین از گسترش عملیات زمینی ارتش این کشور علیه حزب‌الله خبر داد و گفت «نیروهای ما پس از عبور از رودخانه لیتانی، کنترل این موقعیت مهم را به دست گرفته‌اند».
+
+کاتس در این پیام نوشت: «۴۴ سال پس از نبرد بوفورت، نیروهای ما بار دیگر به این قلعه بازگشتند و پرچم اسرائیل را بر فراز آن برافراشتند.»
+
+تصاویر خبرگزاری فرانسه نیز برافراشته شدن پرچم ارتش اسرائیل بر فراز این قلعه را نشان می‌دهد؛ هرچند هم‌زمان صدای گلوله‌باران و ستون‌های دود در مناطق اطراف نیز مشاهده می‌شود.
+
+قلعه «شقیف» به‌دلیل اشراف بر بخش‌های وسیعی از جنوب لبنان، یکی از مهم‌ترین مواضع راهبردی این منطقه محسوب می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز: ترامپ شروط توافق احتمالی با جمهوری اسلامی رو سخت‌تر کرده و نسخه اصلاح‌شده رو برای بررسی دوباره به تهران فرستاده.
+
+طبق این گزارش، اختلاف‌ها به‌ویژه بر سر آزادسازی منابع مالی ایران ادامه داره و واشینگتن تلاش می‌کنه با افزایش فشار، روند مذاکرات رو تسریع کنه.
+@withyashar
+</div>
+
+## mwarmonitor — post 9937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در قشم
+</div>
+
+## pm_afshaa — post 91929
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91929_1780225390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: ترامپ هنوز توافق با ایران رو نهایی نکرده و خواهان اعمال اصلاحاتی در متن تفاهم، به‌ویژه درباره اورانیوم غنی‌شده ایران و تنگه هرمز شده. به گفته منابع آمریکایی، این درخواست دور جدیدی از مذاکرات رو آغاز کرده و احتمالا پاسخ جمهوری اسلامی چند روز زمان…
+</div>
+
+## pm_afshaa — post 91928
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91928_1780225390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جلسه صحن مجلس به‌صورت مجازی و با حضور قالیباف برگزار شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91927
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91927_1780225391.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه کیهان:
+به دلیل نقض آتش‌بس در لبنان، میتونیم جنگ علیه اسرائیل رو آغاز کنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91926
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91926_1780225392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: ترامپ هنوز توافق با ایران رو نهایی نکرده و خواهان اعمال اصلاحاتی در متن تفاهم، به‌ویژه درباره اورانیوم غنی‌شده ایران و تنگه هرمز شده.
+
+به گفته منابع آمریکایی، این درخواست دور جدیدی از مذاکرات رو آغاز کرده و احتمالا پاسخ جمهوری اسلامی چند روز زمان خواهد برد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91925
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91925_1780225392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری مهر: شنیده شدن صدای انفجار در محدوده جزیره قشم.
+
+صدای یک انفجار در قشم از سوی چندین منبع محلی گزارش شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339869
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339869_1780225393.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صدای انفجار در محدوده جزیره قشم خبر داد و نوشت که ساکنان مناطق مرکزی و جنوبی این جزیره آن را تایید کرده‌اند اما ماهیت صدا هنوز مشخص نشده است.
+همزمان صداوسیما اعلام کرد صداهای شنیده‌شده در قشم و بندرعباس، ناشی از «امحای مهمات باقی‌مانده از جنگ» است.
+https://iranintl.com/202605311776
+</div>
+
+## IranIntlTV — post 339868
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339868_1780225394.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید نان سنگک در تهران گران شده است. نانوایی که در این ویدیو حضور دارد می‌گوید با گرانی گندم، سهمیه آرد را کم کرده‌اند.
+</div>
+
+## IranIntlTV — post 339867
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339867_1780225396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، گفت دستور داده استقرار ارتش اسرائیل در مواضع حزب‌الله در شمال رود لیتانی گسترش یابد و عملیات زمینی در لبنان تعمیق شود. او تصرف قلعه بوفور را «تغییری بنیادین» در سیاست اسرائیل خواند و افزود ابتکار عمل در همه جبهه‌ها در دست اسرائیل است.
+https://iranintl.com/202605313134
+</div>
+
+## RadioFarda — post 157741
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157741_1780225397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸نیروی دریایی سپاه پاسداران روز یک‌شنبه اعلام کرد که ۲۸ کشتی «با هماهنگی» این نیروی نظامی حکومت ایران از تنگه هرمز عبور کرده‌اند.
+
+🔸این آمار عبور کشتی‌ها از این تنگه استراتژیک در یک شبانه‌روز گذشته است.
+
+🔸در بیانیه سپاه آمده است:‌ «طی شبانه‌روز گذشته ۲۸ فروند کشتی اعم از نفتکش، کانتینربَر و سایر کشتی‌های تجاری پس از کسب مجوز با هماهنگی و تأمین امنیت نیروی دریایی سپاه از تنگه هرمز عبور کردند.»
+
+🔸ساعتی پیشتر روزنامه اسرائیلی «اسرائیل هیوم» نوشته بود که ده‌ها نفتکش حامل نفت و گاز طبیعی مایع در هفتهٔ گذشته با اجازه آمریکا و پرداخت عوارض به ایران از تنگهٔ هرمز عبور کرده‌اند.
+
+🔸این در حالی است که دولت آمریکا بارها اعلام کرده است با پرداخت عوارض به ایران برای عبور از تنگه هرمز مخالف است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جلسه مجازی صحن مجلس شورای اسلامی به ریاست محمدباقر قالیباف و مشارکت آنلاین ۱۸۷ نماینده و حضور ۱۴ نماینده برگزار شد. 🔸در این جلسه که اولین جلسه از سومین سال مجلس دوازدهم بود، اعضای جدید هیئت رئیسه مجلس سوگند یاد کردند. 🔸جلسه روز یک‌شنبه، دهم خردادماه، همچون…
+</div>
+
+## RadioFarda — post 157739
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157739_1780225398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جلسه مجازی صحن مجلس شورای اسلامی به ریاست محمدباقر قالیباف و مشارکت آنلاین ۱۸۷ نماینده و حضور ۱۴ نماینده برگزار شد.
+
+🔸در این جلسه که اولین جلسه از سومین سال مجلس دوازدهم بود، اعضای جدید هیئت رئیسه مجلس سوگند یاد کردند.
+
+🔸جلسه روز یک‌شنبه، دهم خردادماه، همچون جلسات معدود گذشته در مکانی مخفی برگزار شد.
+
+🔸محمدباقر قالیباف در همین جلسه تأکید کرد که «تا اطمینان پیدا نکنیم که حقوق ملت ایران را گرفته‌ایم، هیچ توافقی تأیید نمی‌شود».
+
+🔸قالیباف که از او به عنوان رئیس هیئت مذاکره‌کننده ایران نیز یاد می‌شود در این جلسه بیانیه‌ای را قرائت کرد و در آن ادعا کرد که «در حال عقب نشاندن دشمن در یک جنگ تاریخ‌ساز هستیم».
+
+@RadioFarda
+</div>
+
+## alonews — post 123915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱لطفا توییتر الونیوز رو دنبال کنین 
+🔴پست های انگلیسی در رابطه با جنایت های حکومت به انگلیسی نوشته شده و افراد مهم منشن و هشتگ های مهم قرار داده شده. 
+🔴ریپست کنین. مهمترین کمک این روزها جلوگیری از پروپاگاندا حکومت علیه این قتل عام مردم هستش. خونشون نباید پایمال…
+</div>
+
+## alonews — post 123914
+
+<div align="center">
+  <a href="telegram/content/alonews_123914_1780225399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای یک انفجار در محدوده شهرستان قشم از سوی چندین منبع محلی گزارش شده است. ساکنان مناطق مرکزی و جنوبی جزیره، وقوع این صوت ناگهانی را تأیید کرده‌اند. 
+🔴 بر اساس این گزارش، هنوز ماهیت این صداها به طور دقیق مشخص نیست. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123913
+
+<div align="center">
+  <a href="telegram/content/alonews_123913_1780225399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای یک انفجار در محدوده شهرستان قشم از سوی چندین منبع محلی گزارش شده است. ساکنان مناطق مرکزی و جنوبی جزیره، وقوع این صوت ناگهانی را تأیید کرده‌اند.
+
+
+🔴 بر اساس این گزارش، هنوز ماهیت این صداها به طور دقیق مشخص نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123912
+
+<div align="center">
+  <a href="telegram/content/alonews_123912_1780225399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو: به ارتش اسرائیل دستور داده‌ام دامنه عملیات نظامی در لبنان را گسترش دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 14:23
 ---
 
