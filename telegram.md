@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 00:05
+---
+
+## VahidOOnLine — post 243114
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243114_1780259739.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی عبدالله خانی‌، قائم‌مقام معاون راهبردی پزشکیان، با بیان اینکه «بیش از ۵۶ درصد مردم حداقل یک بار در تجمعات شبانه شرکت کردند» گفت: این حضور یعنی حفظ نظام جمهوری اسلامی را مد نظر داشتند.
+او اضافه کرد: «همه رده‌های سنی با تحصیلات مختلف در این اجتماعات حضور داشتند و ۷۰ درصد عاملیت جنبش بر عهده زنان بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243113
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243113_1780259740.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز یکشنبه در گفتگو با خبرگزاری صداوسیما با اشاره به آخرین وضعیت صدور ویزا برای اعضای تیم ملی فوتبال ایران گفت: «دیروز [شنبه] دوستان ما در ترکیه با سفارت مکزیک تماس‌های نزدیکی داشتند. سفارت مکزیک در آنکارا از انگشت‌نگاری [اعضای تیم ملی] صرف‌نظر کرده و بنابر هماهنگی قرار شد به گونه‌ای جلو برود که همه ویزاها صادر بشود.» او گفت:‌ «هرچه به ما بیشتر فشار آوردند، بیشتر جنگیدیم».
+پیش از این، دکتر جمشید ایرانی، وکیل دیوان عالی آمریکا، از صدور «مجوز موقت و مشروط برای ورود» (Parole) به بازیکنان تیم ملی فوتبال ایران خبر داد. این وکیل در پیامی که در صفحه فیسبوک خود به اشتراک گذاشت، با اشاره به تحقیق و پی بردن به تصمیم واشنگتن در قبال کاروان ورزشی ایران توضیح داد که وزارت امور خارجه آمریکا برای اعضای تیم ملی «ویزای معمولی» صادر نخواهد کرد، بلکه ورود آن‌ها به خاک این کشور در قالب این طرح مشروط خواهد بود که امتیازات ویزای عادی را ندارد.
+این تحولات درحالی رخ می‌دهد که تا روز جمعه هشتم خرداد ماه، وضعیت ویزای اعضای تیم ملی فوتبال مردان جمهوری اسلامی ایران، در کمتر از دو هفته به آغاز جام جهانی، با ابهاماتی روبه‌رو بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOnline — post 75824
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75824_1780259743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش تسنیم، خبرگزاری وابسته به سپاه، یکشنبه‌شب «نشت و انفجار شدید گاز» در یک مجتمع ۴۰ واحدی واقع در فاز یک اندیشه، دست‌کم ۴ مجروح برجای گذاشت. بر اساس اعلام سازمان آتش‌نشانی، این حادثه در طبقه سوم این مجتمع رخ داده و با توجه به شدت انفجار و ارزیابی‌های اولیه در محل، احتمال افزایش شمار مجروحان وجود دارد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339941
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339941_1780259744.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه مهاجرانی، سخنگوی دولت جمهوری اسلامی، گفت افزایش ارزش کالابرگ از مطلوبات دولت است، اما باید با مقدورات هماهنگ باشد. او با اشاره تلویحی به محاصره دریایی آمریکا به‌عنوان تحولات مرزهای جنوبی و اثر آن بر درآمد کشور افزود «فعلا خبری از افزایش مبلغ کالابرگ نیست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339940
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339940_1780259745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی عبدالله خانی‌، قائم‌مقام معاون راهبردی پزشکیان، با بیان اینکه «بیش از ۵۶ درصد مردم حداقل یک بار در تجمعات شبانه شرکت کردند» گفت: این حضور یعنی حفظ نظام جمهوری اسلامی را مد نظر داشتند.
+او اضافه کرد: «همه رده‌های سنی با تحصیلات مختلف در این اجتماعات حضور داشتند و ۷۰ درصد عاملیت جنبش بر عهده زنان بود.»
+https://iranintl.com/202605314070
+</div>
+
+## IranIntlTV — post 339939
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339939_1780259746.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علیرضا دبیر، رییس فدراسیون کشتی، درباره شماری از مخالفان جمهوری اسلامی در آمریکا گفت: «من ۱۴۰ رفیق درست و حسابی در آمریکا دارم که دکتر و مهندس هستند. نگاه نکنید چهار نفر می‌آیند جلوی دوربین می‌رقصند. این افراد لش و لوش‌هایی بودند که چند سال پیش فرار کردند و رفتند.»
+
+🔹علیرضا دبیر پیشتر بخشی از ایرانیان خارج از کشور را «آویزان»، «پلشت» و «به دردنخور» خطاب کرده بود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339938
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339938_1780259749.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از سه ماه خاموشی مطلق، کم‌کم عده بیشتری در ایران به اینترنت وصل می‌شوند؛ جمهوری اسلامی چطور با استقرار یک پادگان دیجیتال، حق ارتباط ده‌ها میلیون ایرانی را مصادره کرد؟ این انزوای بی‌سابقه چگونه از نظر فنی، مهندسی شد، خسارت‌ ده‌ها میلیارد دلاری آن بر دوش چه کسانی است و آمران و پیمانکاران اجرایی این خاموشی دقیقا چه کسانی هستند؟ امشب قطع سراسری اینترنت در ایران را زیر ذره‌بین می‌بریم.
+
+اصلاحیه: در بخشی از برنامه عدد خسارت روزانه قطعی اینترنت بین «۷۰ تا ۸۰ میلیارد دلار» ذکر شده. رقم صحیح روزانه «۷۰ تا ۸۰ میلیون دلار» است.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: acceladealer ✓ @acceladealer Sun, 31 May 2026 19:44:43 UTC Damage to building following explosion (claimed targeted assassination) in SHAHRIAR [شهريار], Iran 35.680714, 51.022755 @GeoConfirmed @EpicFuryMap @FaytuksNetwork geolocated by…
+</div>
+
+## Shin_Persian — post 6340
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6340_1780259752.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+acceladealer ✓ @acceladealer
+Sun, 31 May 2026 19:44:43 UTC
+
+Damage to building following explosion (claimed targeted assassination) in SHAHRIAR [شهريار], Iran
+
+35.680714, 51.022755
+
+@GeoConfirmed @EpicFuryMap @FaytuksNetwork
+
+geolocated by @acceladealer
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+خسارت به ساختمان در پی انفجار (ادعای ترور هدفمند) در شهریار، ایران
+
+۳۵.۶۸۰۷۱۴, ۵۱.۰۲۲۷۵۵
+
+@GeoConfirmed @EpicFuryMap @FaytuksNetwork
+
+تایید جغرافیایی توسط @acceladealer_
+
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 124060
+
+<div align="center">
+  <a href="telegram/content/alonews_124060_1780259753.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اوکراین تعدادی پهپاد انتحاری به سمت روسیه پرتاب کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124059
+
+<div align="center">
+  <a href="telegram/content/alonews_124059_1780259754.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مرندی: اگر نتانیاهو در جنوب لبنان متوقف نشود، اقتصاد آمریکا در ماه ژوئن فرو می‌پاشد، زمان در حال تمام شدن است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124058
+
+<div align="center">
+  <a href="telegram/content/alonews_124058_1780259754.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه خبری المیادین گزارش داد صدای چند انفجار در مرکز منطقه کردستان عراق شنیده شده است.
+
+
+🔴هنوز علت انفجارها مشخص نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 23:53
 ---
 
