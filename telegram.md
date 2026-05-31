@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 21:42
+---
+
+## VahidOOnLine — post 243085
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243085_1780251171.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دوا لیپا، خواننده بریتانیایی-آلبانیایی و کالوم ترنر، بازیگر بریتانیایی، روز یکشنبه دهم خرداد ماه در مراسمی خصوصی در لندن ازدواج کرده‌اند.
+
+به گزارش مجله ووگ، این مراسم در ساختمان تاریخی «اولد ماریلبون تاون هال» در لندن و با حضور جمع محدودی از اعضای خانواده و دوستان نزدیک برگزار شد. دوا لیپا در این مراسم لباسی سفید از برند اسکیاپارلی بر تن داشت و کالوم ترنر نیز با کت‌وشلواری کلاسیک در کنار او حاضر شد.
+
+ووگ نوشت این مراسم آغاز جشن‌های ازدواج این زوج است و قرار است طی روزهای آینده جشن بزرگ‌تری با حضور مهمانان سرشناس در جزیره سیسیل ایتالیا برگزار شود.
+
+دوا لیپا و کالوم ترنر از اوایل سال ۲۰۲۴ وارد رابطه شدند و در سال ۲۰۲۵ نامزدی خود را تایید کردند. این زوج در ماه‌های گذشته بارها در رویدادهای عمومی و هنری در کنار یکدیگر دیده شده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243084
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243084_1780251172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش العربیه، دادستانی بحرین اعلام کرد که تحقیقات درباره تشکیلات مرتبط با سپاه پاسداران در این کشور را آغاز کرده است.
+
+بر اساس اعلام دادستانی بحرین، این تشکیلات، روحانیون مخالف رویکرد ولایت فقیه را مورد ارعاب قرار داده و به انتقال پول به گروه‌هایی در ایران، عراق و لبنان اقدام کرده است.
+
+بر اساس این بیانیه، اموال این گروه توقیف شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339920
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339920" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: استعفای پزشکیان به دلیل تسلط کامل سپاه؛ مجتبی خامنه‌ای می‌پذیرد؟
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219199
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219199_1780251173.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنبه ٩ خرداد ۱۴۰۵، گروهی از پرستاران در یزد در اعتراض به «واریز نشدن تعرفه‌های خدمات پرستاری از شش ماه گذشته و تداوم بی‌عدالتی‌های صنفی و مزدی» با شعار «پرستار داد بزن، حقتو فریاد بزن» مقابل ساختمان استانداری تجمع کردند.
+</div>
+
+## FarsiVOA — post 219198
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جمهوری اسلامی سه تن از معترضان دی را به بیش از ۹ سال حبس محکوم کرد
+
+◾️قوه قضائیه جمهوری اسلامی سه جوان اهل دره‌شهر استان ایلام و ساکن کرج به نام‌های محمدامین شمسی، امیر امرایی، و کامیار امرایی را که در جریان اعتراضات دی‌ماه ۱۴۰۴ بازداشت و در قزل‌حصار زندانی شده‌اند، جمعا به ۹ سال و ۳ ماه حبس محکوم کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/prison-three-kurdish-youths-qezel-hesar-judiciary/8155814.html
+</div>
+
+## FarsiVOA — post 219197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سناتور گراهام: پرزیدنت ترامپ «توافق بد» با رژیم ایران را نمی‌پذیرد
+
+◾️لیندسی گراهام، سناتور ارشد جمهوری‌خواه از ایالت کارولینای جنوبی، یکشنبه ۱۰ خرداد، در شبکه ایکس با اشاره به گفت‌و‌گوی اخیرش با دونالد ترامپ، رئیس جمهوری آمریکا، نوشت: «یقین دارم دونالد ترامپ با یک توافق بد با [رژیم] ایران موافقت نخواهد کرد.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/lindsey-graham-iran-israel-hezbollah/8155794.html
+</div>
+
+## alonews — post 124016
+
+<div align="center">
+  <a href="telegram/content/alonews_124016_1780251176.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: ویزای تیم ملی فوتبال ظرف یک تا دو روز آینده صادر می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124015
+
+<div align="center">
+  <a href="telegram/content/alonews_124015_1780251176.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو، در مورد گسترش حمله لبنان امشب تشکلیل جلسه میده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124014
+
+<div align="center">
+  <a href="telegram/content/alonews_124014_1780251176.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: پیش‌بینیتون از نتایج تیم ملی تو جام جهانی چیه
+
+
+🔴 پزشکیان: مهم نیس تلاششونو بکنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124013
+
+<div align="center">
+  <a href="telegram/content/alonews_124013_1780251178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۵ عبری: گسترش عملیات اسرائیل در لبنان با هماهنگی دولت آمریکا انجام شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 21:32
 ---
 
