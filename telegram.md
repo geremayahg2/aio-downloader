@@ -7,6 +7,144 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 23:33
+---
+
+## WithYashar — post 13104
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در فاز یک اندیشه شهریار خیابان شیشم شرقی در یک ساختمان که چندین مصدوم داشته @withyashar
+</div>
+
+## WithYashar — post 13103
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13103_1780257822.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 13102
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند قم فعال شد 🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 9960
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️یک فروند هواپیمای گشت دریایی P-8A پوزیدون نیروی دریایی ایالات متحده امروز بر فراز دریای عرب فعال بود.
+
+✈️به‌طور جداگانه، یک فروند دیگر از هواپیماهای گشت دریایی P-8A نیروی دریایی آمریکا از کمپ لمونیه در جیبوتی به پایگاه هوایی شاهزاده سلطان در عربستان سعودی پرواز کرد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9959
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9959_1780257823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️نیروی هوایی ایالات متحده آمریکا (USAF)
+
+Boeing E-3 Sentry: یک فروند✈️
+AE11DF 77-0351 – ANDOR 54
+
+Boeing KC-46 Pegasus: دو فروند✈️
+AE5FA5 11-46058 – YETI ??
+AE5FA1 18-46054 – YETI ??
+
+Boeing KC-135 Stratotanker: یک فروند✈️
+AE058B 57-1514 – علامت تماس نامشخص
+
+
+📌بر اساس داده‌های فلایت‌رادار، امشب سه هواپیمای سوخت‌رسان و یک فروند آواکس E-3 بر فراز منطقه مسئولیت سنتکام مشاهده شده‌اند.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 339935
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339935_1780257824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، اشکان مالکی و مهرداد محمدی‌نیا، دو معترض بازداشت‌شده در جریان انقلاب ملی در دی‌ماه ۱۴۰۴، در معرض خطر اجرای قریب‌الوقوع حکم اعدام قرار دارند. 
+بنا بر این گزارش، این دو جوان معترض در زندان قزلحصار محبوس هستند. 
+دادگاه رسیدگی به پرونده اشکان مالکی و مهرداد محمدی‌نیا روز دوم اسفند در شعبه ۱۵ دادگاه انقلاب به ریاست ابوالقاسم صلواتی برگزار شد. این دو معترض در نهایت به اعدام محکوم شدند و بر اساس اطلاعات دریافتی، در معرض اجرای حکم قرار دارند. 
+اشکان مالکی و مهرداد محمدی‌نیا در این پرونده به «محاربه از طریق تحریق و تخریب مسجد جعفری و حوزه علمیه امام هادی در کوی نصر تهران» متهم شده‌اند. 
+در همین پرونده، آرمان معرفتی، دیگر معترض بازداشت‌شده که هم‌اکنون در زندان تهران بزرگ نگهداری می‌شود، به «اجتماع و تبانی علیه امنیت داخلی کشور» متهم شده است.
+https://iranintl.com/202605317088
+</div>
+
+## IranIntlTV — post 339934
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339934_1780257825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی شیرازی، عضو تحریریه ایران‌اینترنشنال، درباره سناریوی پذیرش استعفای مسعود پزشکیان از سوی مجتبی خامنه‌ای گفت: «در چنین شرایطی، کشور وارد حکومت نظامی خواهد شد؛ وضعیتی که در آن فرماندهان سپاه پاسداران به‌طور علنی زمام امور مرتبط با زندگی مردم را در دست خواهند گرفت.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15417
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15417_1780257828.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/KH1FJLD8MjM?feature=share
+</div>
+
+## BBCPersian — post 282513
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282513_1780257829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+عباس عراقچی، وزیر امور خارجه ایران گفته است که گفت‌وگوها و تبادل پیام‌ها بین ایران و آمریکا برای خاتمه جنگ همچنان در جریان است و تا زمانی که به نتیجه مشخصی نرسد، نمی‌توان درباره آن قضاوت کرد.
+
+او در گفت‌وگو با خبرگزاری صدا و سیما با اشاره به ادامه تبادل پیام‌ها بین ایران و آمریکا برای خاتمه جنگ با میانجی گری پاکستان، گفته است تا زمانی که این اقدامات به نتیجه خاصی نرسد، گمانه‌زنی‌های مطرح‌شده در این زمینه فاقد اهمیت است.
+
+او افزود: همه آنچه در حال حاضر درباره مذاکرات در رسانه ها مطرح می‌شود، در حد گمانه‌زنی است و به نظر من نباید به این گمانه‌زنی‌ها اهمیت داده شود تا وقتی موضوعات به مرحله قطعیت برسد.
+
+https://trib.al/c8Cs9MF
+📷eghtesadnews
+@BBCPersian
+</div>
+
+## alonews — post 124051
+
+<div align="center">
+  <a href="telegram/content/alonews_124051_1780257829.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی: به ساعت صفر برسیم حتما نظامیان ما اقدام خواهند کرد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124050
+
+<div align="center">
+  <a href="telegram/content/alonews_124050_1780257830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سخنگوی کمیسیون امنیت ملی مجلس: ما هیچ تعهدی در موضوع هسته‌ای در مقابل طرف آمریکایی نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 23:23
 ---
 
