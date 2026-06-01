@@ -7,6 +7,108 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 18:13
+---
+
+## VahidOOnLine — post 243238
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243238_1780325026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد دوشنبه ۱۱ خرداد، یک حادثه در ۷۴ کیلومتری جنوب‌شرق بندر ام‌القصر عراق رخ داده
+بر اساس این گزارش، یک کشتی باری هنگام عبور از خلیج فارس پس از برخورد با پرتابه ناشناس، در سمت راست بدنه دچار انفجار شده است
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 5223
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5223_1780325026.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 «زیرصدا»
+قسمت اول
+پخش یکشنبه‌ها، بازپخش پنجشنبه‌ها
+
+@DEJradio
+</div>
+
+## IranIntlTV — post 340064
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340064_1780325027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد دوشنبه ۱۱ خرداد، یک حادثه در ۷۴ کیلومتری جنوب‌شرق بندر ام‌القصر عراق رخ داده است.
+بر اساس این گزارش، یک کشتی باری هنگام عبور از خلیج فارس پس از برخورد با پرتابه ناشناس، در سمت راست بدنه دچار انفجار شده است.
+https://iranintl.com/202606012946
+</div>
+
+## IranIntlTV — post 340063
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340063_1780325027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۱۱ خرداد
+@iranintltv
+</div>
+
+## IranianMinds — post 21189
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21189_1780325029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرودگاه بن گوریون در اسرائیل، تل‌آویو، انبوه هوایپماهای نظامی آمریکا.
+
+@IranianMinds
+</div>
+
+## alonews — post 124225
+
+<div align="center">
+  <a href="telegram/content/alonews_124225_1780325031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع بریتانیا می‌گوید یک پرسنل ارتش بریتانیا دیروز در یک حادثه آموزشی در شمال عراق کشته شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124224
+
+<div align="center">
+  <a href="telegram/content/alonews_124224_1780325031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت کشور کویت: به ساکنان خود هشدار می‌دهیم که در انتظار حمله قریب‌الوقوع ایران در مکان‌های امن بمانند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124223
+
+<div align="center">
+  <a href="telegram/content/alonews_124223_1780325031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان حمل و نقل دریایی بریتانیا (UKMTO) گزارش می‌دهد که یک کشتی باری که در خلیج فارس در حال عبور بوده، در ۴۰ مایل دریایی جنوب شرقی ام قصر عراق مورد حمله قرار گرفته است.
+
+
+🔴 «یک انفجار بزرگ» پس از اصابت یک پرتابه ناشناخته به سمت راست کشتی رخ داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 18:03
 ---
 
