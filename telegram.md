@@ -7,6 +7,142 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 01:03
+---
+
+## WithYashar — post 13216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+WarRoom with YASHAR pinned «پست شد اینستاگرام سر‌ساعت https://www.instagram.com/p/DZDi1pCEfvI/?igsh=MWN3ZWNhdWxqbmk0OA== لطفاً این پست را استوری کنید و برای تمام افراد مرتبط با شاهزاده رضا پهلوی و شخص خود ایشان و تمامی پیجهای ایشان ارسال کنید.»
+</div>
+
+## WithYashar — post 13215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شروط حزب الله برای آتش بس:
+
+آتش بس فراگیر در تمامی مناطق لبنان
+عقب نشینی کامل ارتش اسرائیل از جنوب لبنان
+عدم تجاوز به خاک کشور
+
+در غیر اینصورت حزب الله اعلام کرده توافقی در کار نیست.
+@withyashar
+</div>
+
+## IranIntlTV — post 340116
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340116_1780349619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که به‌تازگی از تصاویر دوربین مداربسته پالایشگاه عسلویه در شبکه‌های اجتماعی منتشر شده، نشان می‌دهد اسرائیل و آمریکا در جنگ اخیر، در حمله به این پالایشگاه، نقطه‌زنی کرده‌اند.
+
+گزارش‌های منتشرشده حاکی است این تصاویر مربوط به شرکت‌های مستقر در سایت پتروشیمی منطقه پارس است.
+
+نفت آنلاین، رسانه صنعت نفت ایران، در پی انتشار این ویدیو خواستار برخورد شدید نهادهای امنیتی با منتشرکنندگان آن و برکناری مدیرعامل شرکت صاحب این دوربین شد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 219319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جنگ در ایران؛ پیامدها و چالش‌های تازه برای میلیون‌ها مهاجر افغان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219318
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219318_1780349620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چرا جمهوری اسلامی به رغم «بدگمانی» مذاکره با آمریکا را ترک نمی‌کند؟ گفت‌وگو با فرزانه روستایی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219317
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219317_1780349621.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پیشروی اسرائیل و تضعیف پایگاه حزب‌الله؛ گفت‌وگو با حسن هاشمیان
+@FarsiVOA
+</div>
+
+## BBCPersian — post 282596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+پس از تهدید نخست وزیر اسرائیل درباره از سرگیری حملات به بیروت، دونالد ترامپ، رئیس جمهوری آمریکا می‌گوید پس از گفت‌وگو با آقای نتانیاهو و همچنین تماس از طریق واسطه‌ها با حزب‌الله بین طرفین توافق حاصل شده که حمله به بیروت متوقف شود.
+
+با تهدیدهای مقامات اسرائیلی درباره حمله به بیروت، باعث شد بسیاری حومه جنوبی این شهر را ترک کنند.
+
+این در حالیست که ارتش اسرائیل دیروز قلعه استراتژیک و تاریخی شقیف را در جنوب لبنان به تسخیر خود درآورد.
+
+پیشروی که مقامات اسرائیلی آن را دست‌آوردی مهم در جنگ با حزب‌الله می‌خوانند. امروز بمباران‌ها در این نواحی ادامه داشت و این ارتش باز به بسیاری از شهرها و روستاها دستور تخلیه اجباری صادر کرد.
+
+نفیسه کوهنورد، خبرنگار ارشد خاورمیانه ما از بیروت در گزارشش درباره آخرین‌ها در لبنان می‌گوید.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از دوالیپا و شوهرش بعد ازدواج تو یه ساحل
+
+حجم ازدواج این مدت واقعا رفته بالا حتی دوا لیپا هم رفت خونه بخت الان فقط من موندم و پزشکیان.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390787
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390787_1780349622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⁨
+رویکرد جالب مراد ویسی به فاطمه مهاجرانی 😄
+
+عمو مراد من فاطمه مهاجرانی تو صورتش نگاه کنم دیگه راست نمیکنم... 🤢
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124336
+
+<div align="center">
+  <a href="telegram/content/alonews_124336_1780349622.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرانسه: ورود نظامی اسرائیل به داخل لبنان یک اشتباه استراتژیک است
+
+
+🔴«ژروم بونافو»، نماینده فرانسه در جلسه شورای امنیت درباره لبنان گفت:
+
+
+🔴ما خواستار برگزاری این نشست اضطراری در پاسخ به تشدید تنش‌های بزرگ اسرائیل در لبنان شدیم.
+
+
+🔴هیچ چیز نمی‌تواند ادامه عملیات نظامی اسرائیل در لبنان را توجیه کند.
+
+
+🔴نفوذ رو به افزایش اسرائیل به داخل خاک لبنان، یک اشتباه استراتژیک بزرگ محسوب می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 00:53
 ---
 
