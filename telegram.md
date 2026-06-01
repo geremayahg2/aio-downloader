@@ -7,6 +7,42 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 06:53
+---
+
+## VahidOOnLine — post 243142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️براساس تصاویر منتشر شده در شبکه‌های اجتماعی، احمد الشرع، رئیس‌جمهوری سوریه و همسرش لطیفه الدروبی، در جدیدترین حضور غیررسمی خود در یکی از رستوران‌های شهر دمشق دیده شدند. این حضور علنی در حالی صورت گرفت که او پیش از این نیز در ۳۱ فروردین‌ماه، با حضور در مراسم افتتاحیه ورزشگاه «الفیحا» دمشق و انجام بازی بسکتبال، توجه رسانه‌ها را به خود جلب کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9966
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9966_1780284182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ستاد کل ارتش کویت دوشنبه، ۱ ژوئن ۲۰۲۶ پدافند هوایی کویت در حال حاضر در حال مقابله با تهدیدات موشکی و پهپادی متخاصم است. ستاد کل نیروهای مسلح کویت تایید می‌کند که هرگونه صدای انفجاری که ممکن است شنیده شود، ناشی از رهگیری اهداف متخاصم توسط سامانه‌های پدافند…
+</div>
+
+## VahidOnline — post 75828
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75828_1780284183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'شلیک موشک از #امیدیه در خوزستان'
+تصاویر دریافتی، دوشنبه ۱۱ خرداد ساعت ۶:۳۰ به وقت #ایران
+Vahid
+
+📡 @VahidOnline
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 06:42
 ---
 
