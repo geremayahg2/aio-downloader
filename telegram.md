@@ -7,6 +7,251 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 20:14
+---
+
+## VahidOOnLine — post 243255
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243255_1780332243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با خبرنگار ان‌بی‌سی اعلام کرد که درباره ایران «بیش از حد صحبت شده» است و افزود: «اگر بخواهید حقیقت را بگویید، فکر می‌کنم سکوت کردن می‌تواند گزینه بهتری باشد».
+
+دونالد ترامپ درباره توقف مذاکرات از سوی تهران به دلیل حملات به لبنان گفت که پیش از این تصمیم، از آن مطلع نشده بود. او افزود: «این به این معنا نیست که ما برویم و شروع به بمباران همه‌جا کنیم. ما محاصره را ادامه خواهیم داد».
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13164
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13164_1780332243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## WithYashar — post 13163
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم رئیس جدید موساد به دلیل تماس تلفنی ترامپ و نتانیاهو لغو شد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342472
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342472_1780332244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Sheridan Gorman's family blames sanctuary policies and "failed removal policies" for the murder of their daughter, allegedly by an illegal immigrant with a criminal background.
+
+Speaking outside the Cook County courthouse following a discovery hearing, Sheridan's father, Thomas Gorman, says failed border enforcement, removal policies, and local cooperation allowed Jose Medina to remain in the country and ultimately cross paths with his daughter.
+
+"Jose Medina is responsible for what he did to Sheridan, but he did not get to Sheridan himself."
+
+"He got there through a broken system, through failed border enforcement, failed removal policies, failed local cooperation, and sanctuary policies that put ideology before safety."
+
+"American families deserve to be protected in their own country."
+</div>
+
+## pm_afshaa — post 92038
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92038_1780332247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: هم‌اکنون نتانیاهو و ترامپ باهم تماس تلفنی برقرار کردن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92037
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92037_1780332247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: هم‌اکنون نتانیاهو و ترامپ باهم تماس تلفنی برقرار کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92036
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92036_1780332248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس پارلمان لبنان: حزب‌الله آماده پذیرش یک آتش‌بس کامل و فوری با اسرائیل است. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92035
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92035_1780332249.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس پارلمان لبنان:
+حزب‌الله آماده پذیرش یک آتش‌بس کامل و فوری با اسرائیل است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5228
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5228_1780332249.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📷 ارتش اسرائیل با اعلام قبلی مواضع گروه تروریستی حـ.ـزب‌الله در جنوب بیروت (ضاحیه) را بمباران کرد. بنیامین نتانیاهو نخست وزیر اسرائیل در پیامی هشدار داد «اجازه نمی‌دهیم حزب‌الله به شهروندان اسرائیلی حمله کند و در بیروت در امان بماند.»
+
+علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، در واکنش به صدور هشدار تخلیه برای شهروندان جنوب بیروت گفت: «با توجه به نقض مکرر آتش‌بس توسط اسرائیل، در صورت عملی‌شدن این تهدید به ساکنان بخش‌های شمالی و شهرک‌های نظامی در اسرائیل هشدار می‌دهیم اگر نمی‌خواهند آسیب ببینند منطقه را ترک نمایند.»
+
+#ارتش_اسرائیل #حزب_الله_لبنان
+@DEJradio
+</div>
+
+## IranIntlTV — post 340081
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340081_1780332250.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قانون جدید پناهندگی کانادا که با هدف کاهش پرونده‌های معوقه تصویب شده، نگرانی‌ها درباره وضعیت متقاضیان را افزایش داده است. منتقدان می‌گویند این قانون افرادی را که از سرکوب و نقض حقوق بشر در ایران گریخته‌اند، در شرایط بلاتکلیفی قرار دهد.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340080
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340080_1780332252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با خبرنگار ان‌بی‌سی اعلام کرد که درباره ایران «بیش از حد صحبت شده» است و افزود: «اگر بخواهید حقیقت را بگویید، فکر می‌کنم سکوت کردن می‌تواند گزینه بهتری باشد».
+
+دونالد ترامپ درباره توقف مذاکرات از سوی تهران به دلیل حملات به لبنان گفت که پیش از این تصمیم، از آن مطلع نشده بود. او افزود: «این به این معنا نیست که ما برویم و شروع به بمباران همه‌جا کنیم. ما محاصره را ادامه خواهیم داد».
+https://iranintl.com/202606010169
+</div>
+
+## FarsiVOA — post 219284
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219284_1780332252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام اعلام کرد هزاران نیروی نظامی آمریکا در دریا، هوا و خشکی از محاصره آمریکا علیه جمهوری اسلامی حمایت می‌کنند.
+
+سنتکام همچنین اعلام کرد تا ۱۱ خرداد، مسیر ۱۲۱ کشتی تجاری تغییر داده شده و ۵ فروند نیز از کار افتاده‌اند.
+
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ و نتانیاهو درحال گفتگو به صورت تلفنی هستند
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رییس پارلمان لبنان:
+
+حزب‌الله آماده پذیرش یک آتش‌بس کامل و فوری با اسرائیله.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21191
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21191_1780332254.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹اگر میخوای قبل جام جهانی با بازی های دوستانه مثل رضا کینگ کونگ پول دربیاری همین الان وارد کانال شو 
+👇
+👇
+
+https://t.me/+YF28GUBRSZkwYTlk
+https://t.me/+YF28GUBRSZkwYTlk
+
+
+‼️با درآمد دلاری پیشبینی های این کانال شرایط بهتر میشه g11🔥
+</div>
+
+## Hranews — post 113309
+
+<div align="center">
+  <img src="telegram/content/Hranews_113309_1780332254.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیرحسین سعادت در تبریز بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز دوشنبه ۱۱ خرداد، امیرحسین سعادت، دبیر پیشین شورای صنفی دانشگاه علامه طباطبایی، توسط ماموران اداره اطلاعات در تبریز #بازداشت و به مکان نامعلومی منتقل شد. همزمان، منزل وی مورد تفتیش قرار گرفت و شماری از لوازم شخصی این شهروند نیز توسط ماموران ضبط شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، امیرحسین سعادت در تبریز بازداشت شد.
+
+بر اساس اطلاعات دریافتی هرانا، آقای سعادت صبح امروز بدون ارائه حکم قضایی توسط ماموران اداره اطلاعات در محل کار خود بازداشت و به مکان نامعلومی منتقل شد. بازداشت وی با خشونت و ضرب و شتم همراه بوده است.
+یک منبع مطلع نزدیک به خانواده این شهروند ضمن تایید این موضوع به هرانا گفت: “وی طی یک تماس تلفنی کوتاه با خانواده‌اش از بازداشت خود خبر داده اما به محل نگهداری خود اشاره‌ای نکرده است. همزمان منزل امیرحسین توسط ماموران مورد تفتیش قرار گرفته است. در جریان این بازرسی، شماری از وسایل شخصی وی از جمله تلفن همراه، لپ‌تاپ و پاسپورت او ضبط شده است.”
+
+ادامه مطلب
+
+#امیرحسین_سعادت
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 124257
+
+<div align="center">
+  <a href="telegram/content/alonews_124257_1780332255.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گفتگوی تلفنی ترامپ و نتانیاهو
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124256
+
+<div align="center">
+  <a href="telegram/content/alonews_124256_1780332255.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مشاور احمدی نژاد: نگران نباشید ، حال احمدی‌نژاد خوبه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 20:04
 ---
 
