@@ -7,6 +7,160 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 23:43
+---
+
+## VahidOOnLine — post 243279
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243279_1780344824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در شبکه ایکس نوشت: با ترامپ گفت‌وگو کردم و به او گفتم اگر حزب‌الله حملات خود به شهرها و غیرنظامیان ما را متوقف نکند، اسرائیل اهداف «تروریستی» را در بیروت هدف قرار خواهد داد.
+او افزود: این موضع ما همچنان پابرجاست و همزمان ارتش اسرائیل طبق برنامه، به عملیات خود در جنوب لبنان ادامه می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13205
+
+
+
+
+## DEJradio — post 5233
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5233_1780344825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🎥 اعتراض کامیونداران به افزایش بهای گازوئیل و خرابی جاده‌ها
+
+افزایش ۴۵ درصدی قیمت گازوئیل پس از آغاز جنگ ۴۰ روزه به یکی از مشکلات اساسی رانندگان تریلی تبدیل شده است اما این فقط بخشی از مشکلات آنهاست، زیرا کمبود سوخت در جایگاه‌های بین راهی باعث شده آنها مجبور شوند ساعت‌ها در صف‌های طولانی معطل شوند.
+
+از سویی دیگر خرابی جاده‌ها نیز سبب شده تا مخارج جانبی آنها برای خرید و تعویض قطعات افزایش پیدا کند، آنهم در شرایطی که قطعه و دستمزد تعمیرکار سر به فلک می‌کشد.
+
+#کامیونداران #اعتراضات_سراسری
+@DEJradio
+</div>
+
+## VahidOnline — post 75861
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75861_1780344828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری جمهوری اسلامی، ایرنا، روز دوشنبه ۱۱ خرداد از کشته‌شدن دو سپاهی در قم خبر داد.
+
+این خبرگزاری ادعا کرد که این دو بر اثر «انفجار پرتابه‌های باقی‌مانده از جنگ اخیر» کشته شده‌اند.
+
+طبق این گزارش، سپاه این دو نفر را حسین رمضانیان فردویی و محمد اویسی معرفی و محل کشته شدن آن‌ها را منطقه فردو، در استان قم اعلام کرد.
+
+با این آمار تعداد تلفات سپاه در دوره آتش‌بس جاری میان جمهوری اسلامی با آمریکا و اسرائیل، و در خارج از درگیری‌های اخیر، دستکم به ۱۶ نفر افزایش یافته است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340111
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340111_1780344829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در شبکه ایکس نوشت: با ترامپ گفت‌وگو کردم و به او گفتم اگر حزب‌الله حملات خود به شهرها و غیرنظامیان ما را متوقف نکند، اسرائیل اهداف «تروریستی» را در بیروت هدف قرار خواهد داد.
+او افزود: این موضع ما همچنان پابرجاست و همزمان ارتش اسرائیل طبق برنامه، به عملیات خود در جنوب لبنان ادامه می‌دهد.
+https://iranintl.com/202606016655
+</div>
+
+## Persian_Trend_Official — post 15458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو دوم رو شروع میکنیم
+</div>
+
+## IranianMinds — post 21213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز زیاد از پیاما گرفتم و خیلیا اومدن انتقاد کردن گفتم‌ خودتون‌ جواب بدید و نظرتونو نسبت به حرف ایشون بگید @IranianMinds
+</div>
+
+## IranianMinds — post 21212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز زیاد از پیاما گرفتم و خیلیا اومدن انتقاد کردن گفتم‌ خودتون‌ جواب بدید و نظرتونو نسبت به حرف ایشون بگید @IranianMinds
+</div>
+
+## BBCPersian — post 282595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 ارتش اسرائیل از کشته شدن یک سرباز و زخمی شدن هفت نفر دیگر در جنوب لبنان خبر داد
+
+ارتش اسرائیل اعلام کرد که یک سرباز این کشور در جنوب لبنان کشته شده است.
+
+به گفته اسرائیل هفت سرباز دیگر هم «در جریان درگیری‌ها» در جنوب لبنان زخمی شده‌اند.
+
+جزییات بیشتری از این خبر منتشر نشده است.
+
+https://bbc.in/4u49FGN
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390778
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390778_1780344830.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی بخاطر سطح طنزش باهاش تو رابطه‌ای و دیگه در مورد خودتم جک میسازه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390777
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390777_1780344830.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی با موضوع: [ژنتیک آل علی]
+
+هندزفری 🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124318
+
+<div align="center">
+  <a href="telegram/content/alonews_124318_1780344835.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روابط عمومی سپاه: در پی حمله ارتش امریکا به کشتی ایرانی " لیان استار" در محدوده دریای عمان، نیروی دریایی سپاه طی یک عملیات مقابله به مثل، کشتی "msc. sariska" با مالکیت دشمن امریکایی / اسرائیلی را با موشک کروز مورد هدف قرار داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124317
+
+<div align="center">
+  <a href="telegram/content/alonews_124317_1780344836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈۴ سوخت رسان آمریکایی در نزدیکی مرزهای ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 23:35
 ---
 
