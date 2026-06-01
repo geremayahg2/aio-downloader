@@ -7,6 +7,61 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 02:53
+---
+
+## IranIntlTV — post 340125
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340125_1780356225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین از تهران: جمهوری اسلامی راست می‌گه شکست‌ناپذیره؛ مدام شکست می‌خوره، اما نمی‌پذیره!
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/tuyTTtgx84o
+@iranintltv
+</div>
+
+## IranIntlTV — post 340124
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340124_1780356227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهاره از تورنتو: چرا توافق و مذاکره به رگ غیرت «ارزشی‌ها» برنمی‌خورد؟
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/tuyTTtgx84o
+@iranintltv
+</div>
+
+## IranIntlTV — post 340123
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340123_1780356229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یوسف از اسرائیل: توافقی نمی شود؛ما اسرائیلی ها اجازه نمی‌دهیم نتانیاهو مردم ایران را بفروشد
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/tuyTTtgx84o
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 02:43
 ---
 
