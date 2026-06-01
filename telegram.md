@@ -7,6 +7,221 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 18:44
+---
+
+## VahidOOnLine — post 243243
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243243_1780326850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه مصر با انتشار بیانیه‌ای که از سوی رسانه‌های عربی منتشر شد، اعلام کرد که حملات جمهوری اسلامی به کویت تنش‌ها را به سطحی خطرناک رسانده و امنیت و ثبات منطقه خلیج فارس را تهدید می‌کند.
+
+وزارت خارجه قطر نیز در شبکه ایکس اعلام کرد: «حملات مکرر جمهوری اسلامی به کویت را به‌شدت محکوم می‌کنیم. این اقدامات نقض آشکار حاکمیت کویت و تخطی فاحش از قوانین بین‌المللی به شمار می‌رود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243242
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243242_1780326852.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت دفاع اسرائیل محدودیت‌های دولت فرانسه علیه مقام‌ها و شرکت‌های اسرائیلی در نمایشگاه تسلیحاتی یوروساتوری را «شرم‌آور» توصیف کرد.
+
+او افزود: «شرکت‌های دفاعی اسرائیلی شرکت‌کننده در یوروساتوری از سوی دولت فرانسه تنها مجاز به نمایش محصولات پدافند هوایی خواهند بود.»
+
+سخنگوی وزارت دفاع اسرائیل ادامه داد که دولت فرانسه تصمیم گرفته مقام‌های اسرائیلی را از مشارکت رسمی در نمایشگاه دفاعی یوروساتوری در ماه جاری میلادی منع کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342470
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342470_1780326852.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Agitator wrestled to the ground by New Jersey State Police as officers move in to enforce a curfew outside Newark's Delaney Hall detention center.
+
+More than a dozen arrests have been made following days of escalating tensions around the ICE facility.
+
+Authorities say weekend clashes between rioters and law enforcement included burning tires, thrown projectiles, and confrontations that prompted an increased police presence.
+
+DHS sent a blunt warning to the agitators: "If you riot, you will face the consequences. Law and order prevails."
+</div>
+
+## IranIntlTV — post 340070
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340070_1780326856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه مصر با انتشار بیانیه‌ای که از سوی رسانه‌های عربی منتشر شد، اعلام کرد که حملات جمهوری اسلامی به کویت تنش‌ها را به سطحی خطرناک رسانده و امنیت و ثبات منطقه خلیج فارس را تهدید می‌کند.
+
+وزارت خارجه قطر نیز در شبکه ایکس اعلام کرد: «حملات مکرر جمهوری اسلامی به کویت را به‌شدت محکوم می‌کنیم. این اقدامات نقض آشکار حاکمیت کویت و تخطی فاحش از قوانین بین‌المللی به شمار می‌رود.»
+https://iranintl.com/202606016493
+</div>
+
+## IranIntlTV — post 340069
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340069_1780326856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت دفاع اسرائیل محدودیت‌های دولت فرانسه علیه مقام‌ها و شرکت‌های اسرائیلی در نمایشگاه تسلیحاتی یوروساتوری را «شرم‌آور» توصیف کرد.
+
+او افزود: «شرکت‌های دفاعی اسرائیلی شرکت‌کننده در یوروساتوری از سوی دولت فرانسه تنها مجاز به نمایش محصولات پدافند هوایی خواهند بود.»
+
+سخنگوی وزارت دفاع اسرائیل ادامه داد که دولت فرانسه تصمیم گرفته مقام‌های اسرائیلی را از مشارکت رسمی در نمایشگاه دفاعی یوروساتوری در ماه جاری میلادی منع کند.
+https://iranintl.com/202606016466
+</div>
+
+## IranIntlTV — post 340068
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340068_1780326857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر قرار باشد جمهوری اسلامی و آمریکا به یک توافق جامع و پایدار برسند، یکی از پرسش‌ها این خواهد بود: با صدها کیلوگرم اورانیوم غنی‌شده ایران چه باید کرد؟
+
+مهدی بیگی، عضو تحریریه ایران‌اینترنشنال، در «پیوست»، مقصد احتمالی نگهداری اورانیوم ۶۰ درصدی ایران را بررسی می‌کند
+@iranintltv
+</div>
+
+## FarsiVOA — post 219276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دانشجویان میان دو تیغ سرکوب کمیته‌‌های انضباطی و دادگاه‌‌های انقلاب: موج تعلیق، اخراج و احکام سنگین زندان
+
+▪️با وجود تعطیلی آموزش حضوری در دانشگاه‌های ایران، دانشجویان همچنان میان دو لبه دستگاه سرکوب جمهوری اسلامی یعنی «کمیته‌های انضباطی» و «دادگاه‌های انقلاب» تحت فشارهای فزاینده قرار دارند. در چند هفته گذشته فقط در چهار دانشگاه صنعتی شریف، علم و صنعت، بهشتی و تهران دست‌کم ۳۵۲ دانشجو با احضار یا احکام تعلیق و اخراج کمیته انضباطی مواجه شده‌اند و همزمان چند دانشجو نیز با حکم دادگاه‌ انقلاب به حبس‌های سه تا ده سال محکوم شده‌اند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/disciplinary-committees-revolutionary-court-prison-protesting-students/8156086.html/?nocach=1
+</div>
+
+## DW_Farsi — post 125389
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 هرمز، سوئز، پاناما؛ چرا فقط اولی نمی‌تواند عوارض بگیرد؟
+
+🔻گزارشی از Nik Martin
+
+حکومت ایران، پس از انتشار گزارش‌هایی مبنی بر آغاز دریافت تا دو میلیون دلار از هر کشتی برای "عبور ایمن" از تنگه هرمز، به اخاذی و تهدید امنیت انرژی جهان متهم شد.
+
+تنگه هرمز که میان ایران و عمان قرار دارد، حیاتی‌ترین گذرگاه انرژی جهان به شمار می‌رود. پیش از جنگ ایران، یک‌پنجم نفت و گاز مصرفی جهان از این مسیر عبور می‌کرد.
+
+جمهوری اسلامی این هزینه‌ها را غرامت جنگی برای خسارت‌های ناشی از حملات آمریکا و اسرائیل به ایران دانسته و همچنین آن را با پرداخت "خدمات ناوبری"، حفاظت از محیط زیست و تقویت امنیت توجیه می‌کند.
+
+ایران همچنین اعلام کرده است که در حال تدوین پیش‌نویس یک پروتکل مشترک با عمان است که کشتی‌ها را پیش از عبور از تنگه هرمز، ملزم به اخذ مجوز می‌کند.
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 390754
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390754_1780326860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه آخوند رفته با یه پسر جوون مصاحبه کنه، پسرم هیچ مراعاتی نکرد و خیلی تمیز رید به آخونده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390753
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390753_1780326863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها کسی که وقتی بهش عکس نشون میدی ،جنازه بهت تحویل میده😉
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️فقط در توتوی بزرگ بت فیدو میتونی با ۱۶۰ هزار تومن ۷۸ میلیون و یا حتی خیلی بیشتر برنده بشی
+😮 دلت میخاد اولین توتوی خودت رو ثبت کنی و شانست رو امتحان کنی؟!
+⚡️ کافیه روی لینک زیر کلیک کنی
+✏️ https://bet-fido.com https://bet-fido.com (ورود بدون وی پی ان آمریکا…
+</div>
+
+## Dirty_Kids — post 390751
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390751_1780326863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️فقط در توتوی بزرگ بت فیدو میتونی با ۱۶۰ هزار تومن ۷۸ میلیون و یا حتی خیلی بیشتر برنده بشی
+😮
+
+دلت میخاد اولین توتوی خودت رو ثبت کنی و شانست رو امتحان کنی؟!
+⚡️
+کافیه روی لینک زیر کلیک کنی
+✏️
+https://bet-fido.com
+https://bet-fido.com
+(ورود بدون وی پی ان آمریکا و اروپا)
+
+بت فیدو تنها سایت بین المللی که بدون احراز هویت و مشکلات پرداخت از ایران، به کاربران ایرانی سرویس میده
+🥇
+G11
+
+📱کانال تلگرام
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 390750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏مشکلتون با عبدل‌آباد هم فقط به خاطر اسمشه، اگه عبدل‌سنتر بود قربون صدقه‌ش میرفتید.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390749
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390749_1780326864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏اینا خیلی کسخلنننننن
+داره اعتراف میکنه میرن تجمعات پول میگیرن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124230
+
+<div align="center">
+  <a href="telegram/content/alonews_124230_1780326865.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در بنگاه شرط‌بندی مشهور آمریکا (Kalshi)، شانس بازگشت ترافیک دریایی تنگه هرمز به وضعیت نرمال تا 1 آگوست (11 مرداد)، به کمتر از 40% رسیده است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 18:33
 ---
 
