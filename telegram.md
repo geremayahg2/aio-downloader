@@ -7,6 +7,249 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 01:33
+---
+
+## VahidOOnLine — post 243288
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243288_1780351416.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار پیامی در شبکه اجتماعی «تروث سوشال» درباره جزئیات رایزنی‌های خود برای توقف درگیری‌ها در لبنان نوشت: «امروز گفتگویی با بنیامین نتانیاهو داشتم و از او خواستم که دست به یک حمله بزرگ در بیروت نزند، او نیروهایش را بازگرداند.» ترامپ افزود: «من همچنین گفتگویی با نمایندگان رهبران حزب‌الله داشتم و آن‌ها موافقت کردند که شلیک به سمت اسرائیل و سربازانش را متوقف کنند. به همین ترتیب، اسرائیل هم موافقت کرد که شلیک به سمت آن‌ها را متوقف کند.» رئیس‌جمهوری آمریکا در پایان پیام خود با ابراز امیدواری نسبت به پایداری این وضعیت نوشت: «ببینیم این وضعیت چقدر دوام می‌آورد. امیدوارم که برای همیشه باشد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342486
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342486_1780351416.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump says he spoke with Israeli Prime Minister Benjamin Netanyahu and persuaded him to turn Israeli troops around before a major operation in Lebanon.
+
+Trump also says he spoke with representatives of Hezbollah's leadership, who agreed to stop "shooting at Israel," while Israel agreed to stop firing in return.
+
+"Let's see how long that lasts," Trump wrote. "Hopefully it will be for ETERNITY!"
+</div>
+
+## VahidOnline — post 75862
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75862_1780351417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ، ترجمه ماشین:
+امروز با بی‌بی نتانیاهو گفت‌وگویی داشتم و از او خواستم وارد یک حمله بزرگ به بیروتِ لبنان نشود. او نیروهایش را برگرداند. ممنون بی‌بی!
+
+همچنین با نمایندگان رهبران حزب‌الله گفت‌وگو کردم و آن‌ها پذیرفتند که تیراندازی به اسرائیل و سربازانش را متوقف کنند. به همین ترتیب، اسرائیل هم پذیرفت که تیراندازی به آن‌ها را متوقف کند.
+
+ببینیم این وضعیت چقدر دوام می‌آورد — امیدوارم تا ابد ادامه داشته باشد!
+
+رئیس‌جمهور دونالد ج. ترامپ
+realDonaldTrump
+خیلی شبیه به پست چند ساعت پیشش به نظر می‌رسه. به نظر می‌رسه همون رو بازنویسی کرده ولی قبلی رو حذف نکرده.
+نظر چت‌ جی‌پی‌تی:
+
+در اصلِ پیام، تفاوت محتواییِ بنیادی ندارد:
+هر دو می‌گویند ترامپ با نتانیاهو صحبت کرده، نیروهای اسرائیلی از رفتن به بیروت منصرف شده‌اند، و از طریق نمایندگان/واسطه‌ها با حزب‌الله هم درباره توقف درگیری صحبت شده است. گزارش‌های خبری هم نسخه اول را با همین مضمون منتشر کرده‌اند.
+
+اما متن دوم از چند جهت مهم بازنویسی و تنظیم‌شده‌تر است:
+
+۱. ترامپ نقش خودش را پررنگ‌تر کرده
+
+در متن اول می‌گوید:
+تماس بسیار سازنده‌ای با نتانیاهو داشتم و نیروها به بیروت نمی‌روند...
+
+اما در متن دوم می‌گوید:
+از نتانیاهو خواستم وارد یک یورش بزرگ به بیروت نشود. او نیروهایش را برگرداند. ممنون بی‌بی!
+
+یعنی متن دوم بیشتر این برداشت را القا می‌کند که ترامپ شخصا جلوی حمله بزرگ به بیروت را گرفته و نتانیاهو به درخواست او عمل کرده است.
+
+۲. عبارت «حمله/یورش بزرگ به بیروت» اضافه شده
+
+در متن اول فقط می‌گوید:
+نیروها به بیروت نمی‌روند.
+
+در متن دوم می‌گوید:
+وارد یک major raid of Beirut, Lebanon نشود.
+
+این مهم است، چون متن دوم وضعیت را جدی‌تر و عملیاتی‌تر تصویر می‌کند: نه فقط «نرفتن نیروها»، بلکه جلوگیری از یک عملیات بزرگ در بیروت.
+
+۳. تماس با حزب‌الله با احتیاط بیشتری بیان شده
+متن اول می‌گوید:
+I had a very good call with Hezbollah
+یعنی ظاهرا «تماس خیلی خوبی با حزب‌الله داشتم».
+
+اما متن دوم می‌گوید:
+I also had a conversation with Representatives of the Leaders of Hezbollah
+
+یعنی «با نمایندگان رهبران حزب‌الله صحبت کردم».
+
+این تغییر احتمالا برای این است که مستقیم نگویند ترامپ با خود حزب‌الله «تماس خیلی خوب» داشته؛ متن دوم آن را رسمی‌تر و غیرمستقیم‌تر می‌کند.
+
+۴. تعهد حزب‌الله محدودتر و دقیق‌تر بیان شده
+در متن اول:
+all shooting will stop — Israel will not attack them, and they will not attack Israel
+یعنی «همه تیراندازی‌ها متوقف می‌شود؛ اسرائیل به آنها حمله نمی‌کند و آنها به اسرائیل حمله نمی‌کنند.»
+
+در متن دوم:
+they agreed to stop shooting at Israel, and its soldiers. Likewise, Israel agreed to stop shooting at them.
+
+اینجا حزب‌الله مشخصا متعهد می‌شود به اسرائیل و سربازانش شلیک نکند و اسرائیل هم به آنها شلیک نکند.
+تفاوت ظریف این است که متن اول از «attack» استفاده می‌کند که گسترده‌تر است؛ متن دوم بیشتر روی «shooting» تمرکز دارد که ممکن است محدودتر از «حمله» باشد.
+
+۵. متن دوم تردید و شکنندگی توافق را اضافه می‌کند
+
+متن اول قاطعانه تمام می‌شود. اما متن دوم اضافه می‌کند:
+Let’s see how long that lasts — Hopefully it will be for ETERNITY!
+یعنی: «ببینیم چقدر دوام می‌آورد؛ امیدوارم برای همیشه باشد.»
+
+این جمله نشان می‌دهد ترامپ خودش هم دوام توافق را قطعی نمی‌داند و بیشتر حالت آرزویی/نمایشی به آن می‌دهد.
+
+جمع‌بندی کوتاه
+متن اول بیشتر شبیه اعلام رسمی یک توافق فوری است.
+متن دوم بیشتر شبیه بازنویسی سیاسی‌تر و شخصی‌تر همان پیام است؛ در آن ترامپ نقش خودش را برجسته‌تر کرده، تماس با حزب‌الله را غیرمستقیم‌تر توصیف کرده، عبارت «یورش بزرگ به بیروت» را اضافه کرده، و در پایان هم درباره دوام توافق تردید نشان داده است.
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 219323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ به‌ ای‌بی‌سی نیوز: احتمال دارد تفاهم‌نامه با جمهوری اسلامی هفته آینده امضا شود؛ مشکلی امروز پیش آمد که برطرف شد
+
+▪️دونالد ترامپ، رئیس‌جمهوری آمریکا گفت این احتمال وجود دارد که هفته آینده با جمهوری اسلامی توافقی برای تمدید آتش‌بس و بازگشایی تنگه هرمز امضا شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156190.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219322
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219322_1780351417.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فلاکت اقتصادی، فرسایش اجتماعی در ایران؛ گفت‌وگو با امین قضایی
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21223
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21223_1780351418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+«امروز با بیبی نتانیاهو صحبت کردم و از او خواستم حمله گسترده‌ای به بیروت لبنان انجام ندهد.
+
+او نیروهایش را عقب کشید. ممنون بیبی! همچنین اسرائیل موافقت کرد که دیگر به آن‌ها شلیک نکند.
+
+ببینیم این وضعیت چقدر دوام می‌آورد؛ امیدوارم برای همیشه ادامه داشته باشد!»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+شاید این هفته با ایران به توافق برسیم
+
+صلح با ایران شاید حتی بهتر از پیروزی نظامی باشد‌‌!
+
+@IranianMinds
+</div>
+
+## alonews — post 124352
+
+<div align="center">
+  <img src="telegram/content/alonews_124352_1780351418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ آمریکا: آماده‌ایم به جنگ برگردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124351
+
+<div align="center">
+  <img src="telegram/content/alonews_124351_1780351419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈4 سوخت رسان آمریکایی در نزدیکی مرزهای ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124350
+
+<div align="center">
+  <a href="telegram/content/alonews_124350_1780351420.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واکنش تاج به ناامن بودن شهر تیخوانا: کاری به مواد فروش‌های مکزیک نداریم و نمی‌خواهیم هم اصلاحشان کنیم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124349
+
+<div align="center">
+  <img src="telegram/content/alonews_124349_1780351421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دوستان این تبلیغاتی که پائین کانال نمایش داده میشه توسط تلگرامه و دست ما نیست و کلاهبرداری هست و فریب نخورید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124348
+
+<div align="center">
+  <img src="telegram/content/alonews_124348_1780351422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: فعلا جنگ نمیکنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124347
+
+<div align="center">
+  <img src="telegram/content/alonews_124347_1780351422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ:
+امروز با بی بی نتانیاهو صحبت کردم و از او خواستم که به حمله بزرگی به بیروت لبنان نپردازد. اون سربازاش رو برگردوند ممنون بیبی
+
+
+🔴من همچنین با نمایندگان رهبران حزب الله صحبت کردم ، و آنها موافقت کردند که تیراندازی به اسرائیل و سربازانش را متوقف کنند. به همین ترتیب ، اسرائیل موافقت کرد که به آنها شلیک نکند.
+
+
+🔴بذار ببینیم چقدر طول میکشه-امیدوارم برای ابدیت باشه!‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 01:23
 ---
 
