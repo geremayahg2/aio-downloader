@@ -7,6 +7,145 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 10:43
+---
+
+## VahidOOnLine — post 243170
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243170_1780297999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل خبر داد که به ارتش این کشور دستور داده، به اهدافی در حومه جنوبی بیروت حمله کنند.
+
+همزمان یسرائیل کاتز، وزیر دفاع اسرائیل تاکید کرد که نتانیاهو و او، به ارتش دستور دادند، اهدافی را در منطقه ضاحیه بیروت هدف قرار دهد.
+
+پیش‌تر یک مقام آمریکایی گفته بود که مارکو روبیو، وزیر خارجه ایالات متحده، با جوزف عون، رییس‌جمهوری لبنان، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مورد مذاکرات دیپلماتیک بین این دو کشور کفت‌وگو کرده و طرحی را برای «کاهش تدریجی تنش» پیشنهاد داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243169
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243169_1780298000.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال، استفاده ابزاری از کودکان را در ایست و بازرسی خیابان بنی‌هاشمی شیراز در شامگاه یکشنبه ۱۰ خرداد نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 91990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل طبق دستور ‌نتانیاهو و وزیر دفاع، در بیروت حمله شدیدی انجام خواهند داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91989
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91989_1780298003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از همدان موشک شلیک شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339991
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339991_1780298004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل خبر داد که به ارتش این کشور دستور داده، به اهدافی در حومه جنوبی بیروت حمله کنند.
+
+همزمان یسرائیل کاتز، وزیر دفاع اسرائیل تاکید کرد که نتانیاهو و او، به ارتش دستور دادند، اهدافی را در منطقه ضاحیه بیروت هدف قرار دهد.
+
+پیش‌تر یک مقام آمریکایی گفته بود که مارکو روبیو، وزیر خارجه ایالات متحده، با جوزف عون، رییس‌جمهوری لبنان، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مورد مذاکرات دیپلماتیک بین این دو کشور کفت‌وگو کرده و طرحی را برای «کاهش تدریجی تنش» پیشنهاد داده است.
+https://iranintl.com/202606017699
+</div>
+
+## IranIntlTV — post 339990
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339990_1780298004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال، استفاده ابزاری از کودکان را در ایست و بازرسی خیابان بنی‌هاشمی شیراز در شامگاه یکشنبه ۱۰ خرداد نشان می‌دهد.
+</div>
+
+## Persian_Trend_Official — post 15424
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15424_1780298007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران در حمله امروز صبح خود به پایگاه هوایی امریکا در کویت از یک فروند موشک بالستیک سوخت جامد دزفول استفاده کرده است.
+
+موشک بالستیک سوخت جامد دزفول با برد 1000 کیلومتر بخاطر بهرگیری از یک کلاهک جداشونده، ماکسیسم سرعت 9 ماخ و مانور های که برای اصلاح مسیر اتمام می‌دهد یکی از محلک ترین موشک های ساخت ایران برای هدف قرار دادن پایگاه های امریکا در سطح منطقه محسوب میشود.
+
+ولی نکته جالبتر ماجرا این است که امریکا به طور رسمی سرنگونی MQ-1 خود را گردن گرفت! پهپاد MQ-1 سال هاست که از ارتش امریکا بازنشسته شده، شاید دلیل مجدد عملیاتی شدن این پهپاد در سازمان رزم نیروی هوایی امریکا جایگزینی سریع آن با ناوگان MQ-9 های منهدم شده در جنگ اخیر باشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21172
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21172_1780298008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این روزا خود عرزشیام ضد جمهوری اسلامی شدن!
+
+میخوان عید غدیر جشن پیروزی بگیرن، آخه چه جشنی؟ ما حتی هنوز رهبرمون هم دفن نکردیم.
+
+تا کی میخواین مارو گول بزنین، مگه رهبر شهیدمون نمی گفت با آمریکا مذاکره نکنین؟ دیگه حالم ازتون بهم میخوره.
+
+@IranianMinds
+</div>
+
+## alonews — post 124099
+
+<div align="center">
+  <a href="telegram/content/alonews_124099_1780298009.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام: در پایان این هفته، در عملیاتی کاملاً دفاعی، به چندین مواضع جمهوری‌اسلامی در قشم حمله شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124098
+
+<div align="center">
+  <a href="telegram/content/alonews_124098_1780298009.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو:
+به ارتش دستور داده‌ام ضاحیهٔ جنوبی بیروت را هدف حمله قرار دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 10:33
 ---
 
