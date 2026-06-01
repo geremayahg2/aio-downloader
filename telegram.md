@@ -7,6 +7,148 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 22:24
+---
+
+## VahidOOnLine — post 243271
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243271_1780340046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد کرمی، فرمانده نیروی زمینی سپاه، از«آمادگی ۱۰۰ درصدی» این نیرو برای مقابله با تهدیدات خبر داد و گفت: «سطح آمادگی نیرو‌های مسلح امروز حتی از زمان آغاز جنگ اخیر نیز فراتر رفته است.»
+
+او افزود: «هیچ مشکلی در سطح نیرو وجود ندارد و برای مقابله با هرگونه تهدید و نبرد زمینی در آمادگی کامل هستیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر جنگ اسرائیل: در لبنان آتش‌بس نداریم
+@withyashar
+</div>
+
+## IranIntlTV — post 340101
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340101_1780340047.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340100
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340100_1780340048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد کرمی، فرمانده نیروی زمینی سپاه، از «آمادگی ۱۰۰ درصدی» این نیرو برای مقابله با تهدیدات خبر داد و گفت: «سطح آمادگی نیرو‌های مسلح امروز حتی از زمان آغاز جنگ اخیر نیز فراتر رفته است.»
+
+او افزود: «هیچ مشکلی در سطح نیرو وجود ندارد و برای مقابله با هرگونه تهدید و نبرد زمینی در آمادگی کامل هستیم.»
+https://iranintl.com/202606015072
+</div>
+
+## FarsiVOA — post 219305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواگردهای «ام‌وی-۲۲بی اوسپری» متعلق به نیروی تفنگداران دریایی آمریکا، توانایی‌های عملیاتی خود را بر عرشه ناو «یواس‌اس ایوو جیما» به نمایش گذاشتند. این عملیات بخشی از یک ماموریت به نام «ساوترن اسپیر» بود.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219304
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219304_1780340049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرعت گرفتن ماشین اعدام حکومت در سایه تنش‌های نظامی در گفتگو با محمود امیری مقدم رئیس سازمان حقوق بشر ایران
+</div>
+
+## FarsiVOA — post 219303
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219303_1780340051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویر منتشر شده از بنر سران کشته شده جمهوری اسلامی در تهران، مورد استقبال کاربران شبکه‌های اجتماعی گرفته است. از جمله یک کاربر نوشته‌است: «به معنی واقعی شهر را زیبا کرده و باید برای اولین بار بگوییم شهرداری تهران مچکریم!»
+</div>
+
+## FarsiVOA — post 219302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه شرق در گزارشی از موج تازه احضار، تشکیل پرونده، تعلیق و صدور احکام انضباطی برای دانشجویان چند دانشگاه بزرگ ایران خبر داده است؛ روندی که به گفته دانشجویان، هم‌زمان با تعطیلی طولانی دانشگاه‌ها و با نقض اصول شیوه‌نامه انضباطی پیش می‌رود.
+
+بر اساس این گزارش، چهار روز پس از بازگشایی دانشگاه‌ها در اسفند ۱۴۰۴، پس از دو ماه تعطیلی، دانشجویان با تماس‌ها و پیامک‌هایی درباره تشکیل پرونده انضباطی روبه‌رو شدند.
+
+اکنون در خرداد ۱۴۰۵ و در حالی که تعطیلی دانشگاه‌ها به دلیل جنگ به سه ماه نزدیک شده، دانشگاه‌ها پیگیری همان پرونده‌ها و تشکیل پرونده‌های تازه را آغاز کرده‌اند.
+
+گزارش کامل را در وب‌سایت صدای آمریکا بخوانید.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صالح اسکندری، فعال سیاسی اصولگرا، با راه‌اندازی کارزاری در خبرگزاری حکومتی فارس، خواستار قطع داوطلبانه اینترنت بین‌المللی در ایران شد.
+</div>
+
+## IranianMinds — post 21207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست ترامپ: گفت‌وگوها با جمهوری اسلامی ایران با سرعتی بالا ادامه دارد. از توجه شما به این موضوع سپاسگزارم. رئیس جمهور دونالد جی. ترامپ. این بار گفت جمهوری اسلامی ایران . @IranianMinds
+</div>
+
+## IranianMinds — post 21206
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21206_1780340052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توییتی که شمخانی تو جنگ ۱۲ روزه بعد ترور ناموفقش زده بود
+
+@IranianMinds
+</div>
+
+## alonews — post 124299
+
+<div align="center">
+  <a href="telegram/content/alonews_124299_1780340052.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه قطر: وزیر خارجه قطر با عراقچی درباره تلاش‌های میانجیگرانه پاکستان بین واشنگتن و تهران رایزنی کرد
+
+
+🔴وزیر خارجه قطر بر حمایت قطر از تلاش‌ها برای دستیابی به توافقی جامع به منظور پایان دادن به بحران در منطقه تأکید کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124298
+
+<div align="center">
+  <a href="telegram/content/alonews_124298_1780340053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / وزیر جنگ اسرائیل: در لبنان آتش‌بس نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 22:13
 ---
 
