@@ -7,6 +7,63 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 03:03
+---
+
+## VahidOOnLine — post 243294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری فارس، سعید آجرلو، عضو تیم رسانه‌ای هیئت مذاکره‌کننده جمهوری اسلامی، با تشریح جزئیات آخرین پیشنهاد ارسالی آمریکا به تهران مدعی شد که واشنگتن در جدیدترین ویرایش متنی خود از موضع اولیه مبنی بر انتقال یا دفع مواد هسته‌ای ایران عقب‌نشینی کرده است. او با اشاره به اینکه در مراحل نخست مذاکرات، آمریکایی‌ها خواستار انتقال مواد غنی‌شده به ایالات متحده بودند و ایران این درخواست را رد کرد، افزود که در متن اخیر صرفا عباراتی چون «تعیین تکلیف»، «سرنوشت مواد» یا «حل‌وفصل مسئله» مطرح شده است. آجرلو به تداوم اختلافات درباره تنگه هرمز نیز اشاره کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340126
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340126_1780356831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهربان از تهران: هیچ ایرانی موافق تفاهم با آمریکا نیست؛ ما آدم‌های قبل از کشتار نیستیم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/tuyTTtgx84o
+@iranintltv
+</div>
+
+## Shin_Persian — post 6390
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6390_1780356834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 23:31:06 UTC
+
+Looks like I have to remind some people who stopped Israel from continuing the strikes and maybe finishing the Islamic regime back in 2025.
+
+Now Google how many Iranians were hanged since June 2025.
+
+Will leave you with your conscience and red MAGA hats.
+
+فارسی
+
+به نظر می‌رسد باید به برخی افراد یادآوری کنم که چه کسانی در سال ۲۰۲۵ مانع از ادامه حملات اسرائیل و شاید تمام کردن کار رژیم اسلامی شدند.
+
+حالا در گوگل جستجو کنید که از ژوئن ۲۰۲۵ تاکنون چه تعداد ایرانی اعدام (آویخته) شده‌اند.
+
+شما را با وجدانتان و کلاه‌های قرمز MAGA تنها می‌گذارم.
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 02:53
 ---
 
