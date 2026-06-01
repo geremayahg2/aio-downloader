@@ -7,6 +7,85 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 00:03
+---
+
+## pm_afshaa — post 92071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات سنگین اسراییل به لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس کمیسیون امنیت ملی مجلس: اگر جنگ در لبنان به صورت کامل متوقف نشود، روزهای تاریکی در انتظار آمریکا و اسرائیل خواهد بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 15459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/tFsoQ6-KUO0?feature=share
+</div>
+
+## alonews — post 124326
+
+<div align="center">
+  <a href="telegram/content/alonews_124326_1780346017.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووووووووووووووووری
+</div>
+
+## alonews — post 124325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووووووووووووووووری
+</div>
+
+## alonews — post 124324
+
+<div align="center">
+  <a href="telegram/content/alonews_124324_1780346017.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نماینده حزب‌الله در پارلمان لبنان اعلام کرد که پیشنهاد آمریکا مبنی بر توقف عملیات مقاومت در مقابل عدم حمله اسرائیل به ضاحیه جنوبی بیروت غیرقابل قبول است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124323
+
+<div align="center">
+  <a href="telegram/content/alonews_124323_1780346017.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عجیب اما واقعی
+‼️
+
+
+🔴سپاه قم اومد یه بمب عمل نکرده از جنگ رو خنثی کنه و ۲سپاهی بر اثر انفجار کشته شدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 23:54
 ---
 
