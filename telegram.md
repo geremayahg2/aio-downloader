@@ -7,6 +7,257 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 21:23
+---
+
+## VahidOOnLine — post 243265
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243265_1780336439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد با بنیامین نتانیاهو گفت‌وگویی بسیار سازنده داشته و هیچ نیروی نظامی به بیروت اعزام نخواهد شد و نیروهایی که در مسیر بودند نیز بازگردانده شده‌اند.
+
+او همچنین گفت از طریق نمایندگان عالی‌رتبه، با حزب‌الله تماس بسیار خوبی داشته و توافق شده است همه تیراندازی‌ها متوقف شود؛ اسرائیل به آن‌ها حمله نخواهد کرد و آن‌ها نیز به اسرائیل حمله نخواهند کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243264
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243264_1780336440.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه ۱۱ خرداد اعلام کرد در گفتگویی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، درباره تحولات لبنان به توافقاتی دست یافته و نیروهای اسرائیلی به بیروت اعزام نخواهند شد.
+ترامپ در پیامی در شبکه اجتماعی تروث سوشال نوشت: «گفتگوی بسیار سازنده‌ای با بی‌بی نتانیاهو، نخست‌وزیر اسرائیل، داشتم و هیچ نیرویی به بیروت اعزام نخواهد شد. همچنین هر نیرویی که در مسیر اعزام بوده، بازگردانده شده است.»
+او همچنین در ادامه اعلام کرد از طریق «نمایندگان عالی‌رتبه» با حزب‌الله نیز گفتگو کرده و این گروه با توقف کامل تیراندازی‌ها موافقت کرده است.
+ترامپ افزود: «اسرائیل به آنها حمله نخواهد کرد و آنها نیز به اسرائیل حمله نخواهند کرد.»
+رئیس‌جمهوری آمریکا جزئیات بیشتری درباره این تماس‌ها، هویت نمایندگان واسطه یا نحوه دستیابی به این توافق اعلام نکرد.
+پیشتر وزارت خارجه و سپاه پاسداران جمهوری اسلامی در بیانیه‌هایی اعلام کرده بودند، تشدید حملات اسرائیل در ضاحیه بیروت، از سوی تهران نقض آتش‌بس تلقی خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243263
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243263_1780336440.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مقام‌های امنیتی عراق، روز دوشنبه ۱۱ خرداد ماه اعلام کردند ارزیابی‌های اولیه نشان می‌دهد دومین انفجار در کشتی باری هدف قرارگرفته در خلیج فارس، در نتیجه یک حمله پهپادی رخ داده است.
+
+این کشتی عصر دوشنبه و در فاصله حدود ۷۴ کیلومتری جنوب‌شرق بندر ام‌القصر عراق هدف حمله قرار گرفت. پیش‌تر سازمان عملیات تجارت دریایی بریتانیا (UKMTO) گزارش داده بود یک پرتابه ناشناس به سمت راست کشتی برخورد کرده و موجب وقوع انفجار بزرگی شده است.
+
+بر اساس اطلاعات جدید مقام‌های عراقی، بررسی‌های اولیه حاکی از آن است که انفجار دوم ناشی از حمله یک پهپاد بوده است. با این حال، جزئیاتی درباره عامل احتمالی این حمله یا میزان خسارت وارده به کشتی منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: مذاکرات با سرعت بالایی با جمهوری اسلامی ایران ادامه دارد
+@withyashar
+</div>
+
+## mwarmonitor — post 10002
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: در حال حاضر سکوت بر دفتر نخست‌وزیر حاکم است. این واقعیت که یک رئیس‌جمهور آمریکایی—هرچقدر هم که طرفدار اسرائیل باشد—کشور را اداره می‌کند، باید همه ما را نگران کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10001
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10001_1780336441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«گفتگوها با جمهوری اسلامی ایران با سرعتی بالا در حال جریان است. از توجه شما به این موضوع سپاسگزارم! رئیس‌جمهور دونالد جی. ترامپ»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت امور خارجه ایران: ایالات متحده و اسرائیل از زمان اعلام آتش‌بس در ۱۹ مارس، بارها آن را نقض کرده‌اند؛ از جمله با حمله به کشتی‌های تجاری ایرانی، نقض حاکمیت لبنان و آواره کردن میلیون‌ها غیرنظامی لبنانی.
+
+🔹ایران، آمریکا را مستقیماً مسئول نقض آتش‌بس در هر دو کشور ایران و لبنان می‌داند.
+
+🔹ایران نسبت به پیامدهای خطرناک این نقض‌ها هشدار می‌دهد و تأکید می‌کند که حق دفاع از خود را با هر وسیله‌ای و در هر زمان و مکانی که لازم باشد برای خود محفوظ می‌دارد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342477
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342477_1780336442.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump announces that no troops will go to Lebanon and Hezbollah has agreed "all shooting will stop" after a "very productive" call with Israeli Prime Minister Netanyahu and Hezbollah.
+
+"Israel will not attack them, and they will not attack Israel."
+</div>
+
+## FoxNewsTwitter — post 342476
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342476_1780336443.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump tries to calm Israel-Hezbollah fighting with Iran deal on the line, saying the terror group 'agreed that all shooting will stop'
+</div>
+
+## pm_afshaa — post 92055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های اسرائیلی و شبکه های اسرائیلی بد گرفتن رو ترامپ
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92054
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92054_1780336444.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: مذاکرات و گفتگوها با جمهوری اسلامی ایران با سرعت زیادی ادامه داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92053
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92053_1780336444.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد مخبر، مشاور و دستیار مجتبی خامنه‌ای: آتش‌بس بدون در نظر گرفتن لبنان، موضوعیت نداره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75856
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75856_1780336445.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: مذاکرات با جمهوری اسلامی ایران با سرعتی بالا ادامه دارد.
+از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+این دفعه گفت "جمهوری اسلامی ایران"
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340093
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340093_1780336445.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد با بنیامین نتانیاهو گفت‌وگویی بسیار سازنده داشته و هیچ نیروی نظامی به بیروت اعزام نخواهد شد و نیروهایی که در مسیر بودند نیز بازگردانده شده‌اند.
+
+او همچنین گفت از طریق نمایندگان عالی‌رتبه، با حزب‌الله تماس بسیار خوبی داشته و توافق شده است همه تیراندازی‌ها متوقف شود؛ اسرائیل به آن‌ها حمله نخواهد کرد و آن‌ها نیز به اسرائیل حمله نخواهند کرد.
+https://iranintl.com/202606011943
+</div>
+
+## Shin_Persian — post 6367
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6367_1780336446.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 17:45:43 UTC
+
+President Trump @POTUS:
+"Talks are continuing, at a rapid pace, with the Islamic Republic of Iran. Thank you for your attention to this matter! President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+
+«گفتگوها با جمهوری اسلامی ایران با سرعتی بالا در حال انجام است. از توجه شما به این موضوع سپاسگزارم! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 21201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمودار محبوبیت ترامپ تو ایران درحال سقوط آزاده
+
+
+@IranianMinds
+</div>
+
+## alonews — post 124280
+
+<div align="center">
+  <a href="telegram/content/alonews_124280_1780336447.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه‌ اسرائیلی : اسرائیل بعد از حرف‌های ترامپ گیج شده و از هیچ آتش‌بسی خبر نداره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124279
+
+<div align="center">
+  <a href="telegram/content/alonews_124279_1780336447.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: مذاکرات با سرعت بالایی با جمهوری اسلامی ایران ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124278
+
+<div align="center">
+  <a href="telegram/content/alonews_124278_1780336448.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ آتش‌بس ترامپ حدودا ۵ دقیقه دوام داشت زیرا به دلیل شلیک راکت از حزب‌الله، هشدارها در منطقه جلیل به صدا درآمدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 21:14
 ---
 
