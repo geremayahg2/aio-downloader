@@ -7,6 +7,88 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 16:23
+---
+
+## pm_afshaa — post 92010
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92010_1780318394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارشد نیروهای مسلح جمهوری اسلامی: ادامه حملات به لبنان برای ما قابل تحمل نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 219258
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219258_1780318395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی فرانسه یک نفتکش روسیِ تحت تحریم به نام «تاگور» را در اقیانوس اطلس توقیف کرد.
+
+این عملیات در آب‌های بین‌المللی و با حمایت بریتانیا و دیگر شرکا انجام شد. فرانسه دور زدن تحریم‌ها برای تامین مالی جنگ روسیه در اوکراین را «غیرقابل قبول» توصیف کرد.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 مهاجرت خالص به آلمان تقریباً به نصف کاهش یافته است
+
+بر اساس تازه‌ترین آمارها، در سال گذشته میلادی (۲۰۲۵) شمار افرادی که به آلمان مهاجرت کرده‌اند، به شکل چشمگیری کمتر از سال ۲۰۲۴ بوده است.
+
+اداره فدرال آمار آلمان اعلام کرد که "مهاجرت خالص" به این کشور با ۴۵ درصد کاهش، از ۴۳۰ هزار نفر در سال ۲۰۲۴، به ۲۳۵ هزار نفر در سال گذشته رسیده است.
+
+"مهاجرت خالص" یعنی تفاوت تعداد افرادی که وارد یک کشور می‌شوند با تعداد افرادی که از آن کشور خارج می‌شوند. این عدد نشان می‌دهد جمعیت یک کشور بر اثر مهاجرت واقعاً چقدر افزایش یا کاهش یافته است.
+
+طبق نتایج نهایی، در سال ۲۰۲۵ در مجموع حدود یک میلیون و ۴۸۰ هزار نفر وارد آلمان و یک میلیون و ۲۵۰ هزار نفر از این کشور خارج شده‌اند. در نتیجه، شمار مهاجران واردشده به آلمان ۱۳ درصد کاهش یافته، در حالی که تعداد کل مهاجران خارج‌شده نزدیک به دو درصد کمتر شده است.
+@dw_farsi
+</div>
+
+## Hranews — post 113304
+
+<div align="center">
+  <img src="telegram/content/Hranews_113304_1780318395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادستان عمومی و انقلاب شهرستان اهر، با اشاره به #توقیف_اموال ایرانیان مقیم خارج از کشور، اظهار داشت که حتی انتشار یک عکس یا ویدیو نیز می‌تواند مشمول مجازات توقیف اموال شود.
+
+این مقام قضایی افزود: «مجازات توقیف اموال به‌صورت مستقل و کاملاً جدا از مجازات حبس یا اعدام اعمال می‌شود.»
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124186
+
+<div align="center">
+  <img src="telegram/content/alonews_124186_1780318396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازیکنایی که قلعه نویی نبرد جام جهانی اگه میدادن به غلامحسین پیروانی راحت میتونست از گروه صعود کنه
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124185
+
+<div align="center">
+  <a href="telegram/content/alonews_124185_1780318397.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مراد ویسی تحلیلگر ارشد اینترنشنال: به زودی پزشکیان، روحانی و احمدی نژاد ترور می شوند 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 16:13
 ---
 
