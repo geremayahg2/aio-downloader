@@ -7,6 +7,145 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 15:43
+---
+
+## VahidOOnLine — post 243219
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243219_1780316001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس گفت: «اگر توافقی صورت بگیرد باید به گونه‌ای باشد که هر کسی آن را می‌بیند، بداند جمهوری اسلامی برنده آن است و اگر توافق نشود و به میدان جنگ بازگردیم، قدرتمندتر از قبل خواهیم بود و اگر دشمن بخواهد به سمت ترور برود، پیش‌بینی‌های لازم را کرده‌ایم.»
+
+او ادامه داد: «جمهوری اسلامی در حوزه دفاعی قدرتمندتر از ۹ اسفند است و دشمن از زمان آغاز جنگ ضعیف‌تر شده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243211
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243211_1780316001.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله گزارش‌شده آمریکا به اهدافی در جنوب ایران، از نظر دامنه محدود بود، اما از نظر پیام نظامی اهمیت داشت. بر اساس روایت آمریکا، این حمله پس از سرنگونی یک پهپاد آمریکایی بر فراز آب‌های بین‌المللی انجام شد و سایت‌های راداری و مراکز فرماندهی و کنترل پهپادی جمهوری اسلامی در سیریک و جزیره قشم را هدف قرار داد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340037
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340037_1780316003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انجمن خانواده‌های جان‌باختگان پرواز پی‌اس-۷۵۲ اعلام کرد پس از ۶ سال پیگیری، ضمیمه ۱۳ کنوانسیون شیکاگو که مربوط به تحقیقات ایمنی سوانح هوایی است، اصلاح می‌شود.
+
+جزییات بیشتر با مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340036
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340036_1780316004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس گفت: «اگر توافقی صورت بگیرد باید به گونه‌ای باشد که هر کسی آن را می‌بیند، بداند جمهوری اسلامی برنده آن است و اگر توافق نشود و به میدان جنگ بازگردیم، قدرتمندتر از قبل خواهیم بود و اگر دشمن بخواهد به سمت ترور برود، پیش‌بینی‌های لازم را کرده‌ایم.»
+
+او ادامه داد: «جمهوری اسلامی در حوزه دفاعی قدرتمندتر از ۹ اسفند است و دشمن از زمان آغاز جنگ ضعیف‌تر شده است.»
+https://iranintl.com/202606013537
+</div>
+
+## Shin_Persian — post 6354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Mon, 01 Jun 2026 12:08:07 UTC Last night at 11 p.m. ET, U.S. forces successfully intercepted two Iranian ballistic missiles targeting American forces based in Kuwait. These missiles were immediately defeated…
+</div>
+
+## Shin_Persian — post 6353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Mon, 01 Jun 2026 12:08:07 UTC
+
+Last night at 11 p.m. ET, U.S. forces successfully intercepted two Iranian ballistic missiles targeting American forces based in Kuwait. These missiles were immediately defeated and no American personnel were harmed.
+
+U.S. Central Command remains vigilant and will continue to
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+دیشب در ساعت ۱۱ شب به وقت منطقه زمانی شرقی، نیروهای آمریکایی با موفقیت دو موشک بالستیک ایرانی را که نیروهای آمریکایی مستقر در کویت را هدف قرار داده بودند، رهگیری کردند. این موشک‌ها بلافاصله منهدم شدند و به هیچ‌یک از پرسنل آمریکایی آسیبی نرسید.
+
+فرماندهی مرکزی ایالات متحده (سنتکام) هوشیار باقی مانده و به... ادامه خواهد داد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: U.S. Central Command ✓ @CENTCOM Mon, 01 Jun 2026 12:07:08 UTC Last night at 11 p.m. ET, U.S. forces successfully intercepted two Iranian ballistic missile targeting American forces based in Kuwait. These missiles were immediately defeated…
+</div>
+
+## Shin_Persian — post 6351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Mon, 01 Jun 2026 12:07:08 UTC
+
+Last night at 11 p.m. ET, U.S. forces successfully intercepted two Iranian ballistic missile targeting American forces based in Kuwait. These missiles were immediately defeated and no American personnel were harmed.
+
+U.S. Central Command remains vigilant and will continue to
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+دیشب در ساعت ۱۱ شب به وقت منطقه زمانی شرقی، نیروهای ایالات متحده با موفقیت دو موشک بالستیک ایرانی را که نیروهای آمریکایی مستقر در کویت را هدف قرار داده بودند، رهگیری کردند. این موشک‌ها بلافاصله منهدم شدند و به هیچ‌یک از پرسنل آمریکایی آسیبی وارد نشد.
+
+فرماندهی مرکزی ایالات متحده (سنتکام) هوشیار باقی می‌ماند و به... ادامه خواهد داد.
+
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 124180
+
+<div align="center">
+  <a href="telegram/content/alonews_124180_1780316004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل دستور تخلیه بخش‌هایی از بیروت را با هماهنگی ایالات متحده صادر خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124178
+
+<div align="center">
+  <a href="telegram/content/alonews_124178_1780316004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بانک مرکزی:
+نرخ تورم اردیبهشت ماه ۵۳.۹ درصد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 15:33
 ---
 
