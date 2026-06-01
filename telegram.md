@@ -7,6 +7,155 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 09:42
+---
+
+## VahidOOnLine — post 243160
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243160_1780294367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رسانه‌های داخلی ایران روز یکشنبه دهم خردادماه از افزایش ۴۰ تا ۵۰ درصدی هزینه‌های خاکسپاری در تهران با مصوبه شورای شهر پایتخت خبر دادند.
+
+پایگاه خبری دیده‌بان ایران این خبر را با عنوان «وداع میلیونی با مردگان» و «مرده‌ها هم از گرانی و تورم در امان نماندند» منتشر کرد.<
+براساس این گزارش‌ها، طبق مصوبه جدید شورای شهر تهران «تعرفه خدمات مختلف از حمل متوفی و غسل تا کفن کردن، تدفین و برگزاری مراسم، به‌طور میانگین حدود ۴۰ درصد افزایش یافته و در برخی موارد حتی افزایش قیمت‌ها ۵۰ درصد است.»
+
+به گزارش فرارو، با تصمیم شورای شهر تهران «هزینه انتقال هر متوفی از سطح شهر تهران تا شعاع ۱۰ کیلومتری به ۹ میلیون و ۷۵۰ هزار ریال رسیده و افزایشی ۵۰ درصدی داشته است. نرخ حمل به پزشکی قانونی کهریزک هم از قاعده افزایش مستثنی نشده و به ازای هر کیلومتر اضافه افزایش یافته و خدمات آمبولانس خصوصی بیشترین رشد تعرفه را داشته است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در اصفهان
+@withyashar
+</div>
+
+## WithYashar — post 13120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوباره صدای انفجار‌ در بندر
+@withyashar
+</div>
+
+## WithYashar — post 13119
+
+
+
+
+## IranIntlTV — post 339979
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339979_1780294367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناشران مستقل خارج از کشور در دهمین نمایشگاه کتاب «تهران، بدون سانسور» آثار خود را در شهرهای تورنتو و اتاوا به نمایش گذاشتند.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219231
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ توافق احتمالی با رژیم ایران را «توافقی خوب» برای آمریکا توصیف کرد
+
+▪️دونالد ترامپ، رئیس‌جمهوری آمریکا، اعلام کرد که جمهوری اسلامی «واقعاً می‌خواهد به یک توافق برسد و این توافق برای آمریکا و کسانی که با ما هستند، توافق خوبی خواهد بود.»
+
+▪️پیشتر اکسیوس و نیویورک‌تایمز گزارش دادند پرزیدنت ترامپ خواستار سخت‌گیرانه‌تر شدن شروط چارچوب توافق احتمالی با جمهوری اسلامی شده و نسخه اصلاح‌شده را برای بررسی به تهران فرستاده است.
+
+▪️اکسیوس نوشت ترامپ از تیم خود خواسته چند بند، به‌ویژه بندهای مربوط به برنامه هسته‌ای و مواد هسته‌ای را اصلاح کنند.
+
+▪️نیویورک‌تایمز نیز گزارش داد ترامپ از کندی پاسخ جمهوری اسلامی به پیشنهادهای آمریکا ناراضی است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/trump-described-possible-agreement-with-iran-as-a-good-deal-for-us/8156044.html
+</div>
+
+## RadioFarda — post 157758
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157758_1780294369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، می‌گوید بخش عمده توافق هسته‌ای مدنظر واشینگتن با تهران، درباره فعالیت‌های هسته‌ای جمهوری اسلامی است.
+
+🔸او در پستی که در شبکه اجتماعی خود تروث‌سوشال منتشر کرده، گزارش شبکه خبری سی‌ان‌ان مبنی بر اینکه توافق احتمالی ترامپ با ایران، شامل پرونده هسته‌ای این کشور نمی‌شود را رد کرد.
+
+🔸ترامپ نوشت که این توافق «خیلی روشن بیان می‌کند که ایران به سلاح هسته‌ای دست نخواهد یافت. سپس با جزئیات فراوان و بسیار قاطع، به جنبه‌های مختلف دیگر موضوع هسته‌ای می‌پردازد. در حقیقت، بیشتر این توافق دقیقاً درباره همین موضوع است.»
+
+🔸به جز سی‌ان‌ان، شماری از خبرگزاری‌های نزدیک به سپاه پاسداران، از جمله تسنیم و فارس، به‌طور مکرر به نقل از منابع آگاه می‌نویسند که این توافق پیشنهادی آمریکا، دست‌کم در مرحله اول شامل فعالیت هسته‌ای جمهوری اسلامی نیست.
+
+@RadioFarda
+</div>
+
+## alonews — post 124086
+
+<div align="center">
+  <a href="telegram/content/alonews_124086_1780294369.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویر ماهواره ای دو روز پیش ، نشان میدهد که یک نفتکش 252 متری توسط 4 قایق تندرو مورد حمله قرار گرفته است.به نظر این نفتکش به صورت مسکوت توسط نیروی دریایی آمریکا اسکورت شده بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124085
+
+<div align="center">
+  <a href="telegram/content/alonews_124085_1780294369.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تسلط چین بر مواد معدنی کم‌یاب در سال‌های آتی به کندی کاهش پیدا می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124084
+
+<div align="center">
+  <a href="telegram/content/alonews_124084_1780294369.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گزارش انفجار از بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124083
+
+<div align="center">
+  <a href="telegram/content/alonews_124083_1780294370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور لبنان: ما با گام‌های استوار به سمت احیای کشور و بازسازی نهادهای آن حرکت می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124082
+
+<div align="center">
+  <a href="telegram/content/alonews_124082_1780294370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عضو کمیسیون انرژی مجلس : افزایش قیمت بنزین در مجلس مطرح نشده/ نیروهای تعدیل شده پتروشیمی‌ها به‌زودی به کار برمی‌گردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 09:33
 ---
 
