@@ -7,6 +7,198 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 11:33
+---
+
+## VahidOOnLine — post 243179
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243179_1780301029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، خطاب به کشورهای حاشیه خلیج فارس گفت: «از گذشته درس بگیرید و اجازه ندهید که آمریکا و اسرائیل از امکانات شما علیه جمهوری اسلامی استفاده کنند.»
+
+او ادامه داد: «در اینکه برخی کشورهای منطقه با وجود هشدارهای ما، به تعهدات خود عمل نکردند، تردیدی نداریم.»
+
+بقائی اضافه کرد: «ما با مردم کویت و سایر مردمان منطقه که خاک، حاکمیت، قلمرو و امکاناتشان از سوی اسرائیل و آمریکا برای حمله به یک کشور مسلمان مورد سوءاستفاده قرار می‌گیرد، ابراز همبستگی می‌کنیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243178
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243178_1780301030.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که به تازگی از اعتراضات دی‌ماه ۱۴۰۴ به دست ایران‌اینترنشنال رسیده، پیکر رهاشده یک جاویدنام را در یکی از خیابان‌های شهرک ولیعصر تهران نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243177
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243177_1780301032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه ۱۱ خردادماه و در پاسخ به پرسش خبرنگاران درباره گفته‌های دونالد ترامپ ناظر به خروج اورانیوم غنی‌شده از خاک ایران گفت درباره جزئیات موضوع هسته‌ای هیچ مذاکر‌ه‌ای نکرده‌ایم.
+
+این سخنان در حالی مطرح می‌شود که دونالد ترامپ در آخرین پیام‌های خود علاوه بر خروج ذخایر اورانیوم از ایران، گفته بود شاید اورنیوم در خاک ایران و با هماهنگی جمهوری اسلامی و آمریکا نابود شود. ترامپ همچنین مخالفت خود را با انتقال ذخایر اورانیوم به‌شدت غنی‌شده به چین و روسیه اعلام کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه: ما حق دفاع مشروع در برابر نقض آتش‌بس توسط آمریکا را داریم و امروز هم مبدأ تجاوز به خاک کشور را هدف قرار دادیم.
+@withyashar
+</div>
+
+## WithYashar — post 13132
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به نیوزویک : مردم ایران از من تشکر میکنند چون بجای یکبار، دوبار رژیم رو عوض کردم
+@withyashar
+</div>
+
+## pm_afshaa — post 91995
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91995_1780301036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه هم اکنون
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340000
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340000_1780301037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، خطاب به کشورهای حاشیه خلیج فارس گفت: «از گذشته درس بگیرید و اجازه ندهید که آمریکا و اسرائیل از امکانات شما علیه جمهوری اسلامی استفاده کنند.»
+
+او ادامه داد: «در اینکه برخی کشورهای منطقه با وجود هشدارهای ما، به تعهدات خود عمل نکردند، تردیدی نداریم.»
+
+بقائی اضافه کرد: «ما با مردم کویت و سایر مردمان منطقه که خاک، حاکمیت، قلمرو و امکاناتشان از سوی اسرائیل و آمریکا برای حمله به یک کشور مسلمان مورد سوءاستفاده قرار می‌گیرد، ابراز همبستگی می‌کنیم.»
+https://iranintl.com/202606017291
+</div>
+
+## IranIntlTV — post 339999
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339999_1780301038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که به تازگی از اعتراضات دی‌ماه ۱۴۰۴ به دست ایران‌اینترنشنال رسیده، پیکر رهاشده یک جاویدنام را در یکی از خیابان‌های شهرک ولیعصر تهران نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 339998
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339998_1780301040.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنا بر گزارش خبرگزاری میزان، وابسته به قوه قضاییه جمهوری اسلامی، حکم اعدام مهرداد محمدی‌نیا و اشکان مالکی پس از تایید در دیوان عالی کشور اجرا شد.
+
+گفت‌وگو با رضا حاجی‌حسینی، روزنامه‌نگار
+
+.
+@iranintltv
+</div>
+
+## Shin_Persian — post 6349
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6349_1780301043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 07:56:10 UTC
+
+Kuwait Ministry of Foreign Affairs strongly condemns repeated Iranian attacks against Kuwait.
+
+Official statement warns of serious escalation and direct threat to national security and civilian safety. Kuwait reserves …
+
+Source: https://x.com/i/web/status/2061356049962058127
+
+فارسی
+
+وزارت امور خارجه کویت حملات مکرر ایران علیه کویت را به شدت محکوم می‌کند.
+
+بیانیه رسمی نسبت به تشدید جدی تنش‌ها و تهدید مستقیم علیه امنیت ملی و ایمنی غیرنظامیان هشدار می‌دهد. کویت حق ... را برای خود محفوظ می‌دارد.
+
+منبع: https://x.com/i/web/status/2061356049962058127
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219236
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219236_1780301044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی نقض‌های مکرر آتش‌بس در لبنان از سوی حزب‌الله و حملات این گروه به شهرها و شهروندان اسرائیل، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، و اسرائیل کاتز، وزیر دفاع، دستور دادند ارتش اسرائیل اهداف وابسته به حزب‌الله در منطقه ضاحیه بیروت را هدف قرار دهد.
+
+در بیانیه مشترک نتانیاهو و کاتز آمده است که این تصمیم در پاسخ به حملات اخیر حزب‌الله و ادامه تهدید علیه شهروندان اسرائیل گرفته شده است.
+
+ضاحیه بیروت از مهم‌ترین پایگاه‌های حزب‌الله در پایتخت لبنان به شمار می‌رود و در ماه‌های گذشته نیز بارها هدف حملات ارتش اسرائیل قرار گرفته است.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157762
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157762_1780301045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ در پستی تازه در تروث‌سوشال از واکنش‌های چهره‌های سیاسی به نحوه برخورد دولت او با حکومت ایران برای دستیابی به توافق انتقاد کرد و نوشت که این فشارها کار را برای او «سخت‌تر» می‌کند.
+
+🔸او در این پست در شبکه اجتماعی خود تأکید کرد که «ایران واقعاً می‌خواهد به توافق برسد، و این توافق برای آمریکا و کسانی که با ما هستند، توافق خوبی خواهد بود.»
+
+🔸ترامپ با بازی با واژهای «دمو» و «دام» به معنی احمق، به طعنه دموکرات را «داموکرات‌ها» [نادان‌ها] نامید و به آنها و «برخی جمهوری‌خواهانِ ظاهراً غیرمیهن‌پرست» نوشت که آنها «نمی‌فهمند که وقتی آدم‌های سیاسیِ فرصت‌طلب مدام و به شکلی بی‌سابقه منفی‌بافی می‌کنند و پشت سر هم می‌گویند که باید سریع‌تر عمل کنم، یا کندتر پیش بروم، یا وارد جنگ شوم، یا نشوم، یا هر چیز دیگری، انجام درست وظیفه و مذاکره برای من خیلی سخت‌تر می‌شود؟»
+
+🔸رئیس‌جمهور آمریکا خطاب به منتقدان خود در ارتباط با توافق با جمهوری اسلامی، نوشت: «فقط آرام باشید و استراحت کنید؛ در نهایت همه‌چیز خوب پیش خواهد رفت — همیشه همین‌طور بوده است!»
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو: ما دستور بمباران ضاحیه بیروت را صادر کردیم
+
+@IranianMinds
+</div>
+
+## alonews — post 124110
+
+<div align="center">
+  <a href="telegram/content/alonews_124110_1780301046.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش کانال ۱۴ اسرائیل، انتظار می‌رود ارتش اسرائیل به زودی دستور تخلیه در حومه‌های جنوبی بیروت صادر کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 11:22
 ---
 
