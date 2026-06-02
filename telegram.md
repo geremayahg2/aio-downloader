@@ -7,6 +7,318 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 03:13
+---
+
+## VahidOOnLine — post 243449
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243449_1780443835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت کشور بحرین، بامداد چهارشنبه، ۱۳ خردادماه، با انتشار بیانیه‌ای فوری اعلام کرد که آژیرهای هشدار و خطر در این کشور به صدا درآمده‌اند. مقامات امنیتی بحرین ضمن دعوت مردم به حفظ آرامش، از آن‌ها خواسته‌اند تا سریعا به نزدیک‌ترین مکان امن و پناهگاه‌ها بروند. همزمان تسنیم، خبرگزاری وابسته به سپاه، به نقل از «منابع عربی» از هدف قرار گرفتن «پایگاه‌های آمریکا» در بحرین خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243448
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243448_1780443836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه اعلام کرد در پاسخ به حمله‌های جدید به قشم، نیروی هوایی سپاه با حملات موشکی پایگاه‌های آمریکا در کویت را هدف قرار داده است.
+سپاه تاکید کرد: «زمان بزن و فرار کن به پایان رسیده است و نیروهای ستمگر باید عواقب وخیم نادانی و ماجراجویی‌های بی‌محاسبه خود را بپذیرند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام : نیروهای آمریکایی با موفقیت چندین موشک بالستیک و پهپاد ایرانی را سرنگون کردند و در پاسخ به حملات احتمالی ایران در سراسر خاورمیانه، امروز ، حملات دفاعی به جزیره قشم انجام دادند.
+
+ایران چندین موشک بالستیک به سمت همسایگان منطقه‌ای پرتاب کرد؛ اما همه آنها نتوانستند به اهداف مورد نظر خود اصابت کنند. دو موشک ایرانی که به کویت شلیک شده بودند، کوتاه آمدند یا در مسیر شکسته شدند و سه موشک پرتاب شده به بحرین بلافاصله توسط نیروهای دفاع هوایی آمریکا و بحرین رهگیری شدند.
+
+لحظاتی پیش‌تر، نیروهای فرماندهی مرکزی آمریکا (سنتکام) سه پهپاد حمله یک‌طرفه را که ایران به سمت دریانوردان غیرنظامی که به‌حق در حال عبور از آب‌های منطقه‌ای بودند، شلیک کرده بود، سرنگون کردند. نیروهای آمریکایی همچنین حملات دفاعی به یک ایستگاه کنترل زمینی نظامی ایرانی در جزیره قشم انجام دادند.
+
+هیچ یک از پرسنل آمریکایی آسیب ندیدند. نیروهای سنتکام هوشیار باقی مانده و آماده دفاع در برابر تجاوزات بی‌دلیل ایران در طول آتش‌بس جاری هستند.
+@withyashar
+</div>
+
+## WithYashar — post 13332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصابت در عربستان
+
+@withyashar
+</div>
+
+## mwarmonitor — post 10063
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10063_1780443836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️چندین پرواز در حال انتظار در آسمان امارات متحده عربی هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10062
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آژیرهای هشدار در بحرین متوقف شده‌اند و هشدار مربوط به حمله موشکی نیز لغو شده است. @mwarmonitor
+</div>
+
+## mwarmonitor — post 10061
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دفاع نیروهای آمریکا و شرکا در برابر رفتار تهاجمی ایران
+
+🔹ستاد فرماندهی مرکزی ایالات متحده (CENTCOM)
+
+🔰تامپا، فلوریدا — در پاسخ به تلاش‌های ایران برای انجام حملاتی در سراسر خاورمیانه در تاریخ ۲ ژوئن، نیروهای آمریکایی با موفقیت چندین موشک بالستیک و پهپاد ایرانی را منهدم کرده و حملات دفاع از خود را در جزیره قشم انجام دادند.
+ایران چندین موشک بالستیک را به سمت همسایگان منطقه‌ای خود شلیک کرد؛ با این حال، همه آن‌ها در اصابت به اهداف مورد نظر خود ناکام ماندند. دو موشک ایرانی شلیک شده به سمت کویت در میان راه سقوط کردند یا متلاشی شدند، و سه موشک پرتاب شده به سمت بحرین نیز بلافاصله توسط نیروهای پدافند هوایی آمریکا و بحرین رهگیری و منهدم شدند.
+لحظاتی پیش از آن، نیروهای ستاد فرماندهی مرکزی آمریکا (سنتکام) سه پهپاد انتحاری (یک‌طرفه) را که از سوی ایران به سمت دریانوردان غیرنظامی در حال عبور قانونی از آب‌های منطقه پرتاب شده بودند، سرنگون کردند. نیروهای آمریکایی همچنین حملاتی را در قالب دفاع از خود علیه یک ایستگاه کنترل زمینی نظامی ایران در جزیره قشم انجام دادند.
+هیچ‌یک از پرسنل آمریکایی آسیب ندیده‌اند. نیروهای سنتکام همچنان هوشیار و آماده دفاع در برابر تجاوزات بی‌دلیل ایران در طول آتش‌بس جاری هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10060
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10060_1780443837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک نفتکش بسیار بزرگ (VLCC) برای نخستین بار طی چهار هفته گذشته در جزیره خارک در ایران در حال بارگیری نفت خام است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92188
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92188_1780443837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: نیروهای آمریکایی چندین موشک بالستیک و پهپاد ایرانی رو رهگیری کردن و پس از تلاش ایران برای حمله به نقاط مختلف خاورمیانه، یک ایستگاه کنترل زمینی نظامی در جزیره قشم رو هدف قرار دادن. دو موشک ایرانی پرتاب‌شده به سمت کویت قبل از اصابت به هدف نرسیدن، در…
+</div>
+
+## pm_afshaa — post 92187
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92187_1780443838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: نیروهای آمریکایی چندین موشک بالستیک و پهپاد ایرانی رو رهگیری کردن و پس از تلاش ایران برای حمله به نقاط مختلف خاورمیانه، یک ایستگاه کنترل زمینی نظامی در جزیره قشم رو هدف قرار دادن.
+
+دو موشک ایرانی پرتاب‌شده به سمت کویت قبل از اصابت به هدف نرسیدن، در حالی که سه موشک پرتاب‌شده به سمت بحرین توسط دفاع هوایی آمریکا و بحرین رهگیری شدن. نیروهای آمریکایی همچنین سه پهپاد یک‌طرفه حمله‌ای پرتاب‌شده به سمت کشتی‌های تجاری رو سرنگون کردن و درکل هیچ نیروی آمریکایی مجروح نشد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92186
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92186_1780443839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه: مرکز ناوگان پنجم دریایی آمریکا مورد تهاجم موشکی و پهپادی نیروی هوافضای سپاه قرار گرفتن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92185
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92185_1780443839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش‌ها از پرواز جت‌های جنگی آمریکا بر فراز آسمان بغداد عراق.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92184
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92184_1780443840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک نفتکش در سواحل امارات هدف قرار گرفته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340301
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340301_1780443840.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه اعلام کرد در پاسخ به حمله‌های جدید به قشم، نیروی هوایی سپاه با حملات موشکی پایگاه‌های آمریکا در کویت را هدف قرار داده است.
+سپاه تاکید کرد: «زمان بزن و فرار کن به پایان رسیده است و نیروهای ستمگر باید عواقب وخیم نادانی و ماجراجویی‌های بی‌محاسبه خود را بپذیرند.»
+
+https://iranintl.com/202606026647
+</div>
+
+## Shin_Persian — post 6438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+U.S. Central Command ✓ @CENTCOM
+Tue, 02 Jun 2026 23:34:40 UTC
+Centcom:
+"U.S., Partner Forces Defend Against Aggressive Iranian Behavior
+TAMPA, Fla. — U.S. forces successfully defeated multiple Iranian ballistic missiles and drones, and conducted self-defense strikes on Qeshm Island in response to attempted attacks by Iran across the Middle East, June 2.
+
+Iran launched several ballistic missiles toward regional neighbors; however, all failed to hit their intended targets. Two Iranian missiles fired at Kuwait fell short or broke apart enroute, and three missiles launched at Bahrain were immediately intercepted by U.S. and Bahrain air defense forces.
+
+Moments earlier, U.S. Central Command (CENTCOM) forces shot down three one-way attack drones launched by Iran toward civilian mariners that were rightfully transiting regional waters. American forces also conducted self-defense strikes on an Iranian military ground control station on Qeshm Island.
+
+No U.S. personnel were harmed. CENTCOM forces remain vigilant and ready to defend against unwarranted Iranian aggression during the ongoing ceasefire."
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15585
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15585_1780443841.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ فیلم ضبط‌شده از دوربین داشبورد یک خودرو در کویت که انفجار موشک بالستیک ایران با کلاهک خوشه‌ای را نشان می‌دهد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15584
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15584_1780443842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: نیروهای آمریکایی در پاسخ به حملات ایران در سراسر خاورمیانه، در تاریخ 2 ژوئن، با موفقیت چندین موشک بالستیک و پهپاد ایرانی را شکست دادند و حملات دفاع شخصی را در جزیره قشم انجام دادند.
+
+ایران چندین موشک بالستیک به سمت همسایگان منطقه‌ای شلیک کرد؛ با این حال، همه آنها نتوانستند به اهداف مورد نظر خود اصابت کنند. دو موشک ایرانی که به سمت کویت شلیک شدند، در مسیر خود به هدف نرسیدند یا متلاشی شدند و سه موشک شلیک شده به سمت بحرین بلافاصله توسط نیروهای دفاع هوایی ایالات متحده و بحرین رهگیری شدند.
+
+لحظاتی پیش از آن، نیروهای فرماندهی مرکزی ایالات متحده (سنتکام) سه پهپاد تهاجمی یک طرفه را که توسط ایران به سمت دریانوردان غیرنظامی که به طور قانونی در حال عبور از آب‌های منطقه‌ای بودند، شلیک شده بود، سرنگون کردند. نیروهای آمریکایی همچنین حملات دفاع شخصی را به یک ایستگاه کنترل زمینی نظامی ایران در جزیره قشم انجام دادند.
+
+هیچ پرسنل آمریکایی آسیبی ندیدند. نیروهای سنتکام در طول آتش‌بس جاری هوشیار و آماده دفاع در برابر تجاوز بی‌مورد ایران هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ فارس:
+
+مرکز ناوگان پنجم دریایی آمریکا مورد تهاجم موشکی و پهپادی نیروی هوافضای سپاه قرار گرفت
+
+روابط عمومی سپاه پاسداران انقلاب اسلامی:
+
+بسم الله القاصم الجبارین
+فَمَنِ اعْتَدَىٰ عَلَيْكُمْ فَاعْتَدُوا عَلَيْهِ بِمِثْلِ مَا اعْتَدَىٰ عَلَيْكُمْ
+
+🔹️در اواخر شب گذشته ارتش متجاوز آمریکا یک نفتکش ایرانی را در حوالی تنگه هرمز مورد اصابت پرتابه هوایی قرار داد که این نفتکش از محل موتورخانه دچار خسارت گردید.
+
+🔹️در پاسخ به این تجاوز و نقض مقررات تنگه هرمز شناور متعلق به دشمن آمریکایی صهیونی به نام پانایا مورد هدف موشک های نیروی دریایی سپاه قرار گرفت.
+
+🔹️دشمن آمریکایی در تجاوزی مجدد یک دکل مخابراتی سپاه در جنوب جزیره قشم را هدف پرتابه های هوایی خود قرار داد در پاسخ به این تجاوز پایگاه هوایی و بالگردی آنان مستقر در یکی از کشورهای منطقه و همچنین مرکز ناوگان پنجم دریایی آمریکا مورد تهاجم موشکی و پهپادی نیروی هوافضای سپاه قرار گرفتند.
+
+🔹️پیش از این اخطار داده بودیم که در صورت تجاوز پاسخ متفاوت و سنگین تر خواهد بود و همینطور اقدام کردیم. این پاسخ ها باید عبرت شده باشد.
+
+🔹️ تکرار می کنیم برهم زدن امنیت تنگه هرمز تاوان سختی برای ارتش متجاوز آمریکا خواهد داشت.
+
+و ما النصر الا من عندالله العزیز الحکیم
+
+منبع: فارس
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15581
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15581_1780443843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇸🇦🇦🇪 اصلاحیه: ادعاهای مبنی بر حمله به عربستان و امارات صحیح نبوده‌اند و تا این لحظه حمله‌ای به این دو کشور انجام نشده است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هشدار حملات در عربستان نیز به صدا درآمد! 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21281
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21281_1780443843.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آسمان ایران، کویت و بحرین کلیر شد.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اگه امشب آتش بس نقض نشد، دیگه حتی مجتبی کون ملانیا بذاره، بازم نقض نمیشه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390878
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معلوم نیست آمریکا در قشم چه هدفی را زده که آخوند رم کرده و از یک ساعت قبل تا الان به چهار کشور عراق، بحرین، کویت و عربستان حمله موشکی کرده!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 03:03
 ---
 
