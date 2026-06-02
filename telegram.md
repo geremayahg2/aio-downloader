@@ -7,6 +7,194 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 18:44
+---
+
+## pm_afshaa — post 92109
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92109_1780413275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو، وزیر خارجه آمریکا:
+
+رهبر قبلی جمهوری اسلامی دیگه تو صحنه نیست و عملاً کنار رفته، و پسرش جای او رو گرفته؛ اما نکته اینجاست که هیچ خبری ازش نیست! طبق گزارش‌های منتشر شده، اون در همون حمله به‌شدت آسیب دیده.
+
+شما خودتون مطمئنید هنوز زنده‌ست؟ چون واقعیت اینه که ما هیچ حضور علنی یا صحبت عمومی ازش ندیدیم؛ بنابراین تا جایی که اطلاعات عمومی نشون میده، وضعیتش کاملاً مبهمه و عملاً خبری از حضورش نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92108
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92108_1780413276.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارکو روبیو، وزیر خارجه آمریکا:
+ما نمیتونیم جهانی داشته باشیم که در آن فقط کشتی‌های ایرانی از تنگه‌ها عبور کنند.
+
+اگر آنها قصد دارن تنگه‌ها رو برای همه ببندن، ما نیز تنگه‌ها رو برای آنها می‌بندیم؛ هزینه برای ایران هر روز و درآمد از دست رفته به دلیل این اقدام، در حد صدها میلیون دلار است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340223
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340223_1780413277.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش تایوان روز سه‌شنبه سه سگ رباتیک مخصوص گشت زنی را که ممکن است در آینده در تایوان و جزایر تحت کنترل این کشور در دریای جنوبی چین به کار گرفته شوند، به نمایش گذاشت. موسسه ملی علوم و فناوری چونگ‌شان، وابسته به ارتش تایوان، نسخه‌هایی مجهز به سامانه‌های شناسایی، نظارتی و آتش را معرفی کرد که یکی از آنها به سلاح نیز مجهز بود. مقام‌های این موسسه گفتند نیروهای نظامی نیاز خود به چنین تجهیزاتی را اعلام کرده‌اند، اما هنوز سفارش رسمی برای خرید آنها ثبت نشده است.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15515
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15515_1780413278.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر امور خارجه: نشانه‌هایی وجود دارد مبنی بر اینکه مجتبی خامنه‌ای، رهبر ایران، زنده است و به طور فزاینده‌ای در تصمیم‌گیری‌ها مشارکت دارد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر امور خارجه: ما در حال مذاکره هستیم، من می‌گویم مذاکره چون مذاکره با ایران مثل مذاکره با سوئیس نیست، باشه؟ خیلی متفاوت هستند. متأسفانه نیاز به استفاده از واسطه‌ها دارند. این چشم‌انداز پیش روی ماست، که می‌تواند امروز اتفاق بیفتد، می‌تواند…
+</div>
+
+## IranianMinds — post 21245
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21245_1780413280.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مارکو روبیو:
+
+نشانه ها حاکی از اینه که مجتبی خامنه‌ای زنده است و در تصمیم گیری های حکومت هم نقش داره.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390836
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390836_1780413282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسینی؛ سردبیر خط انرژی:
+
+وقتی میرم صداوسیما میگن یه چیزایی رو نگو تا مردم نترسن و امیدشون رو از دست ندن ولی الان اینجا میگم.
+
+۲۵ درصد از زیرساخت انرژی کشور توی جنگ اخیر از بین رفته. منتظر تابستونی بسیار گرم و زمستونی بسیار سرد باشید.
+کمبود شدید بنزین داریم. توی تابستون خاموشی زیادی داریم و زمستون هم کمبود گاز شدید داریم.
+اگه الان هنوز چیزی حس نمیکنید چون فصل بهاریم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124502
+
+<div align="center">
+  <a href="telegram/content/alonews_124502_1780413282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو : شاید چند روز آینده خبری از توافق بشه
+
+
+🔴 مشکل اینه که جواب‌هاشون دیر می‌رسه و همین باعث شده بیرون هم گزارش‌هایی بیاد که شاید چند روز دیگه یه توافقی بشه.
+
+
+🔴 چون داخل سیستم خودشون هم طول می‌کشه پاسخ بدن، بعضی وقت‌ها حتی ۵ یا ۶ روز طول می‌کشه تا جواب‌ها و تصمیم‌هاشون رد و بدل بشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124501
+
+<div align="center">
+  <a href="telegram/content/alonews_124501_1780413283.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/روبیو: اگر ایران با توقف هدف قرار دادن کشتی‌ها موافقت کند، به محاصره پایان خواهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124500
+
+<div align="center">
+  <a href="telegram/content/alonews_124500_1780413283.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مارکو روبیو، وزیر امور خارجه، می‌گوید که ایالات متحده پیشنهاد لغو تحریم‌ها به ایران در ازای بازگشایی تنگه هرمز نداده است و اضافه می‌کند که لغو تحریم‌ها تنها در مذاکرات هسته‌ای مطرح خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124499
+
+<div align="center">
+  <a href="telegram/content/alonews_124499_1780413284.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو، درباره رهبر ایران : رهبر قبلی دیگه تو صحنه نیست و عملاً کنار رفته، و پسرش جای او رو گرفته
+
+
+🔴 اما نکته اینجاست که حدود یک ماهه هیچ خبری ازش نیست
+
+
+🔴طبق گزارش‌های منتشرشده، اون در همون حمله به‌شدت آسیب دیده
+
+
+🔴 شما خودتون مطمئنید هنوز زنده‌ست؟ چون واقعیت اینه که ما هیچ حضور علنی یا صحبت عمومی ازش ندیدیم
+
+
+🔴 بنابراین تا جایی که اطلاعات عمومی نشون میده، وضعیتش کاملاً مبهمه و عملاً خبری از حضورش نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124498
+
+<div align="center">
+  <a href="telegram/content/alonews_124498_1780413284.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو: شرط اول در مذاکرات با ایران، باز کردن تنگهٔ هرمز است
+
+
+🔴لازم است ایران به وضوح اعلام کند که تنگهٔ هرمز از این پس باز است.
+
+
+🔴روبیو: اگر ایران با توقف هدف قرار دادن کشتی‌ها موافقت کند، به محاصره پایان خواهیم داد
+
+
+🔴هیچ کشوری از ادامهٔ بسته بودن تنگهٔ هرمز حمایت نمی‌کند، از جمله چین و روسیه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 18:34
 ---
 
