@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 23:14
+---
+
+## DEJradio — post 5269
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5269_1780429473.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 تجمع هم میهنان مقیم اسپانیا در حمایت از انقلاب شیر و خورشید و آگاه‌سازی افکار عمومی در این کشور
+
+#همبستگی #اسپانیا #ایران_را_پس_میگیریم
+@DEJradio
+</div>
+
+## alonews — post 124588
+
+<div align="center">
+  <a href="https://t.me/alonews/124588" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@AloNews
+</div>
+
+## alonews — post 124587
+
+<div align="center">
+  <a href="telegram/content/alonews_124587_1780429476.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در تاریخ ۹ خرداد ۱۴۰۵ (۳۰ می ۲۰۲۶)، محسن سازگارا در اتاق «طرح نو» کلاب‌هاوس حضور داشت. او در پاسخ به یک نقد بی‌پرده، مطالب و ادعاهایی را مطرح کرد. او در صحبت‌هایش صراحتاً ادعا کرد که در تمام طول عمرش، از هیچ فرد، سازمان یا دولتی فاند دریافت نکرده است.
+
+
+🔴اما با بررسی هایی که در رسمی‌ترین اسناد مالیاتی ثبت‌شده در ایالات متحده، واقعیت دیگری را نشان می‌دهد که با این ادعای کلاب‌هاوسی در تضاد است:
+بر اساس فرم اظهارنامه مالیاتی ۹۹۰ مربوط به «موسسه تحقیقاتی ایران معاصر» (موسسه‌ای که سازگارا خود از سال ۲۰۰۶ رئیس و امضاکننده قانونی آن است)، این سازمان در سال ۲۰۲۴ مبلغ ۲۰۰,۰۰۰ دلار فاند مستقیم از دولت آمریکا دریافت کرده است.
+
+
+🔴طبق اطلاعات درج‌شده در صفحه ۹، بخش ۸، خط 1e این سند، این مبلغ ۲۰۰ هزار دلاری به طور رسمی و قانونی تحت عنوان «فاند دولتی» ثبت شده است.
+
+
+🔴این سند رسمی که تحت جریمه شهادت دروغ به مراجع قانونی آمریکا تحویل داده شده، ثابت می‌کند که موسسه و فعالیت‌های محسن سازگارابه طور مستقیم از فاند دولتی تأمین مالی شده است. این پست با مرور اسناد رسمی، نقض آشکار ادعای اخیر او در کلاب‌هاوس را اثبات می‌کند.
+
+
+🤔محسن سازگار تاسیس کننده سپاه پاسداران و از همراهان اصلی خمینی بود.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 124586
+
+<div align="center">
+  <a href="telegram/content/alonews_124586_1780429477.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تحریم‌های جدید آمریکا علیه ایران
+
+
+🔴وزارت خزانه‌داری آمریکا روز سه‌شنبه اعلام کرد که تحریم‌های جدیدی علیه ایران اعمال کرده است.
+
+
+🔴طبق بیانیه دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا (اوفک)، چهار فرد و چهار نهاد مرتبط با ایران، به فهرست تحریمی آمریکا افزوده شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124585
+
+<div align="center">
+  <a href="telegram/content/alonews_124585_1780429477.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشاتی از فعالیت جنگنده های ارتش بر فراز کرج
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124584
+
+<div align="center">
+  <a href="telegram/content/alonews_124584_1780429477.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دوستان این تبلیغاتی که پائین کانال نمایش داده میشه توسط تلگرامه و دست ما نیست و کلاهبرداری هست و فریب نخورید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 23:05
 ---
 
