@@ -7,6 +7,166 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 01:24
+---
+
+## VahidOOnLine — post 243427
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243427_1780437281.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهای این کشور یک نفتکش بدون بار با پرچم بوتسوانا در مسیر حرکت به سمت بندر خارک را که به هشدارهای نیروهای آمریکایی بی‌توجهی کرد، از کار انداخته‌اند.
+طبق این گزارش، در پی بی‌توجهی این کشتی به هشدارها، یک هواپیمای آمریکایی با پرتاب موشک به موتورخانه آن، کشتی را از کار انداخت و مانع ادامه مسیرش شد.
+سنتکام افزود که از ابتدای محاصره دریایی بنادر ایران تاکنون شش کشتی تجاری توسط نیروهای آمریکایی از کار انداخته شده‌ و ۱۲۲ کشتی تجاری نیز مجبور به تغییر مسیر شده‌اند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243426
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243426_1780437282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️معاون گردشگری ایران اعلام کرد هشت روستا از استان‌های مختلف کشور به‌عنوان نامزدهای ایران برای رقابت در فهرست «بهترین روستاهای گردشگری جهان» در سال ۲۰۲۶ معرفی شده‌اند.
+
+روستاهای پامنار در خوزستان، گیسوم در گیلان، شانه‌تراش در مازندران، ریاب در خراسان رضوی، درک در سیستان و بلوچستان، قلعه‌بالا در سمنان، موئیل در اردبیل و مصر در اصفهان، برای قرار گرفتن در فهرست جهانی سازمان گردشگری ملل متحد (UN Tourism) رقابت خواهند کرد.
+
+به گفته مسئولان گردشگری، تعداد روستاهای ایرانی پذیرفته‌شده در این برنامه از یک روستا در سال‌های ۲۰۲۳ و ۲۰۲۴ به سه روستا در سال ۲۰۲۵ افزایش یافته است.
+
+ارزیابی روستاها بر اساس معیارهایی مانند حفاظت از میراث فرهنگی، پایداری اقتصادی و زیست‌محیطی، زیرساخت‌ها، مشارکت جوامع محلی و توسعه گردشگری پایدار انجام می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار در قشم
+</div>
+
+## pm_afshaa — post 92143
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92143_1780437283.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو جزیره قشم صدای انفجار شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340282
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340282_1780437284.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهای این کشور یک نفتکش بدون بار با پرچم بوتسوانا در مسیر حرکت به سمت بندر خارک را که به هشدارهای نیروهای آمریکایی بی‌توجهی کرد، از کار انداخته‌اند.
+طبق این گزارش، در پی بی‌توجهی این کشتی به هشدارها، یک هواپیمای آمریکایی با پرتاب موشک به موتورخانه آن، کشتی را از کار انداخت و مانع ادامه مسیرش شد.
+سنتکام افزود که از ابتدای محاصره دریایی بنادر ایران تاکنون شش کشتی تجاری توسط نیروهای آمریکایی از کار انداخته شده‌ و ۱۲۲ کشتی تجاری نیز مجبور به تغییر مسیر شده‌اند.
+
+https://iranintl.com/202606024534
+</div>
+
+## Shin_Persian — post 6414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 21:46:22 UTC
+
+State-owned Mehr News
+
+Explosion sounds reported in Qeshm Island area, Hormozgan Province, #Iran
+
+Local sources report multiple explosions heard early Wednesday. Nature of sounds unclear, no official statement from Islamic Regime military or police authorities.
+
+فارسی
+
+خبرگزاری دولتی مهر
+
+گزارش‌هایی از شنیده شدن صدای انفجار در محدوده جزیره قشم، استان هرمزگان، #Iran
+
+منابع محلی از شنیده شدن صدای چندین انفجار در ساعات اولیه روز چهارشنبه خبر می‌دهند. ماهیت این صداها هنوز مشخص نیست و هیچ بیانیه رسمی از سوی مقامات نظامی یا انتظامی رژیم اسلامی صادر نشده است.
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 21271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز شب شدو صدای انفجار های مختلف از جنوب کشور میاد و خب مشخصه که هیچکدومش هم نقض آتش بس نیست
+
+
+@IranianMinds
+</div>
+
+## alonews — post 124617
+
+<div align="center">
+  <a href="telegram/content/alonews_124617_1780437285.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شنیده شدن صدای انفجار در محدوده جزیره قشم
+
+
+🔴بامداد چهارشنبه صدای انفجار‌هایی در محدوده شهرستان قشم از سوی منابع محلی و ساکنان این جزیره گزارش شده است.
+
+
+🔴بر اساس این گزارش، هنوز ماهیت این صداها به طور دقیق مشخص نیست و هیچ‌ یک از نهادهای رسمی نظامی و انتظامی تا این لحظه درباره علت وقوع این صداها اظهارنظری نکرده‌اند.
+
+
+🔴پیگیری‌ها برای کسب اطلاع از ماهیت دقیق این انفجار ادامه دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124616
+
+<div align="center">
+  <a href="telegram/content/alonews_124616_1780437285.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده:
+امروز نیروهای آمریکایی یک نفتکش بدون بار را که در تلاش برای حرکت به سمت یک بندر ایرانی در خلیج فارس بود، از کار انداختند
+
+
+🔴فرماندهی مرکزی ایالات متحده (centcom) اقدامات محاصره‌ای را علیه نفتکش m/t lexie با پرچم بوتسوانا که در حال عبور از آب‌های بین‌المللی به سمت جزیره خارگ بود، اعمال کرد.
+
+
+🔴خدمه کشتی هشدارهای مکرر را نادیده گرفتند و چندین بار در طول ۲۴ ساعت از تبعیت از دستورات نیروهای آمریکایی خودداری کردند.
+
+
+🔴در نهایت یک هواپیمای آمریکایی با شلیک موشک هلفایر به اتاق موتور کشتی، آن را از کار انداخت و مانع رسیدن نفتکش به ایران شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124615
+
+<div align="center">
+  <a href="telegram/content/alonews_124615_1780437287.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران دومین تیم پیر جام جهانی شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 01:14
 ---
 
