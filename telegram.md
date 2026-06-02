@@ -7,6 +7,37 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 03:43
+---
+
+## Shin_Persian — post 6392
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6392_1780359236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 00:10:09 UTC
+
+Jet activity, western Tehran.
+0009Z
+
+فارسی
+
+فعالیت جنگنده‌ها، غرب تهران.
+۰۰۰۹ زولو (۰۳:۳۹ به وقت تهران)
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 282609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ دونالد ترامپ، رئيس جمهور آمريکا، در گفت وگو با شبکه ای‌بی‌سی گفت معتقد است ظرف «هفته آينده» توافقی با ايران برای تمديد آتش‌بس و بازگشايی تنگه هرمز حاصل خواهد شد. او در گفت وگوی تلفنی با جاناتان کارل، خبرنگار ارشد ای‌بی‌سی در واشنگتن، گفت: «اوضاع خوب…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 03:35
 ---
 
