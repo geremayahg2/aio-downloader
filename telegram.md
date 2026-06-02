@@ -7,6 +7,142 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 21:24
+---
+
+## FoxNewsTwitter — post 342507
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342507_1780422847.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: CMS Administrator Dr. Oz gives his review of every other administration official who has filled in behind the podium while Karoline Leavitt is on maternity leave:
+
+"I think Scott Bessent's dry humor is fabulous. Marco is just an earnestly funny person.”
+
+“I think JD was spectacular, he's just very on his game, understands the issues, and he understands the American people, which I appreciated his presentation so much."
+</div>
+
+## pm_afshaa — post 92127
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92127_1780422849.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از یک مقام آمریکایی:
+ترامپ احساس میکنه نتانیاهو کنترل خودش رو از دست داده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340249
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340249_1780422850.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، برای نخستین بار از زمان آغاز جنگ ایران برای ادای شهادت در کنگره حاضر شد. محور رسمی جلسه بودجه سالانه وزارت خارجه است، اما تمرکز اصلی بر جنگ و آتش‌بس تهران و واشینگتن بود.
+
+مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## FarsiVOA — post 219393
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219393_1780422853.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احسان خاندوزی، وزیر پیشین اقتصاد جمهوری اسلامی، در صداوسیمای جمهوری اسلامی، با تایید اثرگذاری محاصره دریایی گفت آمریکا در پی آن است که از این مسیر «یک فشار جدید» علیه جمهوری اسلامی ایجاد کند.
+
+او با اذعان به اینکه «واقعاً محدودیت‌هایی در حوزه نفتی و تجاری» به جمهوری اسلامی وارد شده، هشدار داد که اگر محاصره دریایی باعث عقب‌نشینی جمهوری اسلامی شود، این مسئله «تا سال‌های سال گریبان کشور را خواهد گرفت.»
+</div>
+
+## RadioFarda — post 157828
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157828_1780422856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس‌جمهور ایالات متحده روز سه‌شنبه ۱۲ خرداد گزارش‌های برخی رسانه‌ها در مورد متوقف شدن گفت‌وگوها بین ایران و آمریکا را «نادرست» و «اشتباه» خواند.
+
+🔸دونالد ترامپ در پیامی در شبکهٔ اجتماعی خود، تروث سوشال، نوشت: «گزارش‌های جعلی رسانه‌ای مبنی بر این‌که جمهوری اسلامی ایران و ایالات متحده آمریکا چند روز پیش گفت‌وگوها را متوقف کرده‌اند، نادرست و اشتباه است».
+
+🔸به گفته او، «گفت‌وگوهای ما به‌طور مستمر ادامه داشته، از جمله چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز».
+
+🔸رئیس‌جمهور آمریکا می‌گوید: این‌که این گفت‌وگوها به کجا خواهد انجامید، کسی نمی‌داند، اما همان‌طور که به ایران گفته‌ام: «زمان آن رسیده است که به هر شکلی که شده، به یک توافق برسید. شما ۴۷ سال است که این روند را ادامه می‌دهید و دیگر نمی‌توان اجازه داد بیش از این ادامه پیدا کند!»
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21257
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21257_1780422857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل، یوسف عارش عواد رمضان را که در کشتار ۷ اکتبر مشارکت داشت را به هلاکت رساند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماهواره‌های تلویزیون بی‌بی‌سی فارسی در روزهای آینده به تدریج تغییراتی خواهد داشت.
+
+یوتل‌ست طول موج ۱۱۳۰۴ از ۱۵ خرداد، هاتبرد ترنسپوندر ۸۹ از ۴ تیر و یاه‌ست ترنسپوندر ۱۴ از ۱۰ تیر در دسترس نخواهد بود.
+
+در روزهای آینده به تدریج می‌توانید به ماهواره‌های اصلی بی‌بی‌سی فارسی منتقل شوید:
+یاه‌ست ۵۲/۵ شرقی فرکانس ۱۱۹۹۶ ترنسپوندر ۱۵ پولاریزاسیون عمودی
+هات‌برد ۱۳ شرقی فرکانس ۱۱۷۲۷ ترنسپوندر ۵۰ پولاریزاسیون عمودی
+@BBCPersian
+</div>
+
+## alonews — post 124538
+
+<div align="center">
+  <a href="telegram/content/alonews_124538_1780422858.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈المیادین به نقل از منابع آگاه: هیئت لبنانی جلسه را با تأکید بر لزوم دستیابی به آتش‌بس جامع آغاز کرد.
+
+
+🔴مذاکرات شامل پرونده‌های مختلف و مفاهیم مرجع مرتبط با سازوکار آتش‌بس و تثبیت آن می‌شود.
+
+
+🔴تخمین ما این است که مذاکرات امروز به نتیجه قطعی منجر نخواهد شد و احتمالاً مذاکرات فردا ادامه می‌یابد.
+
+
+🔴در طول جلسه، ایده‌ها و راهکارهای عملی از سوی طرف لبنانی و «اسرائیلی» و همچنین پیشنهادهایی از میانجی آمریکایی درباره آتش‌بس مطرح شد.
+
+
+🔴 یک جدیت آشکار و یک تلاش واقعی آمریکایی برای دستیابی به تثبیت کامل و پایدار آتش‌بس وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124537
+
+<div align="center">
+  <a href="telegram/content/alonews_124537_1780422859.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بی‌بی‌سی‌ : ترامپ به پایان جنگ ایران نیاز دارد، اما تهران عقب‌نشینی نمی‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 21:14
 ---
 
