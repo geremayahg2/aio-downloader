@@ -7,6 +7,219 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 01:53
+---
+
+## WithYashar — post 13311
+
+
+
+
+## WithYashar — post 13310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایگاه عریفجان در جنوب کویت، نیز هدف قرار گرفت
+@withyashar
+</div>
+
+## WithYashar — post 13309
+
+
+
+
+## WithYashar — post 13308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار این به معنای شروع جنگ هست بنظرت یا امریکا میخواد بگه نقض نشده
+</div>
+
+## Iliaen — post 4441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ایالات متحده یک نفتکش را که به سمت جزیره خارک حرکت می‌کرد، هدف قرار داد.
+
+@iliaen
+</div>
+
+## Persian_Trend_Official — post 15546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ پایگاه هوایی علی‌السالم در کویت هدف قرار گرفته است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15545
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15545_1780439026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وزارت دفاع کویت اعلام کرد که پدافند هوایی کشور در حال حاضر در حال پاسخگویی به حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل ارتش کویت خاطرنشان می‌کند که صدای انفجارها ناشی از رهگیری پدافند هوایی است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این سری دیگه آتش‌بس نقص شد؟
+یا هنوز از ته دل نقض نشده؟
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21277
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21277_1780439027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کویت در حال رهگیری موشک‌های رژیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجور که مشخصه احتمالا آمریکا به قشم یه حمله ای داشته و سپاه هم برای جواب به کویت حمله کرده
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21275
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21275_1780439029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سوخت‌رسان‌های آمریکایی از تل‌آویو به پرواز دراومدن.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ایالات متحده یک نفتکش را که به سمت جزیره خارک حرکت می‌کرد، هدف قرار داد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امریکا هم قشم رو زده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانالای سپاه: منابع خبری از حمله به پایگاه عریفجان «بزرگ‌ترین پایگاه زمینی ارتش آمریکا در منطقه» خبر میدن!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124627
+
+<div align="center">
+  <a href="telegram/content/alonews_124627_1780439030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شاهدان عینی از کویت:
+
+
+🔴خونه ما سمت سفارت امريكا هست سفارت امريكا هم داشت موشك میخورد صداي انفجار خيلي بلندي بود.
+
+
+🔴انفجار های سنگین در منطقه سورا کویت با چشم قابل رویت بود.
+
+
+🔴همين الان اژير كويت فعال شد دوباره
+٦ تا انفجار خيلي سنگين تا الان
+توي اين ٣ ماه اينقد صداش سنگين نبود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124626
+
+<div align="center">
+  <a href="telegram/content/alonews_124626_1780439031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کویت لحظاتی قبل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124625
+
+<div align="center">
+  <a href="telegram/content/alonews_124625_1780439033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش العربیه: ایران در یک حمله واحد، هم پایگاه هوایی علی السالم و هم کمپ عریفجان را هدف قرار داد
+
+
+🔴ایالات متحده و ایران در روزهای اخیر حملات کوچک مقیاسی را در جزیره قشم و کویت رد و بدل کرده‌اند، اما این حمله بزرگ‌تر بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124624
+
+<div align="center">
+  <a href="telegram/content/alonews_124624_1780439033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پایگاه عریفجان در جنوب کویت، نیز هدف قرار گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124622
+
+<div align="center">
+  <a href="telegram/content/alonews_124622_1780439034.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیوئی از انفجار تو کویت، و فعالیت پدافند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 01:43
 ---
 
