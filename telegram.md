@@ -7,6 +7,172 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 23:24
+---
+
+## pm_afshaa — post 92140
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92140_1780430079.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه کان اسرائیل:
+آمریکا قصد داره ارتش لبنان رو برای مقابله با حزب‌الله آموزش بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92139
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92139_1780430080.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آمریکا چهار صرافی ایرانی نوبیتکس، بیت‌پین، رمزینکس و والکس و 6 فرد مرتبط با اونا رو تحریم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340269
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340269_1780430080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصادره اموال؛ ارعاب جامعه یا ترفند رژیم مجتبی خامنه‌ای؟!
+
+«چشم‌انداز با مهدی مهدوی‌ازاد»
+
+تماشای نسخه کامل برنامه در یوتیوب:
+
+https://youtu.be/6tSV6_dfnQE?si=zy5i_JlB4I2st5Cb
+@iranintltv
+</div>
+
+## IranIntlTV — post 340268
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340268_1780430083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر تحقیقات بالینی مرکز جامع سرطان دانشگاه آریزونا از کشف داروی «داراکسون‌راسیب» در درمان سرطان لوزالمعده خبر داد و گفت مصرف این دارو جهش‌های ژنی عامل گسترش سرطان را هدف قرار می‌دهد
+
+گفت‌وگو با شهرام کردستی، مدیر تحقیقات دانشکده سرطان‌شناسی کینگز کالج
+@iranintltv
+</div>
+
+## IranIntlTV — post 340267
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340267" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: مصادره اموال؛ ارعاب جامعه یا ترفند رژیم مجتبی خامنه‌ای؟!
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 19:47:15 UTC
+
+هر روشی برای قطعی کامل اینترنت در دسترستون هست رو آپدیت نگه دارید، و ایضا دم دست.
+
+English
+
+Keep any method you have for a total internet shutdown updated and, likewise, close at hand.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/saGG96TRkbs?feature=share
+</div>
+
+## IranianMinds — post 21263
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21263_1780430087.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترور هدفمند😂
+
+@IranianMinds
+</div>
+
+## alonews — post 124595
+
+<div align="center">
+  <a href="telegram/content/alonews_124595_1780430089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک سرباز ذخیره ارتش دفاعی اسرائیل (IDF) امروز صبح در جنوب لبنان توسط یک پهپاد انفجاری حزب‌الله به طور متوسط زخمی شد و سه سرباز دیگر نیز به طور سطحی آسیب دیدند، طبق گزارش ارتش دفاعی اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124594
+
+<div align="center">
+  <a href="telegram/content/alonews_124594_1780430089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آمریکا چهار صرافی ایرانی نوبیتکس، بیت‌پین، رمزینکس و والکس و 6 فرد مرتبط با اونا رو تحریم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124593
+
+<div align="center">
+  <a href="telegram/content/alonews_124593_1780430089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون قرارگاه مرکزی خاتم‌الانبیا :
+اگه هیچ چیز هم نداشته باشیم، با سنگ به جنگ با آمریکا میریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124592
+
+<div align="center">
+  <a href="telegram/content/alonews_124592_1780430090.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرواز شبانه جنگنده‌های ارتش روی کرج، استان البرز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124591
+
+<div align="center">
+  <a href="telegram/content/alonews_124591_1780430092.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارشات منتشر شده،مصرف دخانیات تو دخترای ۱۳ تا ۱۵ ساله ایران نسبت به سال ۱۳۹۵ حدود ۱۳۵ درصد افزایش پیدا کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 23:14
 ---
 
