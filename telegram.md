@@ -7,6 +7,288 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 02:44
+---
+
+## VahidOOnLine — post 243445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ساعاتی پس از اینکه ستاد کل نیروهای مسلح کویت با انتشار بیانیه‌ای فوری اعلام کرد که سیستم‌های پدافند هوایی این کشور، بامداد چهارشنبه، مشغول مقابله با حملات موشکی و پهپادهای «متخاصم» در آسمان کویت هستند، ارتش سعود عبدالعزیز العطوان، سخنگوی رسمی وزارت دفاع کویت، با انتشار بیانیه‌ای از مردم و ساکنان این کشور خواست تا به هیچ‌عنوان به بقایا یا اجسام مشکوک و ناشناسی که ممکن است در پی عملیات پدافند هوایی برای رهگیری و انهدام «اهداف متخاصم» در زمین سقوط کرده باشند، نزدیک نشوند و آن‌ها را لمس نکنند. در این بیانیه تاکید شده که این ضایعات خطر جدی برای سلامت عمومی دارند و مردم باید در صورت مشاهده، فورا مراتب را به مراجع مربوطه گزارش داده، دستورالعمل‌های ایمنی را رعایت کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات جدید به کویت
+@withyashar
+</div>
+
+## WithYashar — post 13327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم جمهوری اسلامی به بحرین حمله کرد پدافند بحرین فعال شد @withyashar
+</div>
+
+## WithYashar — post 13326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳‌پا اعلام کرد در پاسخ به آنچه «حمله آمریکا به حاکمیت ایران در جزیره قشم» خوانده، پایگاه‌های نظامی آمریکا در کویت را با حملات موشکی هدف قرار داده و این اقدام را «پاسخ اولیه» توصیف کرده است.
+
+در این بیانیه به آمریکا و هر کشوری که خاک یا آسمان خود را برای عملیات علیه ایران در اختیار بگذارد هشدار داده شده که هرگونه اقدام جدید با پاسخی شدیدتر و فراتر از «قواعد متعارف» روبه‌رو خواهد شد.
+
+۳پا همچنین تأکید کرده است که دوران «بزن و فرار کن» پایان یافته و نیروهای آمریکایی و متحدانشان باید منتظر پیامدهای اقدامات خود باشند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10052
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هدف قرار گرفتن پایگاه الجُفَير منامه و مقر ناوگان پنجم آمریکا در بحرین.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨وزارت کشور بحرین وزارت کشور اعلام کرد:
+در پی حملات خصمانه با موشک‌ها و پهپادها، آژیرهای هشدار به صدا درآمدند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92164
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92164_1780442040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارشات رسانه‌های داخلی تا الان 10 موشک بالستیک به سمت کویت شلیک شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92163
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هنوز دارن حمله میکنن به کویت
+آژیر خطر فعاله
+</div>
+
+## pm_afshaa — post 92162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسپویل: ترامپ میاد میگه نیروهای آمریکایی هیچ آسیبی ندیدن و آتش‌بس همچنان برقراره. قبلشم چندتا قایق تندرو سپاه رو میزنن
+</div>
+
+## pm_afshaa — post 92161
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92161_1780442040.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران اعلام کرد در پاسخ به آنچه «حمله آمریکا به حاکمیت ایران در جزیره قشم» خوانده، پایگاه‌های نظامی آمریکا در کویت رو با حملات موشکی هدف قرار داده و این اقدام رو «پاسخ اولیه» توصیف کرده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom…
+</div>
+
+## pm_afshaa — post 92160
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92160_1780442041.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیویی از موشکی از بوشهر به سوی کویت شلیک شد :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92159
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92159_1780442043.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران اعلام کرد در پاسخ به آنچه «حمله آمریکا به حاکمیت ایران در جزیره قشم» خوانده، پایگاه‌های نظامی آمریکا در کویت رو با حملات موشکی هدف قرار داده و این اقدام رو «پاسخ اولیه» توصیف کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75887
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75887_1780442043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ساعتی پس از انتشار بیانیه سنتکام مبنی بر متوقف کردن یک نفتکش در مسیر بنادر ایران، خبرگزاری‌های داخل ایران و نزدیک به سپاه پاسداران از به صدا در آمدن آژیرهای خطر در کویت در پی حمله موشکی به پایگاه‌های نظامی آمریکا در این کشور خبر دادند.
+
+خبرگزاری تسنیم اگر چه رسما این حمله را از جانب ایران گزارش نکرده اما به نقل از منابع عربی خود نوشت: «دست کم صدای سه انفجار» در کویت شنیده شده و دو پایگاه علی السالم و عریفجان مورد حمله قرار گرفته‌اند.
+
+ایران در واکنش به حمله هفته گذشته نیروهای امریکایی به نقاطی در نزدیکی بندرعباس، به پایگاه‌های آمریکایی در کویت حمله موشکی پهپادی کرده بود که در پی آن به گزارش رسانه‌های امریکا چند نظامی این کشور زخمی شدند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 219419
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219419_1780442044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین دقایقی قبل از به صدا در آمدن «آژیر خطر» خبر داد و از ساکنان این کشور خواست به نزدیکترین مکان امن بروند. این هشدار پس از آن است که کویت نیز اعلام کرد مشغول مقابله با حملات هوایی است.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15566
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15566_1780442044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه فیل شدن موشک رهگیر پاتریوت در کویت که تصاویر آن پخش شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سپاه پاسداران در اطلاعیه ای اعلام کرد حملات انجام شده به کویت و بحرین در پاسخ به حمله نیروهای امریکایی به چند سایت راداری و پدافندی در جزیره قشم انجام شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15564
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15564_1780442046.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تلاش برای رهگیری موشک‌ها بر فراز منامه
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282721
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282721_1780442047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌ساعتی پس از انتشار بیانیه سنتکام مبنی بر متوقف کردن یک نفتکش در مسیر بنادر ایران، خبرگزاری‌های داخل ایران و نزدیک به سپاه پاسداران از به صدا در آمدن آژیرهای خطر در کویت در پی حمله موشکی به پایگاه‌های نظامی آمریکا در این کشور خبر دادند.
+
+خبرگزاری تسنیم اگر چه رسما این حمله را از جانب ایران گزارش نکرده اما به نقل از منابع عربی خود نوشت: «دست کم صدای سه انفجار» در کویت شنیده شده و دو پایگاه علی السالم و عریفجان مورد حمله قرار گرفته‌اند.
+
+ایران در واکنش به حمله هفته گذشته نیروهای امریکایی به نقاطی در نزدیکی بندرعباس، به پایگاه‌های آمریکایی در کویت حمله موشکی پهپادی کرده بود که در پی آن به گزارش رسانه‌های امریکا چند نظامی این کشور زخمی شدند.
+
+دقایقی بعد از گزارش خبرگزاری‌های نزدیک به سپاه پاسداران مبنی بر «حملات موشکی» به پایگاه‌های آمریکایی در کویت، خبرگزاری تسنیم - نزدیک به سپاه پاسداران - از حمله به پایگاه‌های آمریکایی در بحرین خبر داد و همزمان مدعی شد در کویت دست کم صدای سه انفجار شنیده شده است.
+
+
+📷 AFP via Getty Images
+https://bbc.in/43fljUn
+@BBCPersian
+</div>
+
+## alonews — post 124659
+
+<div align="center">
+  <img src="telegram/content/alonews_124659_1780442047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 🚀✅
+
+⭐️ فقط گیگی 8 هزار تومان😍
+
+✅ بدون قطعی‌های آزاردهنده
+✅ سرعت بالا حتی ساعات شلوغ
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+✅ همراه با ساب
+
+✅ تعداد محدود با این قیمت
+
+🤖 @NetAazaadBot
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 124658
+
+<div align="center">
+  <a href="telegram/content/alonews_124658_1780442048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه‌های عربی می‌گویند که حملات موشکی و پهپادی به محل استقرار نظامیان آمریکایی در کویت و بحرین ادامه داشته و آژیرهای هشدار قطع نمی‌شوند
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124657
+
+<div align="center">
+  <a href="telegram/content/alonews_124657_1780442048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای پهپادهای شاهد-۱۳۶ در آسمان بحرین شنیده می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124656
+
+<div align="center">
+  <a href="telegram/content/alonews_124656_1780442049.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جت های اسرائیلی بر فراز بیروت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124655
+
+<div align="center">
+  <a href="telegram/content/alonews_124655_1780442049.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش از حملات متداوم سپاه به بحرین؛ کویت و کردستان عراق ادامه داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 02:34
 ---
 
