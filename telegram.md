@@ -7,6 +7,304 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 20:05
+---
+
+## VahidOOnLine — post 243384
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243384_1780418109.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه شیعه «عصائب اهل الحق»، از نیروهای نیابتی جمهوری اسلامی در عراق، با انتشار بیانیه‌ای اعلام کرد ارتباط تشکیلاتی خود را با حشد الشعبی، دیگر گروه نزدیک به تهران، قطع می‌کند و سلاح‌های خود را به دولت عراق تحویل خواهد داد.
+
+بر اساس بیانیه رهبری این گروه به ریاست قیس خزعلی که سه‌شنبه ۱۲ خرداد منتشر شد، عصائب اهل الحق در چارچوب سیاست «حصر سلاح در اختیار دولت» قصد دارد تحت فرماندهی کل نیروهای مسلح عراق فعالیت کند.
+
+در این بیانیه همچنین آمده است که یک کمیته مرکزی برای پیگیری روند اجرایی این تصمیم تشکیل شده است.
+
+ماموریت این کمیته شامل سرشماری کامل نیروها، تهیه فهرستی از تمامی سلاح‌ها و تجهیزات لجستیکی و همچنین تکمیل روند قطع ارتباط با حشد الشعبی و ادغام در ساختارهای امنیتی دولت عراق خواهد بود.
+
+ریاست این کمیته به الحاج جواد الطلیباوی، از فرماندهان ارشد عصائب اهل الحق، واگذار شده است.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243383
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243383_1780418110.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل در بیانیه‌ای اعلام کرد در عملیات روز دوشنبه در مرکز نوار غزه، یوسف عایش عواد رمضان، جانشین فرمانده نیروهای نخبه حماس، کشته شده است.
+
+در این بیانیه آمده است او یکی از افرادی بود که در حمله هفتم اکتبر وارد خاک اسرائیل شد و در ربودن تعدادی از افراد نقش داشت همچنین تهدیدی فوری برای نیروهای اسرائیلی که در نوار غزه فعالیت می‌کنند محسوب می‌شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342503
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342503_1780418111.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Disappearance of Lynette Hooker, who went missing in the Bahamas, is being treated as a murder investigation, US official tells Fox News
+</div>
+
+## FoxNewsTwitter — post 342502
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342502_1780418112.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The White House Correspondents' Association is moving forward with a rescheduled Correspondents' Dinner after this year's event was interrupted by an assassination attempt against President Trump.
+
+WHCA President Weijia Jiang says the July 24 gathering in Washington, D.C. will feature significantly enhanced security and serve as a message that "violence has no place in American life."
+
+"We will not allow an act of violence to have the last word."
+</div>
+
+## pm_afshaa — post 92117
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کرملین: در صورت عقب‌نشینی اوکراین، جنگ امشب پایان می‌یابد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گروه شبه‌نظامی کتائب امام علی مورد حمایت ایران در عراق اعلام کرد که با حشد الشعبی قطع ارتباط کرده و سلاح‌های خود را تحویل دولت عراق می‌دهد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92115
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92115_1780418113.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😄 فروش فیلترشکن سرور V2ray قوی، بدون قطعی و از همه مهمتر بدون ضریب، آیپی ثابت
+
+سرور حجمی:
+
+🛡 10 گیگ: 150
+
+🛡 20 گیگ: 250
+
+🛡 30 گیگ: 300
+
+نامحدود تانل شده:
+
+🛡1 کاربره 1 ماهه: 430
+
+🛡 2 کاربره 1 ماهه: 490
+
+
+❤️‍🔥 کانالمون:
+@Configmrsood
+
+جهت خرید:
+@mrsoodadmin
+</div>
+
+## DEJradio — post 5261
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هشدار اتحادیۀ اروپا: از پرواز بر فراز ایران، عراق و لبنان پرهیز کنید
+
+آژانس ایمنی هوانوردی اتحادیۀ اروپا، هشدارهای خودداری از پرواز در آسمان ایران، عراق و لبنان را تا بیستم خردادماه امسال تمدید کرد.
+
+#خبر #دژ #اروپا
+@DEJradio
+</div>
+
+## DEJradio — post 5260
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بحرین سفر شهروندان خود به جمهوری اسلامی و عراق را ممنوع کرد
+
+وزارت کشور بحرین اعلام کرد سفر شهروندان این کشور به جمهوری اسلامی و عراق تا اطلاع بعدی ممنوع است و متخلفان با برخورد قانونی روبه‌رو می‌شوند.
+به گفتۀ مقامات بحرین، این ممنوعیت سفر به‌دلیل شرایط امنیتی منطقه بوده و برای حفاظت از شهروندان، گرفته شده است.
+بحرین اعلام کرده در جریان جنگ چهل روزه ده‌ها موشک و صدها پهپاد شلیک شده توسط جمهوری اسلامی را رهگیری کرده است.
+
+#خبر #دژ #بحرین
+@DEJradio
+</div>
+
+## DEJradio — post 5259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رئیس پیشین موساد گفت زمان پایان دادن به کار جمهوری اسلامی فرارسید
+
+دیوید بارنئا، در آخرین روز مسئولیتش به عنوان رئیس موساد گفت جمهوری اسلامی در ضعیف‌ترین وضعیت خود قرار دارد و باید کارزار علیه آن ادامه یابد.
+او گفت می‌توان جمهوری اسلامی را سرنگون کرد، اما این کار به پایداری و تعهد نیاز دارد.
+
+#خبر #دژ #موساد
+@DEJradio
+</div>
+
+## IranIntlTV — post 340237
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340237_1780418114.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه شیعه «عصائب اهل الحق»، از نیروهای نیابتی جمهوری اسلامی در عراق، با انتشار بیانیه‌ای اعلام کرد ارتباط تشکیلاتی خود را با حشد الشعبی، دیگر گروه نزدیک به تهران، قطع می‌کند و سلاح‌های خود را به دولت عراق تحویل خواهد داد.
+
+بر اساس بیانیه رهبری این گروه به ریاست قیس خزعلی که سه‌شنبه ۱۲ خرداد منتشر شد، عصائب اهل الحق در چارچوب سیاست «حصر سلاح در اختیار دولت» قصد دارد تحت فرماندهی کل نیروهای مسلح عراق فعالیت کند.
+
+در این بیانیه همچنین آمده است که یک کمیته مرکزی برای پیگیری روند اجرایی این تصمیم تشکیل شده است.
+
+ماموریت این کمیته شامل سرشماری کامل نیروها، تهیه فهرستی از تمامی سلاح‌ها و تجهیزات لجستیکی و همچنین تکمیل روند قطع ارتباط با حشد الشعبی و ادغام در ساختارهای امنیتی دولت عراق خواهد بود.
+
+ریاست این کمیته به الحاج جواد الطليباوی، از فرماندهان ارشد عصائب اهل الحق، واگذار شده است.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+https://iranintl.com/202606027946
+</div>
+
+## IranIntlTV — post 340236
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340236_1780418115.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منشه امیر، کارشناس امور خاورمیانه، به ایران‌اینترنشنال گفت نتانیاهو در مراسم جانشینی رومن گافمن به عنوان رییس جدید موساد اعلام کرده که یکی از ماموریت‌های او تلاش برای سرنگونی جمهوری اسلامی است
+@iranintltv
+</div>
+
+## IranIntlTV — post 340235
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340235_1780418117.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل در بیانیه‌ای اعلام کرد در عملیات روز دوشنبه در مرکز نوار غزه، یوسف عایش عواد رمضان، جانشین فرمانده نیروهای نخبه حماس، کشته شده است.
+
+در این بیانیه آمده است او یکی از افرادی بود که در حمله هفتم اکتبر وارد خاک اسرائیل شد و در ربودن تعدادی از افراد نقش داشت همچنین تهدیدی فوری برای نیروهای اسرائیلی که در نوار غزه فعالیت می‌کنند محسوب می‌شد.
+https://iranintl.com/202606026234
+</div>
+
+## FarsiVOA — post 219385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زندگی شخصی و حرفه‌ای هما میرافشار، ترانه‌سرای بزرگ ایرانی و خالق آثار ماندگاری در عرصه موسیقی، در گفت‌وگو با مرتضی برجسته، خواننده، آهنگساز و از دوستان نزدیک او
+</div>
+
+## FarsiVOA — post 219384
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدور شتابزده احکام سنگین زندان برای زنان، شهروندان بهائی و معترضان بازداشت‌شده در دی ۱۴۰۴
+
+◾️در حالی که دستگاه حکمرانی جمهوری اسلامی، به روایت کارشناسان داخلی و خارجی، در تمام زمینه‌های سیاست داخلی و خارجی به ورطه بحران افتاده است، قوه قضائیه جمهوری اسلامی با شتابی کم‌سابقه به صدور و اجرای احکام زندان برای گروه‌های مختلفی از شهروندان ادامه می‌دهد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/judiciary-of-the-islamic-republic-of-iran-protesters-in-prison-health-services-iran/8156470.html
+</div>
+
+## DW_Farsi — post 125432
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125432_1780418118.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاه تجدیدنظر ایران لغو حکم ۱۰ سال زندان زوج بریتانیایی را رد کرد
+
+دادگاه تجدیدنظر ایران، درخواست زوج بریتانیایی زندانی برای لغو حکم زندان‌شان را رد کرد.
+
+لیندزی فورمن و همسرش کریگ فورمن که در ژانویه ۲۰۲۵ هنگام سفر با موتورسیکلت در چارچوب یک سفر جهانی در ایران بازداشت شدند، به اتهام جاسوسی به ۱۰ سال زندان محکوم شده‌اند.
+
+خانواده این زوج بریتانیایی زندانی در ایران، روز سه‌شنبه دوم ژوئن (۱۲ خرداد) اعلام کردند: «کریگ و لیندزی فورمن اجازه حضور در جلسه دادگاه را نداشتند و اطلاعات بسیار محدودی درباره روند رسیدگی در اختیارشان قرار گرفته است اما با این حال دادگاه تجدیدنظر ایران حکم ۱۰ سال زندان آنها را تایید کرده است.»
+
+پیش‌تر وزیر امور خارجه بریتانیا صدور حکم ۱۰ سال زندان برای این زوج را "تکان‌دهنده و غیرقابل قبول" خوانده و گفته بود، دولت این کشور پرونده آنها را بی‌وقفه پیگیری خواهد کرد تا زمانی که لیندزی و کریگ فورمن سالم به بریتانیا و نزد خانوده‌شان بازگردند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125431
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125431_1780418119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 فارس: تبادل پیام بین ایران و آمریکا فعلا متوقف شده است
+
+در حالی که مارکو روبیو، وزیر خارجه آمریکا تایید کرده، ایالات متحده همچنان در حال مذاکره با ایران است، خبرگزاری فارس، نزدیک به سپاه پاسداران مدعی شد، "روند تبادل پیام بین ایران و آمریکا بر خلاف گزارش رسانه‌ها و مقام‌های غربی، دست‌کم چند روزی است که متوقف شده است.»
+
+علاوه بر وزیر خارجه آمریکا، شب گذشته دونالد ترامپ، رئیس‌جمهور ایالات متحده نیز اعلام کرد، "گفت‌وگوها با ایران با سرعت بالایی در جریان است".
+
+ترامپ همچنین با اعلام اینکه از بنیامین نتانیاهو خواسته به ضاحیه در جنوب بیروت حمله نکند، به رسانه‌های آمریکا گفت: «جزئیات توافق با ایران در حال تکمیل است و احتمال دارد هفته آینده به نتیجه برسد.»
+
+خبرگزاری فارس اما مدعی است، "آخرین پیام جمهوری اسلامی ایران به واشنگتن، پیامی آشکار در خصوص لبنان بود که بازتاب گسترده بین‌المللی یافت و پس از آن رد و بدل پیامی صورت نگرفته است".
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 21251
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21251_1780418119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مارکو روبیو :
+
+اگر تصمیم با مردم ایران بود، همین فردا توافق می‌کردند.
+
+رهبر جمهوری اسلامی و سپاه پاسداران تا حدی در برابر این فشارها و تحریم ها مصون هستند و فشار کمتری روشونه.
+
+@IranianMinds
+</div>
+
+## alonews — post 124524
+
+<div align="center">
+  <a href="telegram/content/alonews_124524_1780418122.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مارکو روبیو: برخی از متحدان ما در منطقه بسیار به صورت تهاجمی همکاری کرده‌اند، مانند امارات متحده عربی.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124523
+
+<div align="center">
+  <a href="telegram/content/alonews_124523_1780418124.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو: اگر مردم ایران اختیار داشتند، فردا توافق می‌کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 19:54
 ---
 
