@@ -7,6 +7,400 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 01:33
+---
+
+## VahidOOnLine — post 243430
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243430_1780437821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صداهای انفجار در محدوده قشم در بامداد چهارشنبه خبر داد. طبق این گزارش، هنوز ماهیت این صداها مشخص نیست و هیچ‌‌یک از نهادهای رسمی نظامی تاکنون درباره علت این صداها اظهارنظر نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243429
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243429_1780437822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صداهای انفجار در محدوده قشم در بامداد چهارشنبه خبر داد. طبق این گزارش، هنوز ماهیت این صداها مشخص نیست و هیچ‌‌یک از نهادهای رسمی نظامی تاکنون درباره علت این صداها اظهارنظر نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243428
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243428_1780437822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صداهای انفجار در محدوده قشم در بامداد چهارشنبه خبر داد. طبق این گزارش، هنوز ماهیت این صداها مشخص نیست و هیچ‌‌یک از نهادهای رسمی نظامی تاکنون درباره علت این صداها اظهارنظر نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر در کویت🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 13302
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13302_1780437823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان شلیک ۲ موشک از سایت موشکی زین آباد داراب احتمالا به کویت
+@withyashar
+</div>
+
+## WithYashar — post 13301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر بعد از ساعتی چک کردن چنل ما گفت : بامداد چهارشنبه صدای انفجار‌هایی در محدوده شهرستان قشم از سوی منابع محلی و ساکنان این جزیره گزارش شده است.
+پیگیری‌ها برای کسب اطلاع از ماهیت دقیق این انفجار ادامه دارد.
+@withyashar 🤣
+</div>
+
+## FoxNewsTwitter — post 342519
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342519_1780437823.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @EricShawnTV: Life with John Gotti. Watch our exclusive: “Gotti’s Guy,” now streaming on Fox Nation! @foxnation @FoxNews @foxnewsradio @foxnewspolitics #foxnation #fox #mafia #crime #streaming
+</div>
+
+## VahidOnline — post 75884
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75884_1780437825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی هم‌زمان درباره شلیک موشک از داراب و اعلام هشدار در کویت
+
+سلام همین الان ساعت ۱:۲۳ دقیقه دوتا موشک از داراب استان فارس پرتاب شد
+یکیش حین رفتن ترکید
+
+همین الان داراب صدای انفجار شدید اومد و شیشه ها لرزید
+کل همسایه ها ریختن تو کوچه ببینن چه خبره
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+صدای انفجار روستای نخل گل قشم
+
+قشم صدای پایان جنگ در همه جبهه ها از جمله لبنان میاد
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340288
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340288_1780437826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رومان گوفمن، رییس جدید موساد، در مراسم معارفه‌اش گفت تحول راهبردی که اسرائیل در محور ایران ایجاد کرده، موازنه قدرت منطقه را تغییر داده و محور شیعه، که به گفته او نابودی اسرائیل را در دستور کار خود قرار داده بود، ضربه شدیدی خورده است.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340287
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340287_1780437828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صداهای انفجار در محدوده قشم در بامداد چهارشنبه خبر داد. طبق این گزارش، هنوز ماهیت این صداها مشخص نیست و هیچ‌‌یک از نهادهای رسمی نظامی تاکنون درباره علت این صداها اظهارنظر نکرده‌اند.
+https://iranintl.com/202606023526
+</div>
+
+## IranIntlTV — post 340286
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340286_1780437828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صداهای انفجار در محدوده قشم در بامداد چهارشنبه خبر داد. طبق این گزارش، هنوز ماهیت این صداها مشخص نیست و هیچ‌‌یک از نهادهای رسمی نظامی تاکنون درباره علت این صداها اظهارنظر نکرده‌اند.
+https://iranintl.com/202606023526
+</div>
+
+## IranIntlTV — post 340285
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340285_1780437829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از شنیده شدن صداهای انفجار در محدوده قشم در بامداد چهارشنبه خبر داد. طبق این گزارش، هنوز ماهیت این صداها مشخص نیست و هیچ‌‌یک از نهادهای رسمی نظامی تاکنون درباره علت این صداها اظهارنظر نکرده‌اند.
+https://iranintl.com/202606023526
+</div>
+
+## IranIntlTV — post 340284
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340284_1780437829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خواهر جاویدنام احمد خسروانی، بسکتبالیست ۲۱ ساله که در شامگاه پنجشنبه ۱۸ دی ۱۴۰۴ با شلیک مستقیم گلوله کشته شد، با انتشار ویدیویی از حضور او در مسابقات بسکتبال نوشت: «احمد جانم، بلندقامتم،‌ ویدیو‌هات هنوز نفس می‌کشند، اما خودت نیستی؛ چجوری می‌توانم باور کنم کسی که این‌قدر تو زمین زنده بود، الان فقط تصویرش مانده؟»
+
+🔹او نوشت: «۱۴۵ روز است که نبودنت را نفس می‌کشیم، هر روزش انگار یک عمر گذشته،‌ولی من هنوز هملن‌جا موندم، در لحظه‌ای که دنبال پیکر بی‌جانت می‌گشتیم.»
+
+🔹خواهر جاویدنام احمد خسروانی نوشته است: «بهار آمد، تابستون آمد،‌ ولی من هنوز در زمستان جا ماندم، من توی دی ماندم. دردی در دلم هر روز عمیق‌تر می‌شود. زخمی که با هیچ مرهمی درمان نمی‌شود.»
+
+🔹جاویدنام احمد خسروانی، دانشجوی ۲۱ ساله دانشگاه صنعتی شریف و بسکتبالیست که با تیم فرزان شمیران در مسابقات بسکتبال سه نفره تهران قهرمان شده بود و عنوان برترین بازیکن لیگ تهران در سال ۱۴۰۴ هم داشت، شامگاه پنجشنبه ۱۸ دی ۱۴۰۴ با شلیک مستقیم گلوله کشته شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340283
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340283" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ نظر شما دربارهٔ مذاکرات جمهوری اسلامی و آمریکا
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6421
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6421_1780437831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: مركز التواصل الحكومي ✓ @CGCKuwait Tue, 02 Jun 2026 21:58:48 UTC بيان صادر عن وزارة الدفاع #CGCKuwait ↩️ Quoted tweet — see the post below for the reply. English Statement issued by the Ministry of Defense #CGCKuwait 𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6420
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6420_1780437832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+مركز التواصل الحكومي ✓ @CGCKuwait
+Tue, 02 Jun 2026 21:58:48 UTC
+
+بيان صادر عن وزارة الدفاع
+
+#CGCKuwait
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+Statement issued by the Ministry of Defense
+
+#CGCKuwait
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 21:57:30 UTC
+
+BM was launched from Fars Province, #Iran
+Sirens went off @ 2155Z in #Kuwait 🇰🇼
+
+فارسی
+
+یک موشک بالستیک از استان فارس، #Iran شلیک شد
+آژیرهای خطر در ساعت ۲۱۵۵ زولو (۰۱:۲۵ به وقت تهران) در #Kuwait 🇰🇼 به صدا درآمدند
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6418
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6418_1780437832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 21:57:26 UTC
+
+Kuwaiti Air Defenses are currently responding to hostile missile and drone attacks.
+
+The General Staff of the Army states that any explosions heard are the result of air defense interceptions.
+
+F…
+
+Source: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2061930167338197059
+
+فارسی
+
+پدافند هوایی کویت در حال حاضر در حال پاسخگویی به حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل ارتش اعلام کرد که هرگونه صدای انفجار شنیده شده، ناشی از رهگیری‌های پدافند هوایی است.
+
+ف…
+
+منبع: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2061930167338197059
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6417
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6417_1780437833.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: KUWAIT ARMY - الجيش الكويتي ✓ @KuwaitArmyGHQ Tue, 02 Jun 2026 21:57:15 UTC تتصدى حالياً الدفاعات الجوية الكويتية لهجمات صاروخية وطائرات مسيرة معادية. تنوه رئاسة الأركان العامة للجيش أن أصوات الانفجارات إن سمعت فهي نتيجة اعتراض منظومات الدفاع…
+</div>
+
+## Shin_Persian — post 6416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+KUWAIT ARMY - الجيش الكويتي ✓ @KuwaitArmyGHQ
+Tue, 02 Jun 2026 21:57:15 UTC
+
+تتصدى حالياً الدفاعات الجوية الكويتية لهجمات صاروخية وطائرات مسيرة معادية.
+
+تنوه رئاسة الأركان العامة للجيش أن أصوات الانفجارات إن سمعت فهي نتيجة اعتراض منظومات الدفاع الجوي للهجمات المعادية.
+
+يرجى من الجميع التقيد بتعليمات الأمن والسلامة الصادرة عن الجهات المختصة.
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+Kuwaiti air defenses are currently confronting hostile missile attacks and drones.
+
+The General Staff of the Army notes that if sounds of explosions are heard, they are the result of the air defense systems intercepting hostile attacks.
+
+Everyone is requested to adhere to the security and safety instructions issued by the competent authorities.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6415
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 21:55:59 UTC
+
+NOW -
+Sirens in #Kuwait 🇰🇼
+
+فارسی
+
+هم‌اکنون -
+آژیرهای خطر در #Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219416
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219416_1780437834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام اعلام کرد که یک نفتکش‌ را که به سمت جزیره خارک در حرکت بود و به هشدارهای پیاپی نیروهای آمریکایی بی‌اعتنایی کرد، روز سه‌شنبه ۱۲ خرداد با شلیک یک موشک از یک هواگرد از کار انداخت.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15539
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15539_1780437834.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ صدای آژیر خطر در کویت فعال شد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨خبرگزاری مهر از شنیده شدن صدای انفجار در محدوده جزیره قشم خبر داد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15537
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15537_1780437835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨خبرگزاری مهر از شنیده شدن صدای انفجار در محدوده جزیره قشم خبر داد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه انفجار در قشم رخ داده خبرگذاری های داخلی هم تایید کردن و هنوز منشا مشخص نیست
+
+
+@IranianMinds
+</div>
+
+## alonews — post 124619
+
+<div align="center">
+  <a href="telegram/content/alonews_124619_1780437835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع کویت :
+- پدافند هوایی کویت در حال حاضر داره با حملات موشکی و پهپادیِ دشمن مقابله می‌کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124618
+
+<div align="center">
+  <a href="telegram/content/alonews_124618_1780437835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژیر هشدار و صدای انفجار در کویت
+
+
+🔴رسانه‌های عربی از فعال‌شدن آژیرهای هشدار در کویت و شنیده‌شدن انفجارهایی در این کشور خبر دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 01:24
 ---
 
