@@ -7,6 +7,278 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 01:43
+---
+
+## VahidOOnLine — post 243433
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243433_1780438406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش کویت اعلام کرد سامانه‌های دفاعی این کشور در حال مقابله با حملات موشکی و پهپادی خصمانه هستند.
+دقایقی پیش نیز گزارش‌هایی از صداهای انفجار در محدوده قشم منتشر شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243432
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243432_1780438407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد کل نیروهای مسلح کویت با انتشار بیانیه‌ای فوری اعلام کرد که سیستم‌های پدافند هوایی این کشور، بامداد چهارشنبه، ۱۳ خردادماه، مشغول مقابله با حملات موشکی و پهپادهای متخاصم در آسمان کویت هستند. ارتش کویت در این اطلاعیه تاکید کرد که صدای انفجارهای شنیده‌شده در مناطق مختلف، ناشی از عملیات موفقیت‌آمیز سامانه‌های دفاع جوی در رهگیری و انهدام این «اهداف متخاصم» است. مقامات نظامی کویت از تمامی شهروندان و ساکنان این کشور خواسته‌اند تا آرامش خود را حفظ کرده و به طور کامل به دستورالعمل‌های امنیتی و ایمنی صادر شده از سوی مراجع مربوطه پایبند باشند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243431
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243431_1780438408.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال از اصفهان با اشاره به گرانی گفت شرایط معیشتی به‌قدری سخت شده که خوراک مردم محدود شده و «بهداشت و درمان دیگر اولویت نیست».
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13307
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13307_1780438410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رد موشکهای بالستیک در آسمان شیراز
+@withyashar
+</div>
+
+## WithYashar — post 13306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان شلیک ۲ موشک از سایت موشکی زین آباد داراب احتمالا به کویت @withyashar
+</div>
+
+## WithYashar — post 13305
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13305_1780438410.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 13304
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13304_1780438411.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کویت تأیید کرد که به موشک‌ها و پهپادهای پرتاب شده از ایران پاسخ می‌دهد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342520
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342520_1780438412.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I don't know what you have to be so proud of right now."
+
+Black Crowes frontman Chris Robinson stopped a crowd of concertgoers after "U.S.A." chants broke out during the band's Tampa show because the band's mascot appeared dressed as Uncle Sam on a video screen.
+
+The remark was met with boos, and some attendees reportedly walked out before the concert ended.
+
+Videos circulating online show Robinson doubling down, telling critics in the crowd that "some of us have real faith" and are "not afraid" or "ignorant.
+</div>
+
+## IranIntlTV — post 340292
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340292_1780438413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش کویت اعلام کرد سامانه‌های دفاعی این کشور در حال مقابله با حملات موشکی و پهپادی خصمانه هستند.
+دقایقی پیش نیز گزارش‌هایی از صداهای انفجار در محدوده قشم منتشر شد.
+
+https://iranintl.com/202606022811
+</div>
+
+## IranIntlTV — post 340291
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340291" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: جمهوری اسلامی؛ آخرین بازمانده اردوگاه یاغیان جهان
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340290
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340290_1780438414.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «جدای از آمریکا و اسرائیل که بازیگران اصلی تقابل با جمهوری اسلامی هستند، اکثریت مردم ایران نیز برای سرنگونی حکومت مصمم هستند. گرانی و تورم تشدیدشده ناشی از جنگ، یکی از عوامل مهم خیزش آینده مردم خواهد بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340289
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340289_1780438415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال از اصفهان با اشاره به گرانی گفت شرایط معیشتی به‌قدری سخت شده که خوراک مردم محدود شده و «بهداشت و درمان دیگر اولویت نیست».
+</div>
+
+## Iliaen — post 4440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو موشک از اطراف داراب (استان فارس) به سمت کشور کویت شلیک شد.
+
+گزارش‌ها از انفجار یک موشک در آسمان ایران، لحظاتی پس از شلیک حکایت دارد.
+
+@iliaen
+</div>
+
+## Persian_Trend_Official — post 15543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ منابع عربی: آژیرها هنوز در کویت به صدا در می‌آیند، تقریباً به مدت ده دقیقه بدون توقف. حداقل ۴ تا ۵ انفجار گزارش شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15542
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15542_1780438418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تصویری از رد دو موشک بالستیک شلیک‌شده از سایت موشکی شیراز.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15541
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ کویت به شهروندان خود اعلام کرده است که به مکان‌های امن بروند، زیرا که پدافند در حال مقابله با موشک‌ها و پهپادهاست. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15540
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15540_1780438418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ کویت به شهروندان خود اعلام کرده است که به مکان‌های امن بروند، زیرا که پدافند در حال مقابله با موشک‌ها و پهپادهاست.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گزارشات ایران به کویت حمله کرده و با موشک بالستیک پایگاه علی السالم رو مورد حمله قرار داده. + عکس رد موشک شلیک شده از شیراز @IranianMinds
+</div>
+
+## IranianMinds — post 21273
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21273_1780438419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گزارشات ایران به کویت حمله کرده و با موشک بالستیک پایگاه علی السالم رو مورد حمله قرار داده.
+
++ عکس رد موشک شلیک شده از شیراز
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آژیر هشدار و صدای انفجار تو کویت شنیده شده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق پیام کاربران ساعت ۱:۳۰ بامداد از داراب استان فارس ۲ تا موشک پرتاب کردن که ‌تمام شیشه ها لرزیده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+ارتش آمریکا از حمله موشکی به یک ابر نفتکش ایران در خلیج فارس که در تلاش برای حرکت به سمت جزیره خارک بود خبر داد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124621
+
+<div align="center">
+  <a href="telegram/content/alonews_124621_1780438419.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رد شلیک موشک در آسمان شیراز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124620
+
+<div align="center">
+  <a href="telegram/content/alonews_124620_1780438419.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/موشک‌های بالستیک ایران پایگاه هوایی علی‌السالم تو کویت رو زدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 01:33
 ---
 
