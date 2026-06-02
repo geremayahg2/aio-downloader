@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 00:54
+---
+
+## VahidOOnLine — post 243423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی آمریکا (سنتکام)، روز سه‌شنبه، ۱۲ خردادماه، اعلام کرد نیروهای ایالات متحده یک نفت‌کش خالی را که در حال حرکت به سمت بندر جزیره خارگ در ایران بود، در آب‌های بین‌المللی خلیج فارس متوقف و زمین‌گیر کرده‌اند. به گفته سنتکام، خدمه این نفت‌کش با پرچم بوتسوانا (M/T Lexie)، در یک بازه زمانی ۲۴ ساعته بارها هشدارهای ارتش آمریکا را نادیده گرفتند. در نهایت یک جنگنده آمریکایی با شلیک موشک هلفایر به اتاق موتور کشتی، آن را از کار انداخت و مانع رسیدن آن به ایران شد. سنتکام از ۲۴ فروردین‌ماه محاصره دریایی بنادر ایران را آغاز کرده و گزارش داد که در طول دوران آتش‌بس، تاکنون ۶ کشتی تجاری را متوقف و ۱۲۲ کشتی دیگر را تغییر مسیر داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13297
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13297_1780435487.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروهای ایالات متحده ساعاتی پیش یک نفتکش خالی از محموله را که در حال حرکت به سوی یکی از بنادر ایران در خلیج فارس بود، از کار انداختند.
+
+فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد که اقدامات مربوط به محاصره دریایی را علیه نفتکش ام/تی لکسی (M/T Lexie) با پرچم بوتسوانا، در حالی که از آب‌های بین‌المللی به سمت جزیره خارک در حرکت بود، اجرا کرده است.
+
+به گفته سنتکام، خدمه کشتی هشدارهای مکرر را نادیده گرفتند و طی یک دوره ۲۴ ساعته چندین بار از تبعیت از دستورات نیروهای آمریکایی خودداری کردند.
+
+در نهایت، یک هواپیمای آمریکایی با شلیک یک موشک هلفایر به اتاق موتور کشتی، آن را از کار انداخت و مانع رسیدن نفتکش به ایران شدند
+@withyashar
+</div>
+
+## mwarmonitor — post 10042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در حال تحت فشار گذاشتن ایران است تا به‌عنوان بخشی از یک توافق اولیه با ایران، تعهدات هسته‌ای محکم‌تری را به‌صورت کتبی ارائه دهد — ABC
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10041
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10041_1780435490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+یک هواپیمای آمریکایی در تاریخ ۲ ژوئن با شلیک موشک هلفایر به اتاق موتور نفتکش M/T Lexie با پرچم بوتسوانا، این شناور را از کار انداخت.
+به گفته سنتکام، این نفتکش پس از آن هدف قرار گرفت که هشدارها را نادیده گرفت و در نقض تدابیر محاصره‌ای به حرکت خود به سمت جزیره خارک ایران ادامه داد.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342517
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342517_1780435493.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: @willcain reveals jaw-dropping statistics about homelessness in Karen Bass' Los Angeles as he breaks down the key issues at stake tonight's mayoral election:
+
+64% of homeless individuals in LA are from outside the city, while 6% came from other countries including North Korea, Cuba, and Venezuela.
+
+All eyes are on Los Angeles tonight as voters head to the polls for closely watched primary election, where concerns over homelessness, public safety, and incumbent city leadership have dominated the conversation.
+@WillCainShow
+</div>
+
+## pm_afshaa — post 92142
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92142_1780435496.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: ساعتی پیش یک نفتکش بدون محموله که به سمت جزیره خارک درحال حرکت بود رو از کار انداختیم. این کشتی به هشدارها توجه نکرد و ما با یک موشک موتورخانه رو هدف قرار دادیم و متوقف شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 219414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا چهار صرافی رمزارز در ایران و مدیرانشان را تحریم کرد؛ وزارت‌خارجه: این اقدام گامی است برای مقابله با تروریسم و فرار از تحریم‌ها
+
+▪️سخنگوی وزارت امور خارجه آمریکا، تامی پیگوت، گفت وزارت خزانه‌داری آمریکا، روز سه‌شنبه ۱۲ خرداد «بزرگترین صرافی‌های دارایی‌های دیجیتال» جمهوری اسلامی ایران را تحریم کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/us-sanctions-iran-s-largest-crypto-exchange-over-irgc-links/8156547.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21269
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+مذاکرات با ایران ادامه داره و زمان توافق فرا رسیده.
+
+@IranianMinds
+</div>
+
+## alonews — post 124611
+
+<div align="center">
+  <a href="telegram/content/alonews_124611_1780435497.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای رسانه بریتانیایی امواج:
+یک منبع ارشد سیاسی گفت که هیچ گونه قطعی در ارتباط ایران با آمریکا از طریق واسطه‌ها صورت نگرفته است.
+
+
+🔴 همزمان، قطر در کنار سایر واسطه‌های منطقه‌ای، به طور فشرده در پشت صحنه کار می‌کند تا از شعله‌ور شدن دوباره جنگ بر سر لبنان جلوگیری کند.
+
+
+🔴 منابع آگاه عرب و ایرانی گفته‌اند که یکی از نزدیکان نبیه بری، رئیس پارلمان لبنان، به همین منظور در دوحه به سر می‌برد.
+
+
+🔴نخست‌وزیر قطر نیز امروز با رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، دیدار کرد.
+
+
+🔴این تحرکات در مسیرهای موازی اما به هم پیوسته نشان می‌دهد که ممکن است در آستانه یک تحول مهم قرار داشته باشیم.
+
+
+🔴با این حال، آنچه بیش از هر اعلامیه‌ای اهمیت خواهد داشت، اجرا و عمل به توافقات است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 00:45
 ---
 
