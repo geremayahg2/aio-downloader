@@ -7,6 +7,264 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 21:14
+---
+
+## VahidOOnLine — post 243393
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243393_1780422251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، سه‌شنبه ۱۲ خرداد در سنای این کشور گفت نشانه‌هایی وجود دارد که مجتبی خامنه‌ای، رهبر جمهوری اسلامی، پس از زخمی شدن در آغاز جنگ، «به‌طور فزاینده‌ای در سطحی درگیر امور شده است».
+
+او گفت: «ما او را در انظار عمومی ندیده‌ایم و فکر می‌کنم با توجه به اتفاقی که برای چند مقام ارشد نظام افتاده، احتمالا به آنها توصیه نمی‌شود حضور علنی گسترده داشته باشند.»
+
+روبیو گفت: «با این حال، فکر می‌کنم نشانه‌هایی وجود دارد که او به‌تدریج، دست‌کم تا حدی، در امور دخیل‌ می‌شود، هرچند همه تماس‌های او مکتوب و از طریق واسطه‌ها بوده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13281
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13281_1780422252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: «موساد همچنان در خط مقدم نیزه در نبرد ما علیه تجاوز ایران باقی خواهد ماند.
+
+ما اجازه نخواهیم داد رژیم ایران چرخ تاریخ را به عقب برگرداند. ما اجازه نخواهیم داد به سلاح هسته‌ای دست پیدا کند. ما اجازه نخواهیم داد موجودیت ما را تهدید کند.
+
+این رژیم محکوم به زوال که پایانش فرا خواهد رسید و ما به رسیدن آن به این سرنوشت کمک خواهیم کرد.
+
+این رژیم دیگر باز نخواهد گشت تا ما را با بمب‌های هسته‌ای و هزاران موشک بالستیک مرگبار تهدید کند.
+این دستور من است و این مأموریت شماست، رومن.»
+@withyashar
+</div>
+
+## mwarmonitor — post 10038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه‌های آمریکایی: سازمان اطلاعات مرکزی آمریکا (CIA) مشارکت خود را در برخی از ارزیابی‌های اطلاعاتی دفتر مدیر اطلاعات ملی آمریکا متوقف کرده است؛ از جمله ارزیابی‌هایی که به جنگ ایران مربوط می‌شود. این اقدام در پی اختلافی یک‌ساله میان دو نهاد بر سر دامنه کار و حدود وظایف انجام شده است.
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342506
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342506_1780422254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Dr. Oz says some of the most important people helping expose Medicare fraud are industry insiders who know exactly how the system can be manipulated — and are willing to speak up when they see abuse.
+
+"We benefit from whistleblowers. Our most important whistleblowers have been members of industry who know the game, know how you can cheat it if you're unethical. And they point out to us when these problems occur."
+
+"We do not want to hurt the folks who are earnestly involved in hospice and durable medical equipment suppliers... but we're going to slow down the growth of these sectors so we can get our arms around the problem, because it is of massive magnitude to us."
+</div>
+
+## FoxNewsTwitter — post 342505
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342505_1780422256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: CMS Administrator Dr. Mehmet Oz announces a massive expansion to the TrumpRx program, adding 160 more medications to the platform, pushing the total to over 750 drugs.
+
+"We are adding 160 more drugs to this site. Now, the site already has 700 or so or 600 or so, drugs. So it's going to take it over 750 total.”
+
+“But that is an important number for other reasons. It means the four out of five medications that are picked up by Americans going into that same drug store that I mentioned earlier, now have the opportunity to double check that the price they're getting in that drugstore, wherever they're buying it from, is the best price out there."
+</div>
+
+## pm_afshaa — post 92126
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92126_1780422258.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: ناو هواپیمابر آبراهام لینکلن در حال عبور از دریای عرب، به حمایت از محاصره آمریکا علیه ایران ادامه میده.
+
+همچنین نیروهای آمریکایی تاکنون مسیر 122 کشتی تجاری رو برای اجرای این محاصره تغییر دادن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92125
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92125_1780422259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلنسکی: ممکنه حمله عظیم روسیه به اوکراین همین امشب رخ بده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92124
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92124_1780422259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلنسکی: ممکنه حمله عظیم روسیه به اوکراین همین امشب رخ بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340248
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340248_1780422260.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، سه‌شنبه ۱۲ خرداد در سنای این کشور گفت نشانه‌هایی وجود دارد که مجتبی خامنه‌ای، رهبر جمهوری اسلامی، پس از زخمی شدن در آغاز جنگ، «به‌طور فزاینده‌ای در سطحی درگیر امور شده است».
+
+او گفت: «ما او را در انظار عمومی ندیده‌ایم و فکر می‌کنم با توجه به اتفاقی که برای چند مقام ارشد نظام افتاده، احتمالا به آنها توصیه نمی‌شود حضور علنی گسترده داشته باشند.»
+
+روبیو گفت: «با این حال، فکر می‌کنم نشانه‌هایی وجود دارد که او به‌تدریج، دست‌کم تا حدی، در امور دخیل‌ می‌شود، هرچند همه تماس‌های او مکتوب و از طریق واسطه‌ها بوده است.»
+https://iranintl.com/202606025183
+</div>
+
+## IranIntlTV — post 340247
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340247_1780422261.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گاتزتا دلو اسپورت گزارش داد که تیم ملی فوتبال در جام جهانی ۲۰۲۶، در هر بار ورود به آمریکا، فقط ۴۸ ساعت در این کشور حضور خواهد داشت. پس از تمایل نداشتن آمریکا به میزبانی از ایران، کمپ اصلی تیم ملی به تیخوانای مکزیک منتقل شد و این تیم تنها برای برگزاری مسابقات به آمریکا سفر می‌کند.
+
+🔹این روزنامه ایتالیایی معتقد است که فدراسیون فوتبال ایران با انتخاب تیخوانای مکزیک، «ترامپ را دور زده است».
+
+گاتزتا دلو اسپورت در این‌باره می‌نویسد:
+🔹ماجرا از آنجا آغاز شد که دونالد ترامپ، رئیس‌جمهوری آمریکا، در اسفند گذشته با انتشار پیامی در شبکه‌های اجتماعی اعلام کرد که تیم ملی ایران «به جام جهانی خوش‌آمده است»، اما حضور این تیم در آمریکا را برای امنیت خود ایران مناسب نمی‌داند.
+
+🔹فدراسیون فوتبال ایران درخواست کرد سه مسابقه این تیم که قرار است در لس‌آنجلس و سیاتل برگزار شود، به مکزیک منتقل شود، اما فیفا موافقت نکرد.
+
+🔹در عوض، کمپ اصلی تیم ملی از آریزونا به تیخوانا در مکزیک منتقل شد. آمریکایی‌ها از حضور دائمی تیم ملی در خاک خود رضایت نداشتند.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه جدید SNI Spoofing (زبان rust) به همراه رابط گرافیکی منتشر شد. MacOS / Linux / Windows دریافت: GitHub (آموزش فارسی هم هست) [خیر، امکان انتشار نسخه اندروید با توجه به اینکه اغلب کاربران روت نیستن تقریبا ممکن نیست، می تونید روی کامپیوتر اجرا کنید و روی…
+</div>
+
+## FarsiVOA — post 219392
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219392_1780422262.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی ایالات متحده آمریکا، سنتکام، اعلام کرد در جریان اجرای محاصره دریایی آمریکا علیه جمهوری اسلامی، تاکنون مسیر ۱۲۲ کشتی تجاری را تغییر داده است.
+
+سنتکام این به‌روزرسانی را در شبکه اجتماعی ایکس همراه با تصویری از ناو هواپیمابر «یو‌اس‌اس آبراهام لینکلن» در دریای عرب منتشر کرده است.
+
+ایالات متحده از اواخر فروردین ۱۴۰۵، محاصره دریایی علیه جمهوری اسلامی ایران را در واکنش به اقدام رژیم ایران در بستن تنگه هرمز آغاز کرده است.
+</div>
+
+## Persian_Trend_Official — post 15529
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15529_1780422262.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل جزئیاتی از تماس محرمانه ترامپ و نتانیاهو درباره بیروت منتشر کرد.
+
+شبکه 12 اسرائیل گزارش داد چند روز پیش یک تماس محرمانه میان دونالد ترامپ و بنیامین نتانیاهو انجام شد که در آن دو طرف توافق کردند اسرائیل تنها به‌عنوان یک تهدید، هشدار تخلیه برای منطقه ضاحیه بیروت صادر کند و قصدی برای اجرای حمله نداشته باشد.
+
+هدف از این اقدام، افزایش فشار بر حزب‌الله برای توقف حملات و همچنین تحت فشار قرار دادن دولت لبنان عنوان شده است. شمار محدودی از مقامات ارشد اسرائیلی نیز در جریان این توافق قرار گرفته بودند.
+
+براساس این گزارش، دولت ترامپ بعداً به این نتیجه رسید که نتانیاهو پس از اظهارات خود و وزیر دفاع اسرائیل، در تلاش است تهدید مورد توافق را به یک طرح واقعی برای حمله به بیروت تبدیل کند.
+
+گفته می‌شود واشنگتن برای جلوگیری از این حملات وارد عمل شد و این موضوع به یک تماس تلفنی پرتنش میان ترامپ و نتانیاهو منجر شد؛ به‌ویژه پس از تهدیدهای مطرح‌شده علیه شمال اسرائیل.
+
+ساعاتی بعد، نتانیاهو در بیانیه‌ای اعلام کرد که به ترامپ گفته است در صورت ادامه حملات حزب‌الله به غیرنظامیان و شهرهای اسرائیل، بیروت هدف حمله قرار خواهد گرفت.
+
+طبق این گزارش، این بیانیه موجب خشم ترامپ شد و به دومین تماس پرتنش میان دو رهبر انجامید. همچنین برخی مقامات امنیتی اسرائیل از این بیانیه انتقاد کرده و معتقد بودند که چنین موضعی این برداشت را ایجاد می‌کند که حمله به نیروهای نظامی با حمله به غیرنظامیان متفاوت تلقی می‌شود؛ پیامی که به باور آن‌ها در نهایت به سود حزب‌الله تمام خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21256
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21256_1780422263.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست ترامپ:
+
+گزارش‌های فیک‌نیوز که می‌گویند جمهوری اسلامی ایران و آمریکا چند روز است که با هم گفت‌و‌گو ندارند، کاملا اشتباه و نادرست است. گفت‌و‌گوها میان ما پیوسته ادامه داشته است، همینطور چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز.
+اینکه این صحبت‌ها به کجا می‌رسد، کسی نمی‌داند، اما همانطور که به ایران گفتم، وقتش رسیده که به هر شکل ممکن، به یک توافق برسید، شما ۴۷ سال است که این‌ کار را ادامه داده‌اید و دیگر نمی‌توان اجازه داد ادامه پیدا کند!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282697
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282697_1780422264.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توپ فوتبالی مجهز به هوش مصنوعی که به تشخیص آفساید کمک می‌کند، در جام جهانی استفاده خواهد شد. توپ رسمی مسابقه می‌تواند داده‌ها را با سرعت ۵۰۰ بار در ثانیه ثبت کند، به این معنا که هر ضربه به توپ تحت نظارت قرار دارد.
+
+@BBCPersian
+https://bbc.in/4vqkeoN
+</div>
+
+## Hranews — post 113341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقدان ایمنی کار منجر به قطع عضو یک کارگر شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– در سایه فقدان ایمنی محیط و شرایط نامناسب کار، یک کارگر در شهرستان دشتی واقع در استان بوشهر حین انجام کار طی حادثه ای مصدوم و دچار قطع عضو از ناحیه انگشت دست شد.
+
+#کارگر
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124536
+
+<div align="center">
+  <a href="telegram/content/alonews_124536_1780422266.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس به نقل از یک مقام آمریکایی:
+ترامپ احساس می‌کند نتانیاهو کنترل خود را از دست داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 21:03
 ---
 
