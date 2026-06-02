@@ -7,6 +7,33 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 07:53
+---
+
+## RadioFarda — post 157792
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157792" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۱۲ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## alonews — post 124357
+
+<div align="center">
+  <a href="telegram/content/alonews_124357_1780374206.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام اسرائیلی در گفتگو با اَکسیوس ادعا کرد: اسرائیل دیگر برنامه‌ای برای حمله به مواضع حزب‌الله در بیروت ندارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 07:43
 ---
 
