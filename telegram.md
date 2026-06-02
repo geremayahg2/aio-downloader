@@ -7,6 +7,104 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 22:24
+---
+
+## VahidOOnLine — post 243400
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243400_1780426452.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل به نقل از منابع آگاه گزارش داد آمریکا در حال بررسی طرحی است که بر اساس آن ارتش لبنان را برای مقابله با حزب‌الله و در نهایت خلع سلاح این گروه آموزش دهد.
+
+بر اساس این گزارش، این طرح از حمایت اسرائیل برخوردار است و در جریان گفت‌وگوهای هیات‌های اسرائیلی و لبنانی در واشینگتن برای دستیابی به یک توافق آتش‌بس پایدار و پیشبرد روند خلع سلاح حزب‌الله مطرح شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها از درگیری شدید مرزی میان هند و پاکستان
+@withyashar
+</div>
+
+## pm_afshaa — post 92135
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها از درگیری شدید مرزی میان هند و پاکستان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340258
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340258_1780426453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340257
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340257_1780426454.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل به نقل از منابع آگاه گزارش داد آمریکا در حال بررسی طرحی است که بر اساس آن ارتش لبنان را برای مقابله با حزب‌الله و در نهایت خلع سلاح این گروه آموزش دهد.
+
+بر اساس این گزارش، این طرح از حمایت اسرائیل برخوردار است و در جریان گفت‌وگوهای هیات‌های اسرائیلی و لبنانی در واشینگتن برای دستیابی به یک توافق آتش‌بس پایدار و پیشبرد روند خلع سلاح حزب‌الله مطرح شده است.
+https://iranintl.com/202606023965
+</div>
+
+## FarsiVOA — post 219403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفاع مارکو روبیو در سنا از بودجه ۲۰۲۷ وزارت خارجه؛ جمهوری اسلامی محور پرسش سناتورها
+</div>
+
+## FarsiVOA — post 219402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا در جلسه کمیته روابط خارجی سنا در پاسخ به سناتور بوکر گفت: «اینجا هیچ‌کس برای چیزی التماس نمی‌کند. این ایرانی‌ها هستند که ممکن است التماس کنند، چرا که اقتصادشان روزانه صدها میلیون دلار از دست می‌دهد.» او افزود: «نمی‌دانم این تصور را از کجا آورده‌اید که ایران قوی‌تر شده است.»
+</div>
+
+## alonews — post 124551
+
+<div align="center">
+  <a href="telegram/content/alonews_124551_1780426455.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرهنگستان زبان فارسی: واژه مصوب قدیمی «دوگوشی» برای هدفون دیگر کاربردی نیست؛ پیشنهادهای جدید مانند «نیوشه»، «شنوه» و «آوایار» را بررسی می‌کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124550
+
+<div align="center">
+  <a href="telegram/content/alonews_124550_1780426455.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/گزارش ها از درگیری شدید مرزی میان هند و پاکستان!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 22:14
 ---
 
