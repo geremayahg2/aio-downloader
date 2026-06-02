@@ -7,6 +7,30 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 03:53
+---
+
+## Shin_Persian — post 6395
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6395_1780359837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 00:19:14 UTC
+
+There she is.
+Tehran, Iran
+
+فارسی
+
+او آنجاست.
+تهران، ایران
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 03:43
 ---
 
