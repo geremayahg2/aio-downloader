@@ -7,6 +7,28 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 04:14
+---
+
+## FarsiVOA — post 219327
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219327_1780361047.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جزئیاتی از انتقال «میرحسین موسوی» به بیمارستان در گفت‌وگو با مهدی عربشاهی، خبرنگار صدای آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اولتیماتوم همسایگان عراق برای کنترل مرزها و عقب راندن گروه‌های مسلح وابسته به جمهوری اسلامی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 04:04
 ---
 
