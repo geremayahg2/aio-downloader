@@ -7,6 +7,224 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 20:43
+---
+
+## VahidOOnLine — post 243388
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243388_1780420436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال گفت به‌دلیل افزایش قیمت تجهیزات گیمینگ (بازی کامپیوتری) در یک سال گذشته، نتوانسته سیستم جدیدی بخرد و افزود قیمت یک کیبورد که هفته گذشته ۶ میلیون تومان بوده، اکنون به ۷ میلیون و ۲۰۰ هزار تومان رسیده و این افزایش قیمت‌ها فشار زیادی بر مردم وارد می‌کند. صدای او با هوش مصنوعی تغییر داده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243387
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243387_1780420438.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی آمریکا، سنتکام، با انتشار تصویری از ناو هواپیمابر یو‌اس‌اس آبراهام لینکلن نوشت که این ناو در حال عبور از دریای عرب است و همچنان از محاصره دریایی آمریکا علیه جمهوری اسلامی حمایت می‌کند.
+سنتکام اضافه کرد نیروهای آمریکایی تاکنون ۱۲۲ کشتی تجاری را برای تضمین اجرای این محاصره تغییر مسیر داده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13278
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13278_1780420439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث :«گزارش‌های فیک‌نیوز که می‌گویند جمهوری اسلامی ایران و ایالات متحده آمریکا چند روز است با هم صحبت نمی‌کنند، کاملاً نادرست و اشتباه است.
+
+گفت‌وگوها میان ما به‌صورت پیوسته ادامه داشته است؛ از جمله چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز.
+
+این گفت‌وگوها به کجا می‌رسد، کسی نمی‌داند؛ اما همان‌طور که به ایران گفتم: “وقت آن رسیده، به هر شکل ممکن، به یک توافق برسید. شما ۴۷ سال است که این کار را ادامه داده‌اید و دیگر نمی‌توان اجازه داد ادامه پیدا کند!”
+
+رئیس‌جمهور دونالد جی. ترامپ»
+@withyashar
+</div>
+
+## mwarmonitor — post 10037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در سوشال تروث
+
+گزارش‌های اخبار جعلی مبنی بر اینکه جمهوری اسلامی ایران و ایالات متحده آمریکا چند روز پیش گفتگوها را متوقف کرده‌اند، کذب و نادرست است. گفتگوهای میان ما به طور مداوم در جریان بوده است؛ از جمله چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز.
+هیچ‌کس نمی‌داند این گفتگوها به کجا ختم می‌شوند، اما همان‌طور که به ایران گفتم: «وقت آن رسیده که به هر طریقی، به یک توافق دست پیدا کنید. شما ۴۷ سال است که دارید این کار را انجام می‌دهید و دیگر اجازه داده نخواهد شد که این وضع ادامه پیدا کند!»
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92120
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92120_1780420439.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ در تروث سوشال:
+
+گزارش‌های فیک‌نیوز که میگن ایران و آمریکا چند روزه که با هم صحبت نمی‌کنند، کاملاً نادرست و اشتباه است. گفت‌وگوها میان ما به‌صورت پیوسته ادامه داشته؛ از جمله چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز.
+
+اینکه این گفت‌وگوها به کجا میرسه، کسی نمیدونه، اما همان‌طور که به ایران گفتم: «وقتش رسیده که به هر شکل ممکن، به یک توافق برسید. شما 47 ساله که این کار رو ادامه دادید و دیگر نمی‌توان اجازه داد ادامه پیدا کنه!»
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92119
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92119_1780420440.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پاول دورف، مالک تلگرام اعلام کرد قصد داره نام ارز دیجیتال TON رو به «Gram» تغییر بده.
+
+به گفته دورف، نام اولیه این ارز «گرام» بوده و حالا پیشنهاد بازگشت به همون نام مطرح شده. اون برای این موضوع یک نظرسنجی هم منتشر کرده و در صورت موافقت کاربران، نام TON طی روزهای آینده به Gram تغییر خواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75881
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75881_1780420441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: گزارش‌ها درباره توقف مذاکرات درست نیست
+
+ترجمه ماشین:
+گزارش‌های رسانه‌های اخبار جعلی مبنی بر اینکه جمهوری اسلامی ایران و ایالات متحده آمریکا چند روز پیش گفت‌وگو را متوقف کرده‌اند، نادرست و خطاست.
+گفت‌وگوهای میان ما به‌طور مداوم ادامه داشته است؛ از جمله چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش، و امروز.
+
+اینکه این گفت‌وگوها به کجا می‌رسند، هیچ‌کس نمی‌داند؛ اما همان‌طور که به ایران گفتم: «وقت آن رسیده است، به هر شکل ممکن، توافقی انجام دهید. شما ۴۷ سال است که مشغول این کار بوده‌اید و دیگر نمی‌توان اجازه داد این وضعیت ادامه پیدا کند!»
+
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340242
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340242_1780420441.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال گفت به‌دلیل افزایش قیمت تجهیزات گیمینگ (بازی کامپیوتری) در یک سال گذشته، نتوانسته سیستم جدیدی بخرد و افزود قیمت یک کیبورد که هفته گذشته ۶ میلیون تومان بوده، اکنون به ۷ میلیون و ۲۰۰ هزار تومان رسیده و این افزایش قیمت‌ها فشار زیادی بر مردم وارد می‌کند. صدای او با هوش مصنوعی تغییر داده شده است.
+</div>
+
+## IranIntlTV — post 340241
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340241_1780420443.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی آمریکا، سنتکام، با انتشار تصویری از ناو هواپیمابر یو‌اس‌اس آبراهام لینکلن نوشت که این ناو در حال عبور از دریای عرب است و همچنان از محاصره دریایی آمریکا علیه جمهوری اسلامی حمایت می‌کند.
+سنتکام اضافه کرد نیروهای آمریکایی تاکنون ۱۲۲ کشتی تجاری را برای تضمین اجرای این محاصره تغییر مسیر داده‌اند.
+https://iranintl.com/202606028128
+</div>
+
+## Shin_Persian — post 6409
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6409_1780420444.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Tue, 02 Jun 2026 17:05:47 UTC POTUS: "Fake News Reports that the Islamic Republic of Iran, and the U.S.A., stopped speaking a few days ago are false and erroneous. The conversations between us have been going on continuously, including…
+</div>
+
+## Shin_Persian — post 6408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 17:05:47 UTC
+
+POTUS:
+"Fake News Reports that the Islamic Republic of Iran, and the U.S.A., stopped speaking a few days ago are false and erroneous. The conversations between us have been going on continuously, including four days ago, three days ago, two days ago, one day ago, and today. Where they lead, one never knows, but as I told Iran, “It’s time, one way or another, for you to make a Deal. You’ve been doing this for 47 years, and it cannot be allowed to go on any longer!” President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ایالات متحده (POTUS):
+«گزارش‌های خبری جعلی مبنی بر اینکه جمهوری اسلامی ایران و ایالات متحده آمریکا چند روز پیش گفتگوها را متوقف کرده‌اند، کذب و نادرست است. گفتگوها میان ما به طور مداوم در جریان بوده است، از جمله چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز. اینکه این گفتگوها به کجا ختم می‌شوند را هیچ‌کس نمی‌داند، اما همان‌طور که به ایران گفتم: "زمان آن فرا رسیده که به هر شکلی، به یک توافق برسید. شما ۴۷ سال است که این کار را انجام می‌دهید و دیگر اجازه داده نخواهد شد که این وضع ادامه یابد!" رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219389
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219389_1780420445.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا گزارش‌های رسانه‌ای از توقف گفت‌وگوها با جمهوری اسلامی را جعلی نامید و گفت: « گفتگوها میان ما به طور مداوم در جریان بوده است؛ از جمله چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز.»
+پرزیدنت ترامپ روز سه‌شنبه ۱۲ خرداد در تروت سوشال نوشت: «این که این گفت‌وگوها به کجا می‌رسد، هرگز معلوم نیست، اما همان‌طور که به ایران گفتم زمان آن فرا رسیده است که به هر طریق ممکن، توافقی انجام دهید.»
+او همچنین عنوان کرد که جمهوری اسلامی ۴۷ سال است این موضوع را به تاخیر می‌اندازد اما «دیگر نمی‌توان اجازه داد این روند ادامه یابد!»
+</div>
+
+## alonews — post 124530
+
+<div align="center">
+  <a href="telegram/content/alonews_124530_1780420445.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای شبکه ۱۲ اسرائیل : دستور تخلیه ضاحیه جنوبی بخشی از هماهنگی نتانیاهو و ترامپ برای فشار به ایران تو مذاکرات بوده و نه برای حمله مستقیم به ضاحیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124529
+
+<div align="center">
+  <a href="telegram/content/alonews_124529_1780420446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: گزارش‌های جعلی مبنی بر اینکه جمهوری اسلامی ایران و ایالات متحده آمریکا چند روز پیش از صحبت کردن دست کشیده‌اند، نادرست و اشتباه است.
+
+
+🔴گفتگوهای ما به طور مداوم ادامه داشته است، از جمله چهار روز پیش، سه روز پیش، دو روز پیش، یک روز پیش و امروز.
+
+
+🔴اینکه این گفتگوها به کجا منتهی می‌شود، هیچ‌کس نمی‌داند، اما همانطور که به ایران گفتم، «زمان آن رسیده است که به هر نحوی یک توافق انجام دهید. شما ۴۷ سال است که این کار را انجام می‌دهید و دیگر نمی‌توان اجازه داد که ادامه یابد!»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124528
+
+<div align="center">
+  <a href="telegram/content/alonews_124528_1780420446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر مجارستان، پتر ماگار:
+مجارستان سرباز یا سلاحی به اوکراین ارسال نخواهد کرد.
+
+
+🔴نه حتی تحت دولت جدید مجارستان.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 20:33
 ---
 
