@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 22:14
+---
+
+## WithYashar — post 13284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش زیاد شیراز صدای پدافند / انفجار 🚨
+@withyashar
+</div>
+
+## pm_afshaa — post 92134
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز جنگنده های ارتش بر فراز تهران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 219401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویا حسن‌آبادی، فعال حقوق دیجیتال در پاسخ سوال میدان در ارتباط با آینده اینترنت در ایران میگوید: ترس کاربران از قطع مجدد اینترنت آنها را در وضعیت انفعال قرار داده است
+</div>
+
+## Dirty_Kids — post 390856
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390856_1780425862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏این عکس دوا لیپا از روز عروسیش انگار توی راه‌پله یه محضر توی ستارخان گرفته شده!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390855
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390855_1780425863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ترامپ الان:
+
+گزارش‌ فیک نیوزها مبنی بر اینکه جمهوری اسلامی ایران و ایالات متحده آمریکا چند روز پیش گفت‌وگوهای خود را متوقف کرده‌اند، نادرست و گمراه‌کننده است.
+گفت‌وگوهای میان ما به‌طور مداوم ادامه داشته است از چهار روز پیش، سه روز پیش، دو روز پیش، دیروز و همچنین امروز.
+این گفت‌وگوها به کجا خواهد رسید، کسی نمی‌داند اما همان‌طور که به ایران گفتم: وقت آن رسیده است که، به هر شکل ممکن، یک توافق انجام دهید.
+شما ۴۷ سال است که این روند را ادامه داده‌اید و دیگر نمی‌توان اجازه داد که بیش از این ادامه پیدا کند!
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 22:06
 ---
 
