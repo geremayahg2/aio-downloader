@@ -7,6 +7,38 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 04:53
+---
+
+## Shin_Persian — post 6396
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6396_1780363434.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 01:21:02 UTC
+
+President Trump @POTUS:
+"https://www.thefp.com/p/iran-war-end-trump-peace-deal-israel"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+"https://www.thefp.com/p/iran-war-end-trump-peace-deal-israel"
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219330
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مکالمه با رتبه یک کنکور: «اگر همکاری نکنی دیگر رنگ دانشگاه را نمی‌بینی»
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 04:43
 ---
 
