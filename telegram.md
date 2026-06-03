@@ -7,6 +7,95 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 22:17
+---
+
+## VahidOOnLine — post 243553
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243553_1780512459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ حسین محبی، سخنگوی سپاه پاسداران، روز چهارشنبه ۱۳ خرداد، اعلام کرد که این نیروها فرودگاه بین‌المللی کویت را هدف قرار نداده‌اند. این بیانیه از طریق خبرگزاری تسنیم، وابسته به سپاه، و ساعاتی پس از آن منتشر شد که تصاویر تخریب گسترده فرودگاه در رسانه‌ها بازتاب یافت. محبی، این تخریب را ناشی از «خطای سامانه‌های پاتریوت آمریکایی» دانست که به گفته او، در رهگیری موشک‌های ایران شکست خورده و در پایانه مسافربری این فرودگاه سقوط کرده‌اند.
+
+این اظهارات در حالی مطرح شد که کویت در واکنش به حملات موشکی و پهپادی بامداد چهارشنبه، دو دیپلمات ایرانی را «عنصر نامطلوب» اعلام کرده و از کشور اخراج کرد. همچنین کاردار سفارت ایران در کویت نیز به وزارت خارجه این کشور احضار شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342571
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342571_1780512460.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"God wanted five more months of me exposing all the failures of our mayor."
+
+Spencer Pratt reacted to Karen Bass advancing to the general election with a message that left little doubt about where he stands.
+
+The longtime reality TV personality says he's ready to spend the next several months campaigning against Bass and scrutinizing her record.
+
+"I hope she's ready."
+</div>
+
+## DEJradio — post 5307
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5307_1780512462.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 انهدام تونل‌های جاده بروجرد به ظن استقرار لانچر
+
+#بروجرد #جنگ
+@DEJradio
+</div>
+
+## DEJradio — post 5306
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5306_1780512465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 محمدحسین طاهری آکردی؛ شاگرد مصباح با طرح‌های پرشمار برای سرکوب
+
+#آکردی #مصباح_یزدی
+@DEJradio
+</div>
+
+## IranIntlTV — post 340407
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340407_1780512468.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## FarsiVOA — post 219504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چتر هسته‌ای فرانسه، حامیان و منتقدان درباره این طرح چه می‌گویند
+</div>
+
+## alonews — post 124896
+
+<div align="center">
+  <a href="telegram/content/alonews_124896_1780512470.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: وضعیت نظامی ما اکنون بسیار بهتر است؛ چراکه توانمندی‌هایی ایجاد کرده‌ایم که در زمان جنگ در اختیار نداشتیم و صنایع نظامی ما به شکل چشمگیری فعال شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 22:05
 ---
 
