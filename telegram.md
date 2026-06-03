@@ -7,6 +7,134 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 12:25
+---
+
+## WithYashar — post 13355
+
+
+
+
+## WithYashar — post 13354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود آقا یاشار مهربان
+تحلیل هاتون خیلی جالبه
+جوری توضیح میدید که درکش برای همه راحت باشه
+سپاس از شما🙏🌹😊
+</div>
+
+## mwarmonitor — post 10079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تصاویر اولیه از فرودگاه کویت پس از حمله جمهوری اسلامی. @mwarmonitor
+</div>
+
+## mwarmonitor — post 10078
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10078_1780476917.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پهپادهای تهاجمی اوکراینی صبح امروز با موفقیت به پایگاه دریایی کرونشتات روسیه حمله کردند و ناوچه کلاس «استرهگوشچی» به نام «بویکی» (Boikiy) را که در حوضچه خشک قرار داشت، هدف قرار داده و به‌شدت آسیب زدند.
+
+🔸«بویکی» یکی از توانمندترین ناوهای سطحی در ناوگان بالتیک نیروی دریایی روسیه به شمار می‌رفت.
+
+@mwarmonitor
+</div>
+
+## DW_Farsi — post 125444
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125444_1780476920.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 با وجود حملات حزب‌الله مذاکرات اسرائیل و لبنان از سر گرفته شد
+
+هیئت‌های نمایندگی لبنان و اسرائیل روز سه‌شنبه ۱۲ خرداد (۲ ژوئن) در وزارت خارجه آمریکا در واشنگتن دیدار کردند تا دور برنامه‌ریزی‌شده دو روزه مذاکرات را از سر بگیرند.
+
+در این نشست ندا حماده معوض، سفیر لبنان در واشنگتن، با همتای اسرائیلی‌اش یخیل لایتر، در وزارت خارجه آمریکا حضور دارند.
+
+ریاست هیئت آمریکایی را مایک نیدهام، معاون دستیار رئیس‌جمهور و معاون مشاور امنیت ملی آمریکا بر عهده دارد.
+
+بر اساس گزارش‌ها اعضای هیئت اسرائیلی گفته‌اند که حزب‌الله با وجود تعهدی که روز دوشنبه به دونالد ترامپ، رئیس‌جمهور آمریکا داده بود، به درگیری‌ها ادامه می‌دهد.
+
+اعضای هیئت اسرائیلی اعلام کردند که حزب‌الله به‌طور علنی طرح "آتش‌بس در جنوب لبنان در برابر آتش‌بس در شمال اسرائیل" را رد کرده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15611
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15611_1780476920.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله پهپادی اوکراین به تأسیسات نفتی سن‌پترزبورگ همزمان با آغاز SPIEF 2026
+
+در نخستین ساعات آغاز مجمع اقتصادی بین‌المللی سن‌پترزبورگ (SPIEF 2026)، گزارش‌هایی از حمله پهپادهای انتحاری اوکراینی از نوع Liuty و FP-1 به یک ترمینال نفتی در حومه این شهر منتشر شده است.
+
+بر اساس این گزارش‌ها، هدف حمله تأسیسات نفتی در نزدیکی مرکز نمایشگاهی ExpoForum عنوان شده؛ جایی که محل برگزاری این رویداد اقتصادی مهم است. نزدیکی این حمله به محل برگزاری اجلاس، توجه رسانه‌ها را به هم‌زمانی هدف و زمان عملیات جلب کرده است.
+
+اوکراین در ماه‌های اخیر به‌طور فزاینده از پهپادهای دوربرد برای حمله به زیرساخت‌های انرژی در عمق خاک روسیه از خاک کشور های حوزه بالتیک استفاده کرده است.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15610
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15610_1780476923.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ناو هواپیمابر یو اس اس نیمیتز (CVN-68) در کینگستون، جامائیکا برای بازدید بندری پهلو گرفته است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 124719
+
+<div align="center">
+  <a href="telegram/content/alonews_124719_1780476925.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه کویت: یک نفر در حمله دیشب کشته شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124718
+
+<div align="center">
+  <a href="telegram/content/alonews_124718_1780476925.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقامات آمریکایی و یک منبع مطلع دیگر به شبکه آمریکایی ای‌بی‌سی نیوز گفته‌اند که دونالد ترامپ، رئیس‌جمهور آمریکا، از تهران می‌خواهد به صورت مکتوب، امتیازات هسته‌ای مشخصی را به‌ عنوان بخشی از یک توافق اولیه با آمریکا ارائه دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124717
+
+<div align="center">
+  <a href="telegram/content/alonews_124717_1780476926.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ، محسن رضایی: پاسخ هر شلیک و تجاوزی رگباری از موشک و پهپاد است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 12:15
 ---
 
