@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 15:53
+---
+
+## mwarmonitor — post 10093
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10093_1780489433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت دفاع کویت آمار مربوط به تعداد موشک‌های بالستیک، موشک‌های کروز و پهپادها که طی ۲۴ ساعت گذشته از آغاز حملات ایران توسط پدافند هوایی کویت رهگیری و منهدم شده‌اند.۱۳ موشک بالستیک و ۱۷ پهپاد
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92216
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92216_1780489433.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: مجتبی خامنه ای خیلی آدم خوبیه، من واقعا دوس دارم از نزدیک ببینمش هنوز افتخار اینو نداشتم که با مجتبی دیدار کنم، البته اون هنوز سالم نیست و کلی از بخش های بدنشو از دست داده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92215
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92215_1780489434.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت ترمینال مسافربری فرودگاه بین‌المللی کویت بعد از حمله شبانه ایران : 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340345
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340345_1780489434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی موج تازه حملات روسیه به شهرهای اوکراین دست‌کم ۲۲ نفر کشته و بیش از ۱۰۰ تن زخمی شدند، همچنین حملات اوکراین به مناطقی در اطراف مسکو، تاسیسات صنعتی در تامبوف و زیرساخت‌های منطقه راهبردی لنینگراد را هدف قرار داد
+
+گفت‌وگو با لیلی نیکفر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## DW_Farsi — post 125453
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125453_1780489436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 امارات خواستار موضع متحد شورای همکاری خلیج فارس در برابر ایران شد
+
+انور قرقاش، وزیر مشاور در امور خارجه امارات متحده عربی در پیامی در شبکه اجتماعی ایکس با اشاره به "تجاوزهای مکرر ایران" به کویت و بحرین خواستار اتخاذ موضعی "سخت و متحد" از سوی کشورهای "شورای همکاری خلیج فارس" شد.
+
+قرقاش تاکید کرد امنیت کشورهای خلیج فارس به هم پیوسته است و هیچ کشوری نباید به‌تنهایی در برابر این حملات قرار گیرد. او همچنین افزود این اقدامات تنها یک کشور را هدف قرار نمی‌دهد بلکه همه منطقه را در بر می‌گیرد.
+
+مقامات کویتی پیش از این اعلام کردند ایران یک حمله پهپادی به ترمینال مسافربری فرودگاه بین‌المللی کویت انجام داده که در نتیجه آن یک نفر کشته و چند نفر زخمی و پروازها متوقف شده است.
+
+سعود عبدالعزیز العطوان، سخنگوی وزارت دفاع کویت صبح روز چهارشنبه ۱۳ خرداد (۳ ژوئن) این اقدام جمهوری اسلامی را "تجاوز جنایتکارانه" دانست و گفت این حمله خسارات قابل توجهی به ساختمان وارد کرده و یک تن کشته و چند نفر را مجروح کرده است.
+@dw_farsi
+</div>
+
+## alonews — post 124789
+
+<div align="center">
+  <a href="telegram/content/alonews_124789_1780489436.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آمار وزارت دفاع کویت از تعداد پرتابه های ایران از شروع جنگ
+
+
+🔴۸۶۹ پهپاد
+
+🔴۳۷۲ موشک بالستیک
+
+🔴۱۵ موشک کروز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124788
+
+<div align="center">
+  <a href="telegram/content/alonews_124788_1780489437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخستین جلسه قالیباف، نماینده ویژه ایران در امور چین با وزرای اقتصادی دولت
+
+
+🔴وزرای اقتصادی دولت به برخی نکات اساسی در مورد رفتار‌های اقتصادی چین در ایام جنگ و همچنین دوران بسته بودن تنگه هرمز اشاره کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 15:44
 ---
 
