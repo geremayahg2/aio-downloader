@@ -7,6 +7,169 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 16:03
+---
+
+## mwarmonitor — post 10095
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دفتر نخست‌وزیری عراق تصمیم گرفت یک کمیتهٔ مشترک تشکیل دهد تا طی دو روز آینده سازوکارهای مناسب برای اجرای اقدامات جداسازی از حشد الشعبی و محدود کردن سلاح به دست دولت را تدوین کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10094
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10094_1780490031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کارگران مهاجر کرهٔ شمالی با لباس رسمی کت‌وشلوار برای کار در یک پروژهٔ ساختمانی در مسکو دیده شدند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: At least one person has been killed and more than 60 have been wounded after Iran launched a barrage of missiles and drones at Kuwait and Bahrain overnight.
+
+CENTCOM says an additional wave of drones attempting to attack U.S. forces in Kuwait were downed and that no American personnel or assets were harmed.
+
+The escalation comes as the Trump administration continues nuclear talks with Iran, while maintaining that sanctions relief will depend on Tehran agreeing to strict limits on its nuclear program, @TreyYingst reports
+</div>
+
+## pm_afshaa — post 92218
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92218_1780490033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت بهداشت کویت: 63 نفر در نتیجه حمله جمهوری اسلامی به ‎کویت زخمی شدن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92217
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92217_1780490033.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️مجری؟ آیا مجتبی خامنه‌ای همجنسگراس؟
+
+ترامپ: آره فکر کنم خیلی احترام براش قائلن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آمریکا صرافی خانوادۀ خرازی و سه صرافی بزرگ رمزارز در ایران را تحریم کرد
+
+وزارت خزانه‌داری آمریکا نوبیتکس، والکس، بیت‌پین و رمزینکس را در چارچوب کارزار «خشم اقتصادی» تحریم کرد.
+واشینگتن می‌گوید این صرافی‌ها در دور زدن تحریم‌ها، انتقال دارایی و تسهیل تراکنش‌های مرتبط با سپاه نقش داشتند.
+وزارت خزانه‌داری آمریکا اعلام کرد نوبیتکس در سال ۲۰۲۵ بیش از پنجاه درصد از ورودی‌های رمزارز را در ایران پردازش کرد.
+علی و محمد خرازی، از بنیانگذاران نوبیتکس در فهرست تحریم قرار گرفتند. این دو برادر، برادرزادۀ کمال خرازی، وزیر پیشین امور خارجۀ جمهوری اسلامی‌اند.
+به گزارش رویترز، علی و محمد خرازی با نام مستعار علی و محمد آقامیر، فعالیت می‌کردند. این خبرگزاری نوشت سه نسل از این خانوادۀ بانفوذ، با هر سه رهبر جمهوری اسلامی نسبت دارند.
+علی خویی، مدیرعامل فعلی و امیرحسین راد، مدیرعامل پیشین نوبیتکس نیز در فهرست تحریم‌ها قرار گرفتند.
+به گفتۀ مقامات واشینگتن، این صرافی پرداخت‌های مرتبط با سپاه، فعالیت‌های تروریستی و دور زدن تحریم‌ها را تسهیل کرد.
+به گزارش وزارت خزانه‌داری آمریکا، نوبیتکس به بانک مرکزی جمهوری اسلامی برای دسترسی به صدها میلیون دلار استیبل‌کوین کمک کرد.
+بنا بر گزارش‌ها بخشی از این منابع برای پشتیبانی ریال استفاده شد.
+وزیر خزانه‌داری آمریکا گفت جمهوری اسلامی از رمزارز برای دور زدن تحریم‌ها و انتقال ثروت به خارج از کشور استفاده می‌کند.
+اسکات بسنت افزود واشینگتن مسیر پول را دنبال می‌کند تا مانع دستیابی جمهوری اسلامی به سلاح هسته‌ای شود.
+وزارت خزانه‌داری آمریکا می‌گوید نوبیتکس با وجود قطع اینترنت پس از آغاز جنگ، به انتقال و حفاظت از دارایی‌های جمهوری اسلامی کمک کرده است.
+بنا بر گزارش‌ها این صرافی در خروج سرمایه و جابه‌جایی دارایی‌ها نقش داشته است.
+بنا بر گزارش‌ها سه صرافی والکس، بیت‌پین و رمزینکس هم به همکاری با سپاه متهم و تحریم شدند.
+آمریکا می‌گوید والکس، بیت‌پین و رمزینکس میلیون‌ها دلار تراکنش مرتبط با سپاه و نهادهای حکومتی را پردازش کرده‌اند.
+به گفته وزارت خزانه‌داری دولت ترامپ، رمزینکس از زمان تأسیس بیش از ۲.۴۵ میلیارد دلار تراکنش انجام داد.
+تحریم‌های تازه آمریکا شامل مسدودسازی دارایی‌ها و محدودیت همکاری مالی است.
+وزارت خزانه‌داری آمریکا اعلام کرد همه دارایی‌های این افراد و نهادهای تحریم‌شده، در حوزۀ عملکرد آمریکا مسدود می‌شود.
+واشینگتن هشدار داد شرکت‌ها و نهادهای مرتبط با افراد تحریم‌شده نیز ممکن است مشمول تحریم شوند.
+
+#خبر #دژ #تحریم #رمز_ارز
+@DEJradio
+</div>
+
+## alonews — post 124792
+
+<div align="center">
+  <a href="telegram/content/alonews_124792_1780490035.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کویت : دیشبِ ایران، ۱۳ تا موشک بالستیک و ۱۷ تا پهپاد سمت ما شلیک کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124791
+
+<div align="center">
+  <a href="telegram/content/alonews_124791_1780490035.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀ترول تیم‌ها و بازیکن‌ها
+
+🎥ویدیوها و لحظه‌های فان فوتبالی
+
+📊آمار، ترکیب‌ها و اخبار فوری
+
+🌍حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 124790
+
+<div align="center">
+  <a href="telegram/content/alonews_124790_1780490035.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ششمین سال خشکسالی در فلات مرکزی ایران؛ کم‌بارشی تهران ۳۹ درصد شد
+
+
+🔴 مقام مسئول سازمان هواشناسی بااشاره به تداوم کم‌بارشی درفلات مرکزی گفت: تهران با ۳۹ درصد رکورددار کاهش بارش‌هاست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 15:53
 ---
 
