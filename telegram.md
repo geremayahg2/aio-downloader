@@ -7,6 +7,55 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 05:53
+---
+
+## FoxNewsTwitter — post 342540
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342540_1780453429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"You have to win."
+
+California GOP gubernatorial candidate Steve Hilton speaks about the urgency with which voters are expressing their desire for a new direction in the state ahead of the primary election results.
+
+"It's a very intense desire for change right now," Hilton said, explaining that voters feel "it's now or never" for California.
+</div>
+
+## FoxNewsTwitter — post 342539
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342539_1780453431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Veteran '60 Minutes' correspondent Scott Pelley is out at CBS News after clashes with the network's editor-in-chief Bari Weiss and the show's new executive producer Nick Bilton.
+
+Pelley's exit comes after he lashed out at Bilton during an all-staff meeting where he accused Weiss of "murdering" the program and bluntly told Bilton, who has no linear television experience, that he has "slender qualifications" for his new role.
+
+Weiss reportedly asked Pelley to make an apology and accused him of creating a hostile work environment.
+
+Pelley, who previously served as the 'CBS Evening News' anchor, first joined CBS News in 1989 and later joined '60 Minutes' as a correspondent in 2004. In recent years, Pelley was outspoken with criticism of his bosses, including at CBS News' parent company Paramount.
+</div>
+
+## FarsiVOA — post 219435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیر خزانه‌داری آمریکا: «هرج و مرج اقتصادی فعلی» در جمهوری اسلامی ایران گواه موفقیت کارزار «فشار حداکثری» دونالد ترامپ است
+
+▪️اسکات بسنت، وزیر خزانه داری آمریکا روز سه‌شنبه ۱۲ اردیبهشت گفت «در حالی که اقتصاد ایران در حال سقوط آزاد است، رژیم تصمیم گرفته است که از فناوری‌های دارایی دیجیتال برای دستور کار فاسد خود، از جمله دور زدن تحریم‌ها و انتقال ثروت به خارج از کشور، استفاده کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8156775.html
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 05:44
 ---
 
