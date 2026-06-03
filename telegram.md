@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 09:23
+---
+
+## WithYashar — post 13340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان هواپیمایی کشوری کویت: یک ساختمان مسافربری در فرودگاه
+کویت هدف پهپادها و موشک‌های ایرانی قرار گرفت و حالت اضطراری فعال شده.
+@withyashar
+</div>
+
+## pm_afshaa — post 92201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های عربی از توقف کامل فعالیت فرودگاه‌ها و تمام پروازها در بحرین، کویت و امارات متحده عربی به دنبال وقوع حملات هوایی خبر دادن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Wed, 03 Jun 2026 05:43:47 UTC
+
+Armed forces are on full alert and monitoring the situation.
+
+#Kuwait 🇰🇼
+
+Source: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2062047516384690551
+
+فارسی
+
+نیروهای مسلح در آماده‌باش کامل هستند و اوضاع را زیر نظر دارند.
+
+#Kuwait 🇰🇼
+
+منبع: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2062047516384690551
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6457
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6457_1780466015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: KUWAIT ARMY - الجيش الكويتي ✓ @KuwaitArmyGHQ Wed, 03 Jun 2026 05:43:33 UTC بيان رقم (63) صرّح المتحدث الرسمي لوزارة الدفاع، العقيد الركن سعود عبدالعزيز العطوان، بأن عدداً من الطائرات المسيّرة المعادية استهدفت اليوم مبنى الركاب (T1) بمطار…
+</div>
+
+## Shin_Persian — post 6456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+KUWAIT ARMY - الجيش الكويتي ✓ @KuwaitArmyGHQ
+Wed, 03 Jun 2026 05:43:33 UTC
+
+بيان رقم (63)
+
+صرّح المتحدث الرسمي لوزارة الدفاع، العقيد الركن سعود عبدالعزيز العطوان، بأن عدداً من الطائرات المسيّرة المعادية استهدفت اليوم مبنى الركاب (T1) بمطار الكويت الدولي نتيجة العدوان الإيراني الآثم، ما أسفر عن أضرار مادية جسيمة في المبنى وإصابة عدد من الأشخاص، حيث تلقوا
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+Statement No. (63)
+
+The official spokesperson for the Ministry of Defense, Colonel Staff Saud Abdulaziz Al-Atwan, stated that a number of hostile drones targeted Terminal 1 (T1) at Kuwait International Airport today as a result of the sinful Iranian aggression. This resulted in severe material damage to the building and injuries to several individuals, who received...
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6455
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6455_1780466016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin @hey_itsmyturn
+Wed, 03 Jun 2026 05:43:46 UTC
+
+Kuwait Ministry of Defense spokesperson confirms hostile drones targeted Terminal 1 (T1) at Kuwait International Airport.
+
+Significant material damage reported and several injuries confirmed following Iranian aggression.
+
+فارسی
+
+سخنگوی وزارت دفاع کویت تأیید کرد که پهپادهای متخاصم ترمینال ۱ (T1) در فرودگاه بین‌المللی کویت را هدف قرار داده‌اند.
+
+گزارش‌ها حاکی از خسارات مادی قابل توجه است و چندین جراحت در پی تهاجم ایران تأیید شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219440
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219440_1780466017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسئول مطبوعاتی حزب کومله زحمتکشان کردستان، از حمله موشکی سپاه به مقرهای این حزب در شامگاه سه‌شنبه ۱۲خرداد، خبر داد.
+
+امجد حسین‌پناهی با انتشار پیامی در شبکه اجتماعی ایکس، از شلیک دست‌کم دو موشک به این مقرها خبر داد، اما مکان دقیق اهداف را اعلام نکرد.
+
+در همین ارتباط خبرگزاری تسنیم وابسته به سپاه نیز اعلام کرد که «ساعت ۲۳:۰۰ به وقت محلی روز سه‌شنبه، دو موشک به مقر حزب کومله در «دره آلانه»، واقع در شمال شرقی اربیل، اصابت کرده است.»
+
+حسین‌پناهی اعلام کرد که جمهوری اسلامی از آغاز جنگ تاکنون، با بیش از ۸۲ موشک و پهپاد، پایگاه‌ها و مقرهای کومله را هدف قرار داده است.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157837
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157837_1780466018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سپاه پاسداران هم حملۀ آمریکا به یک «دکل مخابراتی سپاه» در جزیرۀ قشم و حملات موشکی به یک کشتی و پایگاه‌های آمریکا، از جمله در بحرین را تأیید کرد.
+
+🔸در بیانیۀ روابط عمومی سپاه پاسداران آمده که در پاسخ به حملۀ جنگندۀ آمریکایی به نفتکش «لکسی» در نزدیکی تنگۀ‌ هرمز، نیروی دریایی سپاه یک شناور «متعلق به دشمن به نام پانایا» را هدف حملۀ موشکی قرار داده است.
+
+🔸روابط عمومی سپاه پاسداران در ادامۀ بیانیۀ خود، با اشاره به حملۀ آمریکا به هدفی در جزیرۀ قشم، از حملۀ تلافی‌جویانه به یک «پایگاه هوایی و بالگردی در یکی از کشورهای منطقه» و مرکز ناوگان پنجم آمریکا [در بحرین] خبر داده است.
+
+🔸پیشتر فرماندهی مرکزی نیروهای آمریکایی در منطقه، سنتکام، با صدور بیانیه‌ای، حمله به نقاطی در جزیره قشم، «در پاسخ به حملات موشکی و پهپادی جمهوری اسلامی» را تأیید کرد.
+
+@RadioFarda
+</div>
+
+## alonews — post 124677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله اسرائیل به حومه بلعت در بخش مرجعیون در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روایت سی‌ان‌ان از درگیری شب گذشته ایران و آمریکا در خلیج فارس
+
+
+🔴ایالات متحده و ایران در یکی از سنگین‌ترین شب‌های حملات از زمان آغاز آتش‌بس در آوریل، دست به تبادل حمله زده‌اند
+
+
+🔴به نظر می‌رسد درگیری‌های شب سه‌شنبه زمانی آغاز شد که ارتش آمریکا با استفاده از موشک هلفایر، یک نفت‌کش با پرچم بوتسوانا را که به سمت بندری ایرانی در جزیره خارک در حرکت بود، هدف قرار داد. به گفته فرماندهی مرکزی ایالات متحده (سنتکام)، این کشتی با محاصره دریایی بنادر ایران توسط آمریکا همکاری نکرده بود.
+
+
+🔴در پاسخ، ایران اعلام کرد به یک کشتی با پرچم لیبریا موشک شلیک کرده است.
+
+
+🔴اما تشدید خطرناک‌تر پس از آن رخ داد که آمریکا یک ایستگاه کنترل زمینی نظامی ایران را در جزیره قشم، نزدیک تنگه هرمز، هدف قرار داد و این موضوع باعث شد ایران به کشورهای کویت و بحرین در منطقه خلیج فارس موشک و پهپاد شلیک کند.
+
+
+🔴ایران اعلام کرد که «یک پایگاه هوایی و بالگردی آمریکایی» در منطقه و همچنین مقر ناوگان پنجم ایالات متحده در بحرین را هدف قرار داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 09:13
 ---
 
