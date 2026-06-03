@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 08:03
+---
+
+## FoxNewsTwitter — post 342542
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342542_1780461212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: LA Mayor Karen Bass hosts election night watch party https://twitter.com/i/broadcasts/1DGLddEMXrbGm
+</div>
+
+## Persian_Trend_Official — post 15590
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15590_1780461213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحتون بخیر 🌄
+F-15 Eagle
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 07:53
 ---
 
