@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 09:34
+---
+
+## WithYashar — post 13341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حرکت پهپاد شاهد۱۳۶ ، فعالیت پدافند و در پایان برخورد و انفجار در فرودگاه کویت !
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342548
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342548_1780466653.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST NOW: LA mayoral candidate Spencer Pratt projects confidence as he waits for election results, dismisses the idea that he doesn't represent Democrats, Republicans and independents.
+
+"Right now, the media likes to say, 'Oh, he's this.' I'm not that. I'm an Angeleno who said enough is enough and I had to step up."
+
+"I didn't know I'd be here tonight, but this is obviously God's plan, and I'm going to go all the way, and I'm going to show everybody that I'm their mayor."
+</div>
+
+## FoxNewsTwitter — post 342547
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342547_1780466656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+LA Mayor Karen Bass advances to the November runoff in her bid for reelection.
+
+Despite being challenged from the left and right and a rocky first term, the Democrat secured a spot for the final round of voting.
+
+Bass, for her own part, maintains that her three years as mayor have taken the city in the right direction.
+
+The incumbent mayor and former congresswoman will now head into a high-profile November showdown as voters decide whether to give her a second term.
+</div>
+
+## pm_afshaa — post 92202
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل:اگر ایران حتی یک گلوله به سمت اسرائیل شلیک کند، تمام دروازه های جهنم به رویشان باز خواهد شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## RadioFarda — post 157838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روبیو: تحریم‌های ایران با کنار گذاشتن فعالیت‌های هسته‌ای‌اش کاهش خواهد یافت
+
+🔸وزیر خارجه آمریکا روز سه‌شنبه ۱۲ خرداد گفت که تیم مذاکره‌کننده دونالد ترامپ، رئیس‌جمهور، در ازای بازگشایی تنگه هرمز هیچ پیشنهاد کاهش یا لغو تحریم‌ها به ایران ارائه نکرده و تأکید کرد که هرگونه کاهش تحریم‌ها منوط به کنار گذاشتن برنامه هسته‌ای از سوی تهران است.
+
+🔸مارکو روبیو در جلسه پرسش و پاسخ کمیته روابط خارجی سنای آمریکا گفت: «در حال حاضر، هر آنچه با آن‌ها (ایران) مطرح شده این است که هرگونه کاهش تحریم‌ها مبتنی بر شروطی است؛ یعنی باید در ازای همان دلایلی باشد که اساساً این تحریم‌ها به خاطر آن‌ها اعمال شده‌اند، یعنی برنامه هسته‌ای‌شان».
+
+🔸او که برای نخستین بار از زمان آغاز جنگ ایران به‌صورت علنی در کنگره شهادت می‌داد، گفت در صورتی که ایران با کنار گذاشتن فعالیت‌های هسته‌ای خود موافقت کند، کاهش تحریم‌ها برای آن در نظر گرفته خواهد شد.
+
+🔸وزیر خارجه آمریکا افزود: «ایران به دلیل غنی‌سازی در سطوح بالا تحت تحریم است. ایران به خاطر فعالیت‌های هسته‌ایش تحریم شده است. اگر با کنار گذاشتن این موارد موافقت کنند، کاهش تحریم‌ها متناسب با تعهد و پایبندی‌شان به این توافق‌ها اعمال خواهد شد».
+
+🔸روبیو در حالی در برابر کمیته روابط خارجی سنای آمریکا شهادت داد، که دولت ترامپ به دنبال جلب موافقت کنگره برای کاهش ۳۰ درصدی بودجه امور خارجی و افزایش ۵۰ درصدی هزینه‌های نظامی پیشنهادی خود است.
+
+🔸وزیر خارجه آمریکا در بخشی از اظهارات خود گفت که ایران با مذاکره دربارهٔ برخی جنبه‌های برنامهٔ هسته‌ایش که پیش‌تر از گفت‌وگو درباره آن‌ها خودداری می‌کرد، موافقت کرده است.
+
+🔸روبیو در عین حال تأکید کرد این موضوع هیچ تضمینی ایجاد نمی‌کند که مذاکرات در نهایت به توافقی برای پایان دادن به جنگ میان آمریکا و اسرائیل با ایران منجر شود.
+
+🔸نسخه کامل این گزارش را در وب‌سایت رادیوفردا بخوانید.
+
+@Radiofarda
+</div>
+
+## alonews — post 124679
+
+<div align="center">
+  <a href="telegram/content/alonews_124679_1780466657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کوثری: آمریکایی‌ها جز زور متوجه چیز دیگری نمی‌شوند
+
+
+🔴عضو کمیسیون امنیت ملی مجلس: برخورد با آمریکایی‌ها باید تشدید شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124678
+
+<div align="center">
+  <a href="telegram/content/alonews_124678_1780466659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی سازمان آتش‌نشانی شهر تهران:
+ساعت ۳ دقیقه بامداد امروز حادثه خودرویی در زیر پل استخر محله تهرانپارس به سامانه ۱۲۵ اعلام شد.
+
+
+🔴آتش‌نشانان پس از حضور در محل مشاهده کردند یک دستگاه خودروی MVM با دو سرنشین که در روی پل در حال عبور بودند، به دلیل نامشخصی با گاردریل‌های پل برخورد کرده است.
+
+
+🔴پس از حضور عوامل اورژانس مشخص شد که متأسفانه هر دو سرنشین جان خود را از دست داده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 09:23
 ---
 
