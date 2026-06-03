@@ -7,6 +7,233 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 14:54
+---
+
+## pm_afshaa — post 92209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:ایران موافقت کرده که سلاح هسته‌ای نداشته باشد ما به توافق می‌رسیم جنگ تموم میشه محاصره هم همینطور بنزین هم ارزون میشه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340340
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340340_1780485873.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر روزنامه‌های ایران، چهارشنبه ۱۳ خرداد، با مجتبی هاشمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 340339
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340339_1780485876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد شش فرد و چهار صرافی رمزارز، از جمله نوبیتکس، در فهرست تحریم‌ها قرار گرفته‌اند. اسکات بسنت، وزیر خزانه‌داری آمریکا، گفته است جمهوری اسلامی از دارایی‌های دیجیتال برای دور زدن تحریم‌ها و انتقال سرمایه به خارج استفاده می‌کند.
+
+جزییات بیشتر با آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6477
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6477_1780485878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Open Source Intel ✓ @Osint613 Wed, 03 Jun 2026 10:18:42 UTC Trump: Iran's Ayatollah is involved in negotiations. ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی ترامپ: آیت‌الله ایران در مذاکرات نقش دارد. 𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6476
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Open Source Intel ✓ @Osint613
+Wed, 03 Jun 2026 10:18:42 UTC
+
+Trump: Iran's Ayatollah is involved in negotiations.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ترامپ: آیت‌الله ایران در مذاکرات نقش دارد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219463
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219463_1780485879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز آمار ایران از رشد ۹۷ درصدی نهاده‌های ساختمانی در زمستان پارسال نسبت به فصل مشابه سال ۱۴۰۳ خبر داد. بیشترین رشد قیمت در مصالح چوبی بوده که جهشی ۱۱۶ درصدی داشته است.
+
+بر اساس این گزارش، قیمت نهاده‌های ساختمان‌های مسکونی در تهران در زمستان پارسال نسبت به پاییز همان سال نیز ۳۶ درصد رشد کرده است.
+
+اخیراً انجمن انبوه‌سازان استان تهران اعلام کرد که هزینه ساخت نهضت ملی مسکن به حداقل ۴۰ میلیون تومان به ازای هر مترمربع اوج گرفته است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125451
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 فتح‌الله آوری یکی دیگر از معترضان دی ماه ۱۴۰۴ در همدان اعدام شد
+
+خبرگزاری میزان، وابسته به قوه قضائیه جمهوری اسلامی اعلام کرد که فتح‌الله آوری، از معترضان ناآرامی‌های دی‌ماه ۱۴۰۴، اعدام شد.
+
+به ادعای قوه قضائیه، فتح‌الله آوری متهم به "قتل یک مامور انتظامی" بوده است.
+قوه قضائیه اما جزییاتی از زمان بازداشت و از چگونگی برگزاری دادگاه فتح‌الله آوری ارائه نداده است.
+
+سازمان حقوق بشری "هه‌نگاو" نیز گزارش داده که حکم اعدام فتح‌الله آوری، زندانی بازداشت‌شده در جریان اعتراضات دی‌ماه ۱۴۰۴ در همدان، سحرگاه سه‌شنبه ۱۲ خرداد ۱۴۰۵ در زندان مرکزی همدان به‌صورت مخفیانه اجرا شده است.
+
+در گزارش هه‌نگاو آمده است که او با اتهام "محاربه از طریق قتل یکی از نیروهای حکومتی" به نام محمدجواد بخشیان در جریان اعتراضات، به اعدام محکوم شده بود.
+
+خبرگزاری میزان هم روز چهارشنبه ۱۳ خرداد در روند رسیدگی به پرونده، کشف ادله فیزیکی و اعترافات متهم مطرح شده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15627
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15627_1780485879.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دکتر عبدالله السند، سخنگوی وزارت بهداشت کویت، گفت که بیمارستان‌ها و اورژانس تاکنون 63 مجروح را پذیرش کرده و از ساعات اولیه پس از آنچه که او تجاوز ایران به کویت توصیف کرد، هفت عمل جراحی اورژانسی بزرگ انجام داده‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Hranews — post 113358
+
+<div align="center">
+  <img src="telegram/content/Hranews_113358_1780485880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات ۱۴۰۴؛ بلاتکلیفی شادی شادمان در زندان اوین ادامه دارد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– شادی(خدیجه) شادمان، از بازداشت شدگان اعتراضات سراسری ۱۴۰۴، پنج ماه است که توسط نیروهای امنیتی بازداشت شده و هم اکنون به صورت بلاتکلیف در زندان اوین نگهداری می‌شود.
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، شادی(خدیجه) شادمان همچنان در بازداشت بسر می‌برد.
+
+بر اساس اطلاعات دریافتی هرانا، خانم شادمان در جریان اعتراضات سراسری دی ماه ۱۴۰۴، توسط نیروهای امنیتی بازداشت شد. وی پس از یک ماه بازداشت در یکی از بازداشتگاه های امنیتی در شرق تهران، در تاریخ ۹ بهمن ماه، به بند زنان زندان اوین منتقل شده است.
+
+جلسه دادگاه رسیدگی به اتهامات این شهروند چندی پیش در شعبه ۲۶ دادگاه انقلاب تهران، به ریاست قاضی ایمان افشاری برگزار شده است.
+
+ادامه مطلب
+
+#شادی_شادمان #خدیجه_شادمان
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124764
+
+<div align="center">
+  <a href="telegram/content/alonews_124764_1780485880.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت حساب ایکس خبرگزاری صداوسیما که همزمان با اتفاقات دیشب منطقه، مورد توجه کابران خارجی قرار گرفت
+‌
+
+🔴 تجارت به سبک آمریکایی:
+
+
+🔴۱. یک پایگاه نظامی در کشور شما می‌سازد.
+
+🔴۲. از آن پایگاه به کشور دیگری حمله می‌کند.
+
+🔴۳. سپس یک سیستم دفاعی به کشور شما می‌فروشد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124763
+
+<div align="center">
+  <a href="telegram/content/alonews_124763_1780485881.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اولین ابرنفتکش در تقریباً یک ماه گذشته در تأسیسات اصلی صادرات نفت خام ایران در شمال خلیج فارس پهلو گرفته است که نشان‌دهنده ماهیت عمدتاً مؤثر محاصره آمریکا است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124762
+
+<div align="center">
+  <a href="telegram/content/alonews_124762_1780485881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : من می‌تونستم انجامش ندم، ولی نه، چون این موضوع خیلی مهمه
+
+
+🔴 اگه انجامش نمی‌دادم، اونا خیلی زود سلاح هسته‌ای می‌داشتن
+
+
+🔴حتی ممکن بود دو هفته بعد از اون حمله‌ی B-2 هم به بمب هسته‌ای برسن
+
+
+🔴 یعنی اگه اون کار رو نمی‌کردم، عملاً خیلی زود به سلاح هسته‌ای می‌رسیدن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124761
+
+<div align="center">
+  <a href="telegram/content/alonews_124761_1780485883.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار : آتش‌بس و این چیزها آیا هدفش اینه که ایران رو در حالت سردرگمی نگه دارید؟ یعنی دارید بهشون پیام می‌دید؟
+
+
+🔴ترامپ : نه، چون بعضی‌ها داخل کشور می‌گن این وضعیت براشون اضطراب و سردرگمی ایجاد کرده
+
+
+🔴 این خوبه این خوبه که هم اون‌ها سردرگم باشن، هم ایرانی‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124760
+
+<div align="center">
+  <a href="telegram/content/alonews_124760_1780485885.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: انتخابات ۲۰۲۰ تقلبی بود... وقتی پای انتخابات به میان می‌آید، ما از برخی کشورهای جهان سوم بدتریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 14:44
 ---
 
