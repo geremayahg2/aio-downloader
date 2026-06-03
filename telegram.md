@@ -7,6 +7,43 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 05:44
+---
+
+## FoxNewsTwitter — post 342538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Sen. Ted Cruz blasts Democrats for staying silent on Maine Senate candidate Graham Platner: "I think this election is revealing what Senate Democrats really care about." https://twitter.com/seanhannity/status/2061989748483199404#m
+</div>
+
+## FoxNewsTwitter — post 342537
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342537_1780452888.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"We can do so amazingly well if we have common sense at the top in California."
+
+Steve Hilton shares his outlook for the Golden State ahead of California's gubernatorial primary results. https://twitter.com/seanhannity/status/2061989409545761221#m
+</div>
+
+## FarsiVOA — post 219434
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219434_1780452890.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا (سنتکام) دقایقی پیش اعلام کرد که «موج دیگری» از حملات پهپادی جمهوری اسلامی که نیروهای آمریکایی در کویت را هدف گرفته بود، ناکام ماند و پهپادها به اهدافی که داشتند برخورد نکردند.
+سنتکام افزود پدافند هوایی ستاد فرماندهی مرکزی ایالات متحده «با موفقیت چندین پهپاد را سرنگون کرد. سنتکام گفت هیچ یک از پرسنل و یا تجهیزات آمریکا آسیبی ندیده است.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 05:34
 ---
 
