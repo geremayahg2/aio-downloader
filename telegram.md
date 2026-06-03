@@ -7,6 +7,83 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 08:43
+---
+
+## FoxNewsTwitter — post 342545
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342545_1780463598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: GOP candidate Steve Hilton hosts election night watch party in California https://twitter.com/i/broadcasts/1dGYllLOQXvKX
+</div>
+
+## IranIntlTV — post 340311
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340311_1780463598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد نوبیتکس، بزرگ‌ترین صرافی رمزارز ایران را تحریم کرده است.
+
+میعاد ملکی، رییس پیشین دفتر هدف‌گذاری تحریم‌های وزارت خزانه‌داری آمریکا، گفت این اقدام به دلیل فعالیت‌های سپاه پاسداران و پیامی به اعضای کنگره است که فشار بر جمهوری اسلامی باید ادامه یابد
+@iranintltv
+</div>
+
+## IranianMinds — post 21287
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21287_1780463600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بعد از کشته شدن استاد اسپلینتر ارتش موش ها برای انتقام به کشور حمله کردن
+
+
+با اعلام مدیرکل محیط زیست موش های پا سفید که رنگ قهوه ای مایل به قرمز دارن، بخاطر گرما به کشور هجوم آوردن و بسیار هم خطرناک هستن!
+
+@IranianMinds
+</div>
+
+## alonews — post 124664
+
+<div align="center">
+  <a href="telegram/content/alonews_124664_1780463600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه‌های عربی از توقف کامل فعالیت فرودگاه‌ها و تمام پروازها در بحرین، کویت و امارات متحده عربی به دنبال وقوع حملات هوایی خبر دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124663
+
+<div align="center">
+  <a href="telegram/content/alonews_124663_1780463600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 فرماندهی مرکزی ایالات متحده (سنتکام) گزارش‌ها درباره اصابت حملات ایران به مقر ناوگان پنجم آمریکا در بحرین را تکذیب کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124662
+
+<div align="center">
+  <a href="telegram/content/alonews_124662_1780463601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: حمله سنتکام به جزیره قشم، قیمت نفت را صعودی کرد و چشم‌انداز بازگشایی تنگه هرمز را کمرنگ ساخت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 08:33
 ---
 
