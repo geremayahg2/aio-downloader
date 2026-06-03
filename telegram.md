@@ -7,6 +7,147 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 17:56
+---
+
+## VahidOOnLine — post 243515
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243515_1780496768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان حقوق بشر کارون گزارش داد حکم اعدام حسن مصلاوی (طرفی)، زندانی سیاسی ۳۸ ساله عرب، پس از تایید در دیوان عالی کشور، در روزهای گذشته در زندان شیبان اهواز به او ابلاغ شده است. اتهام‌های این زندانی سیاسی «محاربه با خدا» و «عضویت در گروه‌های عرب مخالف جمهوری اسلامی» عنوان شده است.
+بر اساس این گزارش، حکم اعدام مصلاوی از سوی شعبه ۳۹ دیوان عالی کشور عینا تایید شده بود، اما ابلاغ آن به این زندانی سیاسی تا خرداد سال جاری به طول انجامید.
+مصلاوی سال ۱۴۰۱ از سوی نیروهای امنیتی بازداشت شد و مرداد ۱۴۰۲، مهران مهمان‌نواز، رییس شعبه اول دادگاه انقلاب ماهشهر، او را در حکمی غیابی به اعدام محکوم کرد.
+مصلاوی پیش‌تر نیز در سال ۱۳۹۸ همراه با شماری از فعالان فرهنگی عرب بازداشت شده و بیش از ۱۰ ماه در وضعیت بلاتکلیف در حبس به سر برده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13386
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وکیل شخصی نتانیاهو، مایکل رابلو، به عنوان بازرس کل دولت اسرائیل انتخاب شد.
+@withyashar
+</div>
+
+## pm_afshaa — post 92221
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92221_1780496768.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم: آمریکا از ایران خواسته قبل از اعلام توافق، محل ذخیره اورانیوم غنی‌شده رو روشن کنه.
+
+واشنگتن به تهران اطلاع داده که پیش از اطلاع از مکان اورانیوم غنی‌شده، محاصره و تحریم‌ها رو لغو نخواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340369
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340369_1780496769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان حقوق بشر کارون گزارش داد حکم اعدام حسن مصلاوی (طرفی)، زندانی سیاسی ۳۸ ساله عرب، پس از تایید در دیوان عالی کشور، در روزهای گذشته در زندان شیبان اهواز به او ابلاغ شده است. اتهام‌های این زندانی سیاسی «محاربه با خدا» و «عضویت در گروه‌های عرب مخالف جمهوری اسلامی» عنوان شده است.
+بر اساس این گزارش، حکم اعدام مصلاوی از سوی شعبه ۳۹ دیوان عالی کشور عینا تایید شده بود، اما ابلاغ آن به این زندانی سیاسی تا خرداد سال جاری به طول انجامید.
+مصلاوی سال ۱۴۰۱ از سوی نیروهای امنیتی بازداشت شد و مرداد ۱۴۰۲، مهران مهمان‌نواز، رییس شعبه اول دادگاه انقلاب ماهشهر، او را در حکمی غیابی به اعدام محکوم کرد.
+مصلاوی پیش‌تر نیز در سال ۱۳۹۸ همراه با شماری از فعالان فرهنگی عرب بازداشت شده و بیش از ۱۰ ماه در وضعیت بلاتکلیف در حبس به سر برده بود.
+https://iranintl.com/202606030090
+</div>
+
+## Persian_Trend_Official — post 15629
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15629_1780496770.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کویت دو دیپلمات ایرانی را اخراج کرد
+
+دولت کویت پس از حمله اخیر به فرودگاه این کشور، دو دیپلمات ایرانی را «عنصر نامطلوب» اعلام کرد و به آن‌ها ۲۴ ساعت فرصت داد خاک کویت را ترک کنند.
+
+وزارت خارجه کویت همچنین با احضار کاردار ایران، یادداشت اعتراض رسمی خود را نسبت به حملات اخیر و تصمیم برای کاهش شمار اعضای سفارت ایران در این کشور ابلاغ کرده است.
+
+تنش میان تهران و کویت وارد مرحله‌ای فراتر از اعتراضات سیاسی شده و اکنون به سطح اقدامات دیپلماتیک متقابل رسیده است؛ اقدامی که می‌تواند بر روابط ایران با دیگر کشورهای عربی حوزه خلیج فارس نیز تأثیر بگذارد.
+
+
+👺Phantom
+
+
+📍 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21315
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21315_1780496771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+ترامپ و مجبتی خامنه ای با هم دیدار کردند
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقا من خودم نقض آتش بسم ولی الان بحث بحث وطنه
+</div>
+
+## IranianMinds — post 21313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقا من خودم جنگ جنوبم ولی بحث بحث وطنه
+</div>
+
+## IranianMinds — post 21312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۴ ۵ ساعت باقی مانده تا جنگ مجدد در جنوب کشور و برقرار موندن آتش بس 😊
+
+
+@IranianMinds
+</div>
+
+## alonews — post 124805
+
+<div align="center">
+  <a href="telegram/content/alonews_124805_1780496771.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو به CNBC: بسیاری از کسانی که اسرائیل را هدف قرار می دهند در بیروت هستند‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124804
+
+<div align="center">
+  <a href="telegram/content/alonews_124804_1780496772.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو به سی‌ان‌بی‌سی: من با ترامپ در مورد مسائل مربوط به ایران موافقم و ما گاهی اوقات در مورد جنبه‌های تاکتیکی اختلاف نظر داریم، اما به راه‌حل‌هایی می‌رسیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 17:44
 ---
 
