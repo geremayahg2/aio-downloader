@@ -7,6 +7,211 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 20:15
+---
+
+## WithYashar — post 13403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای مشکوک به انفجار از غرب‌ تهران🚨
+@withyashar
+</div>
+
+## WithYashar — post 13402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : ما الان با دو بخار مواجه هستیم، بخار هسته ای و بخار خامنه ای
+@withyashar
+پایان چالش رو اعلام میکنم 🙌🏾🤣
+</div>
+
+## mwarmonitor — post 10100
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10100_1780505109.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 به‌به! تبریک به امت همیشه در صحنه و دائماً در حالت آماده‌باش! ظاهراً در آخرین دستاورد «جهاد تبیین»، از نسخهٔ حلال و بومیِ پورن اسلامی هم در تجمعات شبانه رونمایی شد تا کلکسیون افتخارات این فرقه تکمیل شود.
+
+🔸واقعاً خلاقیت موج می‌زند؛ یک مشت شل‌کمرِ دائم‌التحریک دور هم جمع شده‌اند تا در روز روشن و با بلندگو، صیغهٔ یک‌ماهه جاری کنند و بابتش تکبیر بفرستند! وقتی تمام سیستم فکری یک حکومت، حول محور ناف به پایین بچرخد، خروجی‌اش چیزی جز این سیرک تهوع‌آور نخواهد بود. اصلاً مگر چیزی به نام «مغز» هم در این فرقه تعریف شده؟ خیر! تمام پهنای باندِ خاکستریِ نداشته‌شان، صرفاً به شکم و زیر شکم اختصاص یافته است.
+
+🔸این داستان امروز و دیروز نیست؛ ۱۴۰۰ سال پیش سنگ بنای همین زندگی انگلی گذاشته شد: فرمولی ساده، کثیف و پایدار که کل فلسفهٔ وجودی‌اش در دو جمله خلاصه می‌شود: «بجنگ برای غارت، و دستگاه تولید مثل را روشن نگه دار!» شاهکاری از تلفیق شهوت و شریعت، برای سرگرم کردن گله‌ای که از ابتدا هم سهمی از مغز نبرده بود.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"They don't have the right to assault my officers!"
+
+DHS Secretary Markwayne Mullin shuts down Rep. Lou Correa's talking points after the Democrat raised concerns about American citizens being roughed up during ICE operations.
+
+REP. CORREA: "What can we do to protect the rights of American citizens?"
+
+SEC. MULLIN: "We can protect the rights of American citizens all day long. They don't have the right to assault my officers."
+</div>
+
+## IranIntlTV — post 340389
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340389_1780505110.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابک اسحاقی، خبرنگار ایران اینترنشنال، از تماس پرتنش ترامپ و نتانیاهو و بازتاب آن در رسانه‌های اسراییل می‌گوید. بر اساس گزارش رسانه‌های اسراییلی و خارجی، ترامپ با لحنی تند نتانیاهو را «دیوانه» خطاب کرده و گفته است او بدون حمایت ترامپ اکنون در زندان بود. این گفت‌وگوی چالش‌برانگیز در میانه تلاش‌ها برای متوقف کردن حمله اسراییل به بیروت انجام شده و به نظر می‌رسد نتانیاهو در نهایت موضع ترامپ را پذیرفته است. دفتر نخست‌وزیری اسراییل هنوز به‌طور علنی به این گزارش‌ها واکنش نشان نداده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340388
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340388_1780505111.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مهدی تاج، رییس فدراسیون فوتبال درباره اجازه اقامت ۴۸ ساعته تیم ملی در آمریکا برای هر بازی گفت: «آنها (آمریکا) که برای ما نمی‌توانند برای تعیین تکلیف کنند، ما میهمان فیفا هستیم و با فیفا دراین‌باره صحبت می‌کنیم. ممکن است نظر آنها این باشد، اما مهم توافقی است که با فیفا داریم.»
+
+🔹این اظهارات تاج درحالی است که پیش‌تر گاتزتا دلو اسپورت گزارش داده بود که تیم ملی در جام جهانی ۲۰۲۶، در هر بار ورود به آمریکا، فقط ۴۸ ساعت در این کشور حضور خواهد داشت.
+
+🔹تاج در روزهای گذشته بر توافق با فیفا برای حضور در آمریکا تاکید زیادی کرده است، این درحالی است که فیفا نتوانست حضور او در کنگره خود در کانادا را تضمین کند و رییس فدراسیون فوتبال ایران و نایب رییس کنفدراسیون فوتبال آسیا، به دلیل سابقه عضویت در سپاه پاسداران، اجازه ورود به کانادا را پیدا نکرد.
+
+🔹او که با شبکه ورزش صدا و سیما گفتگو می‌کرد درباره ویزای تیم ملی گفت: «ویزای مکزیک کاملا حل شده اما درباره ویزای آمریکا فیفا به ما امیدواری داده که به عهده آنها بگذاریم و حل می‌کنند، ولی هنوز نمی‌شود گفت که ویزای آمریکا حل شده چون چیزی به ما اعلام نشده.»
+
+@iranintltvsport
+</div>
+
+## RadioFarda — post 157864
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز چهارشنبه گفت که ایران پس از حمله جمهوری اسلامی به کویت، «با آتش بازی می‌کند». 🔸او در گفت‌وگو با شبکه آمریکایی سی‌ان‌بی‌سی، در پاسخ به این پرسش که آیا پس از حملات اخیر به کویت و بحرین هنوز آتش‌بس برقرار است یا نه،…
+</div>
+
+## RadioFarda — post 157863
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157863_1780505112.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز چهارشنبه گفت که ایران پس از حمله جمهوری اسلامی به کویت، «با آتش بازی می‌کند».
+
+🔸او در گفت‌وگو با شبکه آمریکایی سی‌ان‌بی‌سی، در پاسخ به این پرسش که آیا پس از حملات اخیر به کویت و بحرین هنوز آتش‌بس برقرار است یا نه، گفت: «ایران قطعاً می‌داند که رئیس‌جمهور (آمریکا) گفته است اگر لازم باشد، بازگشت کامل به اقدام نظامی صورت خواهد گرفت.»
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبری که مبنی بر تاریخ برگزاری خاکسپاری خامنه ای اعلام شده توسط فارس تکذیب شد
+
+
+حضرت آقا حالا حالاها خاک نمیشه 😔
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282796
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282796_1780505113.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرانسیلیا کوستا و لوئیزا سیلویریو، یک زوج برزیلی، نخستین‌بار در یک صومعه با هم آشنا شدن و اصلا از هم خوششان نمی‌آمد. اما این بیزاری متقابل، به‌تدریج به دوستی عمیقی تبدیل شد. آنها ایمان و چالش‌های مشترکی داشتند. هر دو به‌خاطر سلامت روان‌ و مواجه شدن با سختی‌های زندگی بیرون، صومعه را ترک کردند و هم‌خانه شدند. این پیوند دوستی به عشق بدل شد و امروز، آن‌ها ازدواج کرده‌اند. این زوچ که عمیقا به مذهب کاتولیک معتقدند، داستانی الهام‌بخش از تاب‌آوری، ایمان و عشق غیرمنتظره را روایت می‌کنند.
+
+@BBCPersian
+https://bbc.in/4oeAKpC
+</div>
+
+## Dirty_Kids — post 390921
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390921_1780505114.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ وقتی مجتبی رو میبینه:
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390920
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390920_1780505115.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کیم جونگ اون رهبر کره شمالی با تیم فوتبال زنان ناگوهیانگ ، اولین تیم از کره شمالی که قهرمان لیگ قهرمانان زنان آسیا شد دیدار کرد
+
+همگی دارن واسه دیدن رهبشون از نزدیک اشک شوق میریزن 😐😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس:
+
+تاریخ برگزاری آئین وداع، تشییع و خاکسپاری علی خامنه‌ای اعلام شد
+
+۲۰، ۲۱، ۲۲ خرداد؛ وداع در حرم امام‌ خمینی
+۲۳ خرداد؛ تشییع در تهران
+۲۴ خرداد؛ تشییع در قم
+۲۵ خرداد؛ تشییع در عراق
+۲۶ خرداد؛ تشییع و خاکسپاری در مشهد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124863
+
+<div align="center">
+  <a href="telegram/content/alonews_124863_1780505116.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: دوران تهدید بی‌هزینۀ ایران به پایان رسیده و هر تجاوزی با پاسخی پشیمان‌کننده مواجه خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124862
+
+<div align="center">
+  <a href="telegram/content/alonews_124862_1780505116.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سردار غلامرضا جلالی رئیس سازمان پدافند غیرعامل: علی‌رغم همه انتقادها، برخی از اسرار کشور را افشا نمی‌کنیم، چون اطلاع‌رسانی عمومی در برخی موارد می‌تواند موجب ترس و نگرانی در جامعه شود!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124861
+
+<div align="center">
+  <a href="telegram/content/alonews_124861_1780505116.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس ستاد ارتش اسرائیل: هیچ برنامه‌ای برای آتش‌بس در جبهه لبنان وجود ندارد و عملیات تهاجمی ادامه خواهد داشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 20:05
 ---
 
