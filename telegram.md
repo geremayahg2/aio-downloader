@@ -7,6 +7,41 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 05:04
+---
+
+## Shin_Persian — post 6454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Wed, 03 Jun 2026 01:26:27 UTC
+
+U.S. Central Command says Iranian drones attempted to attack U.S. forces in Kuwait tonight. Air defenses downed multiple drones; no American personnel or assets were harmed.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2061982709723906359
+
+فارسی
+
+فرماندهی مرکزی ایالات متحده (سنتکام) اعلام کرد پهپادهای ایرانی امشب تلاش کردند به نیروهای آمریکایی در کویت حمله کنند. پدافند هوایی چندین پهپاد را سرنگون کرد؛ به هیچ‌یک از پرسنل یا دارایی‌های آمریکا آسیبی وارد نشده است.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2061982709723906359
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آیا بیانیه ائتلاف شیعه حاکم، پایان دوران شبه‌نظامیان وابسته به جمهوری اسلامی در عراق است؟
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 04:53
 ---
 
