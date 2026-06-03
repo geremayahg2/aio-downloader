@@ -7,6 +7,236 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 23:14
+---
+
+## VahidOOnLine — post 243564
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243564_1780515873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ارتش جمهوری اسلامی اعلام کرد ساعاتی قبل و در پی آنچه اقدامات «تجاوزکارانه» و «نقض مقررات» تنگه هرمز از سوی ارتش آمریکا خواند، مرکز فرماندهی و کنترل مستقر در یک ناوشکن آمریکایی که قصد نزدیک شدن به آب‌های ایران در دریای عمان را داشت هدف قرار داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی جمهوری اسلامی ساعتی پیش یک ناو جنگی آمریکا را در دریای عمان هدف قرار دادیم @withyashar 🚨
+</div>
+
+## VahidOnline — post 75927
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75927_1780515876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام ادعای جمهوری اسلامی درباره شلیک به یک ناوشکن آمریکایی رو دروغ خوند.
+CENTCOM
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340418
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340418_1780515876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعاتی که به ایران‌اینترنشنال رسیده، الیاس رافعی، از جان‌باختگان اعتراضات سراسری دی‌ماه، شامگاه هجدهم دی‌ماه بر اثر اصابت هشت گلوله جنگی کشته شد.
+
+طبق این اطلاعات، الیاس رافعی به دلیل شرایط دشوار اقتصادی خانواده، دوران کودکی خود را در پرورشگاه گذراند و پس از ۱۸ سالگی در کنار مادرش زندگی می‌کرد. او ورزشکار بود و به عنوان نان‌آور خانواده از مادرش حمایت می‌کرد.
+
+پس از کشته شدن الیاس، از مادر او برای تحویل گرفتن پیکرش درخواست پول شده بود. مادر الیاس به دلیل ناتوانی مالی ناچار شده مدارکی را امضا کند که در آن فرزندش به عنوان عضو بسیج معرفی شده بود تا بتواند جسد او را تحویل بگیرد.
+</div>
+
+## IranIntlTV — post 340417
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340417_1780515877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ارتش جمهوری اسلامی اعلام کرد ساعاتی قبل و در پی آنچه اقدامات «تجاوزکارانه» و «نقض مقررات» تنگه هرمز از سوی ارتش آمریکا خواند، مرکز فرماندهی و کنترل مستقر در یک ناوشکن آمریکایی که قصد نزدیک شدن به آب‌های ایران در دریای عمان را داشت هدف قرار داد.
+https://iranintl.com/202606035802
+</div>
+
+## Shin_Persian — post 6490
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6490_1780515878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+U.S. Central Command ✓ @CENTCOM
+Wed, 03 Jun 2026 19:36:01 UTC
+
+🚫 CLAIM: Iran is now claiming it has targeted a U.S. Navy destroyer in the Gulf of Oman.
+
+✅ TRUTH: Iran is lying. U.S. military assets at sea continue to fly, sail, and operate safely and unimpeded.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+🚫 ادعا: ایران اکنون مدعی است که یک ناوشکن نیروی دریایی ایالات متحده را در دریای عمان هدف قرار داده است.
+
+✅ واقعیت: ایران دروغ می‌گوید. دارایی‌های نظامی ایالات متحده در دریا همچنان به پرواز، دریانوردی و عملیات ایمن و بدون مانع ادامه می‌دهند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned an audio file
+</div>
+
+## FarsiVOA — post 219508
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219508" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری چهارشنبه ۱۳خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## Persian_Trend_Official — post 15656
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15656_1780515878.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند هوایی در فرودگاه مهرآباد تهران
+</div>
+
+## Persian_Trend_Official — post 15655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو آغاز میشه
+</div>
+
+## BBCPersian — post 282801
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم چهارشنبه ۱۳ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390935
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390935_1780515989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از سریال پدر تا سریال بدنام
+به نویسندگی حامد عنقا
+خلاقیت موج میزنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390934
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390934_1780515990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گربه مشکیه واقعا انگار یه درک درستی از فوتبال و موقعیت حساس داره
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124912
+
+<div align="center">
+  <a href="telegram/content/alonews_124912_1780515990.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع: با تمام توان در مسیر تقویت بنیه دفاعی کشور، توسعه فناوری‌های راهبردی، پر کردن هرچه بیشتر دست نیروهای مسلح و صیانت از امنیت، استقلال و تمامیت ارضی جمهوری اسلامی ایران گام برخواهیم داشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 🚀✅ ⭐️ فقط گیگی 8 هزار تومان😍 ✅ بدون قطعی‌های آزاردهنده ✅ سرعت بالا حتی ساعات شلوغ ✅ مناسب تلگرام، اینستاگرام و یوتیوب ✅ همراه با ساب ✅ تعداد محدود با این قیمت 🤖 @NetAazaadBot 🤖 @NetAazaadBot
+</div>
+
+## alonews — post 124910
+
+<div align="center">
+  <img src="telegram/content/alonews_124910_1780515990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 🚀✅
+
+⭐️ فقط گیگی 8 هزار تومان😍
+
+✅ بدون قطعی‌های آزاردهنده
+✅ سرعت بالا حتی ساعات شلوغ
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+✅ همراه با ساب
+
+✅ تعداد محدود با این قیمت
+
+🤖 @NetAazaadBot
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 124909
+
+<div align="center">
+  <a href="telegram/content/alonews_124909_1780515991.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت کشور بحرین به دلیل خطر احتمالی آژیر خطر را فعال کرد و از شهروندان خواست به نزدیک‌ترین مکان امن بروند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124908
+
+<div align="center">
+  <a href="telegram/content/alonews_124908_1780515991.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: یک مقام آمریکایی گفت مذاکرات اسرائیل و لبنان با میانجیگری ایالات متحده هنوز در وزارت امور خارجه ادامه دارد.
+
+
+🔴 این مقام آمریکایی ادعا کرد: «مذاکرات به کندی آغاز شد اما سپس پیشرفت قابل توجهی در مورد یک طرح عملیاتی حاصل شد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 23:04
 ---
 
