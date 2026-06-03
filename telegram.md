@@ -7,6 +7,207 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 17:44
+---
+
+## VahidOOnLine — post 243514
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243514_1780496079.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندان در پیام‌هایی به ایران اینترنشنال به ناتوانی حکومت در دفن جسد علی خامنه‌ای اشاره می‌کنند. خامنه‌ای ۹ اسفندماه،‌ حدود سه ماه قبل، در حمله آمریکا و اسرائیل کشته شده بود. پیام‌های شهروندان با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342557
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342557_1780496082.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: DHS Secretary Mullin testifies before the House Homeland Security Committee https://twitter.com/i/broadcasts/1wxWjjBbBbkJQ
+</div>
+
+## FoxNewsTwitter — post 342556
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342556_1780496083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Legendary former Alabama football coach Nick Saban issues a stark warning on the devastating trajectory of college sports under current NIL rules.
+
+"It's become an arms race, who spends the most has got the best chance to win.”
+
+“But I think it's a race to the bottom because if you don't spend to win, you lose your fan base and you don't have any revenue."
+</div>
+
+## FoxNewsTwitter — post 342555
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342555_1780496085.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Bessent grilled on economic priorities at Senate hearing https://twitter.com/i/broadcasts/1yxBeemgLbrJN
+</div>
+
+## DEJradio — post 5304
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5304_1780496086.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📌 توافق با حکومت‌های مافیایی پایدار نخواهد بود
+*یادداشت: فریبرز کرمی‌زند
+
+چرا اساسا هیچ توافق یا معاهده‌ای با جمهوری اسلامی سرانجام پایداری نخواهد داشت؟
+
+طی شب‌های گذشته سپاه پاسداران حملات موشکی و پهپادی علیه کشورهای حاشیه خلیج فارس انجام داد. هرچند این اقدام به‌عنوان پاسخ تلافی‌جویانه به حملات آمریکا عنوان شد، اما شاید بتوان وضعیت فعلی جمهوری اسلامی را با یک مثال ساده‌تر توضیح داد.
+
+در خانواده‌های مافیایی، پس از مرگ پدرخوانده، هر یک از فرزندان برای به‌دست گرفتن کنترل خانواده تلاش می‌کند قدرت خود را به نمایش بگذارد، مسیر جداگانه‌ای در پیش بگیرد و در برابر نقش‌آفرینی سایر اعضای خانواده سنگ‌اندازی کند. نتیجه این رقابت، اختلاف و نبود هماهنگی، در نهایت چیزی جز تضعیف و فروپاشی ساختار خانواده نیست.
+
+وضعیت جمهوری اسلامی نیز تا حدی به همین شکل قابل توصیف است؛ ساختاری متشکل از جناح‌ها و مراکز قدرت مختلف که هرکدام اهداف و منافع خود را دنبال می‌کنند. در چنین شرایطی، به‌ویژه در دوران بحران فعلی و نبود رهبری منسجم، نهادها و جناح‌های مختلف، به‌خصوص سپاه پاسداران، تلاش می‌کنند خود را به‌عنوان قدرت برتر و تصمیم‌گیر نهایی تثبیت کنند؛ حتی اگر این اقدامات باعث تضعیف روند مذاکرات، اخلال در سیاست‌های داخلی و خارجی دولت، یا بی‌اثر شدن برنامه‌ها و تصمیمات سایر جناح‌ها شود.
+
+همین نبود هماهنگی و وجود رقابت میان جناح‌های حاکمیت، از دلایلی است که باعث می‌شود توافق‌ها و معاهدات با جمهوری اسلامی یا اساساً شکل نگیرند، یا اگر هم منعقد شوند، از ثبات و دوام کافی برخوردار نباشند زیرا در عمل هیچ تضمینی وجود ندارد که همه بخش‌های حاکمیت به یک مسیر و تصمیم واحد پایبند بمانند.
+و این موضوع یکی از عوامل اصلی فروپاشی ساختار جمهوری اسلامی و سرنگونی آن می‌شود.
+
+#جنگ #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## IranIntlTV — post 340368
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340368_1780496086.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر و پیام‌های رسیده به ایران‌اینترنشنال از شرایط نامساعد برخی معترضان مجروح در جریان اعتراضات دی‌ماه حکایت دارد. شماری از مخاطبان گفته‌اند برخی افراد به‌دلیل نگرانی از بازداشت یا برخورد نیروهای امنیتی، از مراجعه به مراکز درمانی خودداری کرده‌اند.
+
+جزییات بیشتر با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## ManotoTV — post 105908
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105908_1780496089.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنان عزت‌الله همایونفر، ادیب و سیاستمدار، درباره نادرشاه و علاقه ایرانیان به میهن‌شان
+</div>
+
+## FarsiVOA — post 219475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بحران در تیم فوتبال جمهوری اسلامی؛ مارکو روبیو می‌گوید آمریکا اجازه ورود افراد مرتبط با سپاه در هیات همراه تیم ملی جمهوری اسلامی را نمی‌دهد. همزمان بازی تدارکاتی با پورتوریکو لغو شده و فدراسیون به دنبال برگزاری دیداری با گرنادا، تیم ۱۶۳ رده‌بندی فیفا است.
+</div>
+
+## FarsiVOA — post 219474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تکمیل ماموریت سه ماهه یک لشکر ارتش دفاعی اسرائیل پس از کشتن ۳۵ «تروریست» در شمال غزه
+
+▪️ارتش اسرائیل از تکمیل ماموریت سه‌ماهه نیروهای یک لشکر خود در شمال نوار غزه و از بین بردن «۳۵ تروریست» خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/israel-gaza-strip-terrorists-killed/8156874.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 15628
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15628_1780496091.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 افزایش فعالیت جنگنده‌های نیروی هوایی ایران در غرب و جنوب کشور
+
+گزارش‌های رصد پروازی از فعالیت مجدد جنگنده‌ها در آسمان غرب تهران و کرج حکایت دارد. همزمان، پرواز جنگنده‌های ایرانی در جنوب غرب کشور و مناطق نزدیک به اهواز نیز گزارش شده است.
+
+همچنین دقايقي قبل دست‌کم یک فروند جنگنده F-5 تایگر II از پایگاه هوایی شهید وحدتی در خوزستان به پرواز درآمده و به سمت جنوب/جنوب شرق حرکت کرده است.
+
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
++کاملا جدی
+
+جمعی از نمایندگان مجلس در نامه‌ای به مجتبی خامنه‌ای
+خواستار افزایش برد موشک‌های جمهوری اسلامی شدند تا دفتر ترامپ در آمریکا را مورد هدف قرار گیرند
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282791
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282791_1780496092.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻کویت از دو نفر از کارکنان سفارت جمهوری اسلامی ایران را «عنصر نامطلوب» خواند و خواست ظرف ۲۴ ساعت خاک کویت را ترک کنند.
+
+وزارت امور خارجه کویت در بیانیه‌ای اعلام کرد که معاون وزیر حامد حمید یعقوبی‌فر، کاردار سفارت ایران در کویت، را احضار کرده و به او یادداشت اعتراضی رسمی داده است.
+
+در این بیانیه آمده است که این یادداشت در اعتراض به «ادامه حملات ایران» صادر شد و تصمیم دولت کویت برای کاهش تعداد اعضای سفارت ایران را به اطلاع جمهوری اسلامی رساند.
+
+تصمیم به اخراج دو کارمند سفارت ایران ساعاتی پس از حملات موشکی و پهپادی به کویت صورت گرفته است.
+
+کویت گفت در حمله ایران به فرودگاه بین‌المللی‌ شهر کویت، دست‌کم ۶۳ نفر از جمله کارکنان فرودگاه و مسافران مجروح شده‌اند و یک نفر هم کشته شده است.
+
+ساعاتی پیش وزارت دفاع کویت گفت که ۱۳ موشک و ۱۷ پهپاد شلیک‌شده از ایران را رهگیری و منهدم کرده است.
+
+📷AFP via Getty Images
+https://bbc.in/4394QkC
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: مجتبی خیلی آدم خوبیه، من واقعا دوس دارم از نزدیک ببینمش و بوسش کنم @Dirty_Kids 👻
+</div>
+
+## alonews — post 124803
+
+<div align="center">
+  <a href="telegram/content/alonews_124803_1780496093.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بارگیری نفت همچنان در خارگ ادامه دارد
+
+
+🔴تانکرترکرز: یک نفتکش غول‌پیکر برای نخستین بار در ۴ هفته گذشته در حال بارگیری نفت در جزیره خارگ دیده شده؛ با وجود این نفتکش‌ها و مخازن خشکی، وضعیت ذخیره‌سازی این کشور در شرایط بحرانی نیست.
+
+
+🔴از آغاز محاصرۀ غیرقانونی آمریکا علیه بنادر ایران، ترامپ بارها گفته لوله‌های نفتی ایران از درون منفجر خواهند شد اما با گذشت بیش از ۵۰ روز هنوز هیچ اتفاقی رخ نداده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 17:34
 ---
 
