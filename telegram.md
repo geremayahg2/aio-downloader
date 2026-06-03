@@ -7,6 +7,157 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 15:04
+---
+
+## Shin_Persian — post 6479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Open Source Intel ✓ @Osint613 Wed, 03 Jun 2026 11:01:27 UTC President Trump: “We seem to be getting along quite well with the Ayatollah. I would like to meet him. I will probably meet him at some point.” ↩️ توییت نقل‌قول شده — برای پاسخ،…
+</div>
+
+## Shin_Persian — post 6478
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Open Source Intel ✓ @Osint613
+Wed, 03 Jun 2026 11:01:27 UTC
+
+President Trump:
+
+“We seem to be getting along quite well with the Ayatollah.
+
+I would like to meet him. I will probably meet him at some point.”
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+رئیس‌جمهور ترامپ:
+
+«به نظر می‌رسد که ما بسیار خوب با آیت‌الله کنار می‌آییم.
+
+من مایل هستم با او دیدار کنم. احتمالاً در مقطعی با او دیدار خواهم کرد.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219464
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219464_1780486483.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد نخستین ابرنفتکش پس از نزدیک به یک ماه در پایانه نفتی جزیره خارک پهلو گرفته است؛ نشانه‌ای از تلاش جمهوری اسلامی برای ازسرگیری بارگیری نفت در میانه محاصره دریایی اعلام‌شده از سوی آمریکا.
+
+به نوشته بلومبرگ، سقوط شدید فعالیت بارگیری در خارک می‌تواند دو معنا داشته باشد؛ یا تهران ظرفیت نفتکش‌های در دسترس خود را زیر فشار محاصره مصرف کرده، یا بدون اطمینان از رسیدن محموله‌ها به بازار جهانی، از پر کردن کشتی‌ها خودداری کرده است.
+
+پیش از آغاز محاصره در میانه آوریل، بارگیری نفت در خارک تقریباً هر روز انجام می‌شد.
+
+بلومبرگ به نقل از سازمان «اتحاد علیه ایران هسته‌ای» نوشت در ماه مه هیچ محموله نفت خام ایران از محاصره واشینگتن عبور نکرده است.
+
+بر اساس تصاویر ماهواره‌ای سنتینل ۱ و ۲ اتحادیه اروپا، خارک از ششم مه در ۱۷ روز از ۲۶ روز رصد شده و تنها یک فاصله تصویری، میان ۲۱ تا ۲۴ مه، برای بارگیری پنهانی یک ابرنفتکش کافی بوده است.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21297
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+به نتانیاهو گفتم او کاملاً دیوانه است، چون از درگیری او با لبنان نگران بودم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282762
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282762_1780486483.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻دونالد ترامپ گفت ایران پذیرفته است که به سلاح هسته‌ای دست نیابد. رئیس‌جمهور آمریکا همچنین گفت مجتبی خامنه‌ای در مذاکرات با ایالات متحده نقش دارد.
+
+آقای ترامپ به پادکست «پاد فورس وان» درباره رهبر جمهوری اسلامی گفت: «مایلم با او دیدار کنم و احتمالا در مقطعی دیدار خواهیم کرد بسته به اینکه همه چیز خوب پیش برود.»
+
+آقای ترامپ همچنین پذیرفت که گفت‌وگوی تندی با بنیامین نتانیاهو داشته است: «بله داشتم. نمی‌گویم عصبانی بودم اما از جنگ دائمی‌اش با لبنان کمی مشوش بودم.»
+
+رئیس‌جهور آمریکا گفت با نخست‌وزیر اسرائیل خوب کنار می‌آید.
+
+وبسایت خبری اکسیوس دیروز نوشت که دونالد ترامپ در گفت‌و‌گوی تلفنی یکشنبه شب با بنیامین نتانیاهو او را «دیوانه» خوانده است: «تو ... دیوانه‌ای. اگر به‌خاطر من نبود الان در زندان بودی ... همه الان از تو متنفرند. همه به‌خاطر این موضوع از اسرائیل نفرت دارند.»
+
+این گزارش بازتاب بسیاری وسیعی به‌خصوص در اسرائیل داشت.
+
+📷AFP via Getty Images
+https://bbc.in/4fiK2hP
+
+@BBCPersian
+</div>
+
+## alonews — post 124768
+
+<div align="center">
+  <a href="telegram/content/alonews_124768_1780486484.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ما خیلی خوب با هم کار کردیم. من «بی‌بی» رو خیلی دوست دارم و همکاری خیلی خوبی باهاش داشتم
+
+
+🔴 می‌دونی، ما تو شرایطی بودیم که اون نخست‌وزیر زمان جنگه و من هم رئیس‌جمهور زمان جنگ هستم
+
+
+🔴 ولی در کل رابطه خیلی خوبی دارم. با هم خوب کار کردیم، نتیجه هم گرفته شده
+
+
+🔴 همیشه هم همین‌طوره. بدون آمریکا اصلاً نمی‌شد انجامش داد، همه اینو می‌دونن. ولی ما تونستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124767
+
+<div align="center">
+  <a href="telegram/content/alonews_124767_1780486485.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید ترامپ در تروث سوشال !
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124766
+
+<div align="center">
+  <a href="telegram/content/alonews_124766_1780486486.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سپاه : ایرانیان هرگز تسلیم شرایط ساختگی و دستاوردهای دروغین دشمن نخواهند شد.
+
+
+🔴دشمن مجبور است قوانین جدیدی را که ملت ایران و نیروهای مسلح در میدان، به ویژه در عرصه مدیریت هوشمند و کنترل تنگه هرمز تحمیل کرده‌اند، بپذیرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124765
+
+<div align="center">
+  <a href="telegram/content/alonews_124765_1780486486.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پهپاد FP-1 اوکراینی در جریان حمله امروز صبح به سن پترزبورگ دیده شد که تنها چند متر بالاتر از سطح آب در خلیج فنلاند پرواز می‌کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 14:54
 ---
 
