@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 22:45
+---
+
+## VahidOOnLine — post 243558
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243558_1780514130.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین محبی، سخنگوی سپاه پاسداران، گفت: «بررسی‌ها و تحقیقات ما درباره اصابت به ترمینال مسافربری کویت نشان می‌دهد نیروی هوافضای سپاه هیچ شلیکی به‌سوی این هدف نداشته است.»
+او افزود: «تخریب ترمینال مسافربری فرودگاه کویت ناشی از خطای سامانه‌های پاتریوت آمریکایی بوده که پس از شکست در رهگیری موشک‌های جمهوری اسلامی، بر این ترمینال فرود آمده‌اند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243557
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243557_1780514131.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در گفت‌وگو با شبکه المیادین گفت تماس‌ها با آمریکا قطع نشده، اما هیچ پیشرفتی در مذاکرات حاصل نشده است و دو طرف در حال بررسی متن‌هایی هستند که میان آن‌ها رد و بدل شده است.
+
+او افزود شرط آمریکا تسلیم بی‌قید و شرط بوده، اما چنین اتفاقی رخ نخواهد داد.
+
+عراقچی تاکید کرد در صورت حمله اسرائیل به بیروت، جمهوری اسلامی قاطعانه پاسخ خواهد داد و گفت واشینگتن ایران را ضعیف تصور می‌کرد، اما پس از تهدید به پاسخ قاطع درباره بیروت، محاسباتش را تغییر داد و در نهایت درخواست مذاکره کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: نیروی دریایی ارتش یک ناوشکن آمریکایی که قصد شرارت رو داشت رو با موشک هدف قرار دادند @withyashar 🚨🚨🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 13429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند پرند فعال شد🚨
+@withyashar
+</div>
+
+## WithYashar — post 13428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش هایی از پدافند غرب تهران 🚨
+@withyashar
+</div>
+
+## WithYashar — post 13427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: نیروی دریایی ارتش یک ناوشکن آمریکایی که قصد شرارت رو داشت رو با موشک هدف قرار دادند
+@withyashar
+🚨🚨🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 13426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨
+بچه جنگ شروع شد
+@withyashar
+</div>
+
+## WithYashar — post 13425
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13425_1780514132.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های داخلی آخرین عکسی که از حاکمان سلسله مموشیان در ایران کنار هم بودند را منتشر کردند.
+
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Vance-Rubio or Rubio-Vance?
+
+President Trump says a 2028 joint ticket between his Vice President and Secretary of State would be “very unbeatable,” praising the chemistry between two of the GOP's most prominent figures - JD Vance and Marco Rubio.
+
+“I watch them together. They get along great. They have a good relationship... I like them together.”
+</div>
+
+## FoxNewsTwitter — post 342573
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342573_1780514133.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Rubio testifies before Senate subcommittee on Trump's foreign policy agenda https://twitter.com/i/broadcasts/1qxvvvWevapxB
+</div>
+
+## FoxNewsTwitter — post 342572
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342572_1780514134.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Joe Biden crashed his wife’s book tour with an awkward question that left viewers cringing.
+
+During a stop on Jill Biden’s book tour in New York, the former president suddenly emerged from the audience and interrupted the event, asking Jill who she loves most in the world.
+
+“Whoopi,” Jill Biden replied with a laugh as moderator Whoopi Goldberg sat beside her on stage. Biden responded with a shrug.
+
+The surprise appearance came as Jill Biden continues promoting her memoir and discussing some of the most difficult moments of the 2024 campaign.
+</div>
+
+## IranIntlTV — post 340412
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340412_1780514136.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین محبی، سخنگوی سپاه پاسداران، گفت: «بررسی‌ها و تحقیقات ما درباره اصابت به ترمینال مسافربری کویت نشان می‌دهد نیروی هوافضای سپاه هیچ شلیکی به‌سوی این هدف نداشته است.»
+او افزود: «تخریب ترمینال مسافربری فرودگاه کویت ناشی از خطای سامانه‌های پاتریوت آمریکایی بوده که پس از شکست در رهگیری موشک‌های جمهوری اسلامی، بر این ترمینال فرود آمده‌اند.»
+https://iranintl.com/202606033692
+</div>
+
+## IranIntlTV — post 340411
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340411_1780514137.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در گفت‌وگو با شبکه المیادین گفت تماس‌ها با آمریکا قطع نشده، اما هیچ پیشرفتی در مذاکرات حاصل نشده است و دو طرف در حال بررسی متن‌هایی هستند که میان آن‌ها رد و بدل شده است.
+
+او افزود شرط آمریکا تسلیم بی‌قید و شرط بوده، اما چنین اتفاقی رخ نخواهد داد.
+
+عراقچی تاکید کرد در صورت حمله اسرائیل به بیروت، جمهوری اسلامی قاطعانه پاسخ خواهد داد و گفت واشینگتن ایران را ضعیف تصور می‌کرد، اما پس از تهدید به پاسخ قاطع درباره بیروت، محاسباتش را تغییر داد و در نهایت درخواست مذاکره کرد.
+https://iranintl.com/202606037865
+</div>
+
+## Persian_Trend_Official — post 15653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی قبل ناوشکن امریکایی توسط ارتش ایران مورد اصابت قرار گرفت....... 👺Phantom 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15652
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15652_1780514138.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی قبل ناوشکن امریکایی توسط ارتش ایران مورد اصابت قرار گرفت.......
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 22:34
 ---
 
