@@ -7,6 +7,281 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 20:35
+---
+
+## VahidOOnLine — post 243538
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243538_1780506320.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا گفت: «ما دیگر حملات مداوم در داخل ایران برای تضعیف توان نظامی آن انجام نمی‌دهیم، زیرا عملیات خشم حماسی پایان یافته است.»
+
+او افزود: «در پاسخ به این پرسش که چه کسی پیروز شد، می‌توانم بگویم ما پیروزی را تعریف می‌کنیم. پیروزی را نابودی پایگاه صنعتی دفاعی آن‌ها، کاهش قابل‌توجه شمار پرتابگرهای موشکی، کاهش چشمگیر ذخایر پهپادی و همچنین نابودی آنچه از نیروی هوایی آن‌ها باقی مانده بود و از بین بردن کامل نیروی دریایی متعارف آن‌ها می‌دانیم.»
+
+روبیو گفت: «همه این‌ها از بین رفته است. بنابراین من این را پیروزی می‌دانم و ما نیز چنین ارزیابی کردیم. هدف عملیات همین بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243537
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243537_1780506321.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) روز چهارشنبه ۱۳ خرداد اعلام کرد که ارتش این کشور در جریان محاصره بنادر و شناورهای ایرانی، مسیر ۱۲۵ کشتی تجاری را تغییر داده است.
+
+سنتکام در پیامی که در شبکه اجتماعی ایکس منتشر شد، افزود که برای «تضمین پایبندی» به این محدودیت‌ها، ۶ کشتی دیگر را متوقف و از کار انداخته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقامات اسرائیلی: تخمین زده می‌شود که اسرائیل در روزهای آینده به بیروت حمله کند
+@withyashar
+</div>
+
+## WithYashar — post 13410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای روبیو، وزیر خارجه آمریکا:
+
+ما دیگر حملات مداومی در داخل ایران برای تضعیف ارتش آنها انجام نمی‌دهیم، زیرا جنگ «خشم حماسی» تمام شده است.
+@withyashar
+</div>
+
+## WithYashar — post 13409
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تکذیب شد 😃🤣 خاک دوباره پس زد
+</div>
+
+## WithYashar — post 13408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غرب‌ دوباره صدا اومد 🚨 @withyashar
+</div>
+
+## WithYashar — post 13407
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غرب‌ دوباره صدا اومد 🚨
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342566
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: California tech CEO Jamshid Ghomi arrested for allegedly supplying equipment to Iranian nuclear, military programs, DOJ announces
+</div>
+
+## pm_afshaa — post 92233
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92233_1780506322.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه خبری پخش شده درباره تاریخ خاکسپاری علی خامنه‌ای ولی دفتر خامنه‌ای این اطلاعیه رو تکذیب کرد و گفت خامنه‌ای حالا حالاها دفن نمیشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92232
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92232_1780506322.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارکو روبیو، وزیر خارجه آمریکا:
+ایران هیچ گونه تخفیف تحریمی دریافت نخواهد کرد مگر اینکه غنی سازی اورانیوم و اورانیوم بسیار غنی شده رو کنار بذاره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92231
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92231_1780506323.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف: دوران تهدید بی‌هزینه ایران به پایان رسیده و هر تجاوزی با پاسخی قاطع، پشیمان‌کننده و متناسب مواجه خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340394
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340394_1780506323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال خطاب به گروهی از حامیان حکومت، موسوم به «ارزشی‌ها»، گفت: «مجتبی خامنه‌ای اگر زنده باشد هم آدم ترسویی است چون پنهان شده است.»
+</div>
+
+## IranIntlTV — post 340393
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340393_1780506325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا گفت: «ما دیگر حملات مداوم در داخل ایران برای تضعیف توان نظامی آن انجام نمی‌دهیم، زیرا عملیات خشم حماسی پایان یافته است.»
+
+او افزود: «در پاسخ به این پرسش که چه کسی پیروز شد، می‌توانم بگویم ما پیروزی را تعریف می‌کنیم. پیروزی را نابودی پایگاه صنعتی دفاعی آن‌ها، کاهش قابل‌توجه شمار پرتابگرهای موشکی، کاهش چشمگیر ذخایر پهپادی و همچنین نابودی آنچه از نیروی هوایی آن‌ها باقی مانده بود و از بین بردن کامل نیروی دریایی متعارف آن‌ها می‌دانیم.»
+
+روبیو گفت: «همه این‌ها از بین رفته است. بنابراین من این را پیروزی می‌دانم و ما نیز چنین ارزیابی کردیم. هدف عملیات همین بود.»
+https://iranintl.com/202606034979
+</div>
+
+## IranIntlTV — post 340392
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340392" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | چهارشنبه ۱۳ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340391
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340391_1780506325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در سالگرد مرگ خمینی، خامنه‌ای هنوز دفن نشده است. سرداران سپاه و مجتبی نیز، با رد پیشنهادهای توافق، همان مسیری را می‌روند که خمینی و خامنه‌ای رفتند؛ مسیر انزوا، تقابل و حفظ نظام، به بهای معیشت مردم.
+
+به نظر شما، خمینی و خامنه‌ای چه گلی به سر ایران زدند؟
+
+اگر خمینی هرگز وجود نداشت، ایران امروز چه شکلی بود؟ اگر در سال ۵۷ اینترنت و شبکه‌های اجتماعی وجود داشت، باز هم انقلاب می‌شد؟
+
+خمینی و خامنه‌ای چه چیزی به ایران دادند که حالا مجتبی بخواهد همان مسیر را ادامه دهد؟
+
+«برنامه» صدای شماست.
+
+اگر در ایران به اینترنت دسترسی دارید، روی خط بیایید. ما شما را، بدون نوبت، مستقیم از ایران روی آنتن می‌آوریم.
+
+روایت خودتان را ثبت کنید؛ چون تاریخ با صدای مردم نوشته می‌شود.
+
+برای شرکت در «برنامه»، همین حالا در واتس‌اپ پیام بدهید:
+
+۰۰۴۴۷۵۲۲۱۱۰۱۱۰
+
+۰۰۴۴۷۵۴۴۱۱۰۱۱۰
+
+۰۰۴۴۷۵۱۱۱۰۲۵۵۳
+
+«برنامه با کامبیز حسینی»
+
+«یک ایران صدای شما را می‌شنود»
+
+@iranintltv
+</div>
+
+## FarsiVOA — post 219492
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنتکام درباره محاصره دریایی جمهوری اسلامی: ۱۲۵ شناور را وادار به تغییر مسیر و ۶ کشتی را غیرفعال کرده‌ایم
+
+▪️سنتکام، در یک به‌روز‌رسانی تازه درباره محاصره دریایی جمهوری اسلامی، از افزایش تعداد شناورهایی که در جریان این عملیات وادار به تغییر مسیر شده‌اند خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/centcom-iranian-regime-naval-blockade/8156925.html/?nocach=1
+</div>
+
+## FarsiVOA — post 219491
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار نتانیاهو به رژیم ایران: با آتش بازی می‌کنید
+
+▪️نخست‌وزیر اسرائیل وضعیت آتش‌بس جاری با جمهوری اسلامی را سیال توصیف کرد و نسبت به تشدید تنش‌ها هشدار داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/benjamin-netanyahu-donuld-trump-aggrement-ceasefire-/8156911.html/?nocach=1
+</div>
+
+## Persian_Trend_Official — post 15646
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15646_1780506326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: دوران تهدید بی‌هزینۀ ایران به پایان رسیده، هر تجاوزی با پاسخی پشیمان‌کننده مواجه خواهد شد!
+
+رئیس مجلس شورای اسلامی در پیامی به مناسبت 14 خرداد: امام خمینی به ملت ایران آموخت که در برابر زورگویی و سلطه‌طلبی عقب‌نشینی نکند، ملت ایران نشان داد که دوران تهدید بی‌هزینه ایران به پایان رسیده و هر تجاوزی با پاسخی قاطع، پشیمان‌کننده و متناسب مواجه خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 124868
+
+<div align="center">
+  <a href="telegram/content/alonews_124868_1780506327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقامات اسرائیلی: تخمین زده می‌شود که اسرائیل در روزهای آینده به بیروت حمله کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124867
+
+<div align="center">
+  <a href="telegram/content/alonews_124867_1780506327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قدیری‌ابیانه: نتانیاهو فیلم تجاوز ترامپ به دختربچه‌های کوچک را دارد!
+
+
+🔴علت جنگ آمریکا علیه ایران این است که نتانیاهو علیه ترامپ آتو دارد و فیلم تجاوز ترامپ به دختربچه‌های کوچک را دارد و نتانیاهو این را اهرم فشار علیه ترامپ قرار داده تا هر کاری اسرائیل می‌خواهد، آمریکا انجام دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124866
+
+<div align="center">
+  <a href="telegram/content/alonews_124866_1780506327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو: تحریم‌های ایران کاهش نخواهد یافت، مگر اینکه غنی‌سازی اورانیوم و اورانیوم با غنای بالا را کنار بگذارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 20:25
 ---
 
