@@ -7,6 +7,182 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 13:44
+---
+
+## VahidOOnLine — post 243489
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243489_1780481664.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه جمهوری اسلامی روز چهارشنبه ۱۳ خرداد با انتشار بیانیه‌ای، بحرین و کویت را در حملات بامداد چهارشنبه به یک نفتکش «ایرانی» در تنگه هرمز و یک دکل مخابرانی در قشم را، مسئول مستقیم معرفی کرد.
+
+این بیانیه ساعاتی پس از حملات پهپادی و موشکی سپاه پاسداران به «اهدافی» در کویت و بحرین منتشر شد. سنتکام می‌گوید برخلاف ادعای نیروهای مسلح جمهوری اسلامی پایگاه ناوگان پنجم نیروی دریایی آمریکا در بحرین آسیب ندیده است. کویت اعلام کرد ترمینال یک فرودگاه بین‌المللی این کشور به‌شدت آسیب دیده است.
+
+در این بیانیه ابتدا بدون ذکر نام کویت و بحرین «دو کشور منطقه» مبدا این حملات اعلام شدند و پس از آن بر نقش این دو کشور خلیج فارس تاکید شده است.
+
+وزارت خارجه جمهوری اسلامی بار دیگر در همین بیانیه آورده است که «هر کشوری که به طرف‌های متجاوز اجازه استفاده از قلمروی خاکی، دریایی و هوایی یا پایگاه مستقر در قلمروش را برای حمله به ایران بدهد» مرتکب «عمل تجاوزکارانه علیه ایران» شده و نیروهای مسلح «حق هدف قرار دادن منبع و مبدا این حملات» را دارند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13363
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13363_1780481665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره‌ای مربوط به دیروز ، آخرین موقعیت ناو هواپیمابر آبی خاکی یو‌اس‌اس تریپولی (LHA 7) را نشان می‌دهد که بسیار جلو و در نزدیکی رأس الحد عمان آمده!!!🚨
+@withyashar
+</div>
+
+## pm_afshaa — post 92207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت امور خارجه کویت:حمله ایران به فرودگاه کویت منجر به مرگ یک نفر و زخمی شدنه چندین نفر شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💀
+🚨 بر اساس آماری که منابع موثق از داخل ایران به دژ رسانده‌اند دست‌کم ۱۳۵ نفر از پرسنل ارتش از گروه ۴۴ توپخانه و پایگاه هشتم شکاری در جنگ ۴۰ روزه کشته شده‌اند.
+
+گروه ۸۸ توپخانه بامداد ۸ فروردین ۱۴۰۵ هدف قرار گرفت. تعدادی از پرسنل این یگان نیز به عنوان تامین اطراف تاسیسات اصفهان مستقر بودند که هدف بمباران قرار گرفتند.
+
+پایگاه هشتم شکاری اصفهان نیز در طول جنگ بارها بمباران شد.
+براساس همین اطلاعات ۷۰ نفر از پرسنل گروه ۴۴ توخانه و ۶۵ نفر از پرسنل نیروی هوایی در پایاه هشتم شکاری کشته شدند. جسد برخی از آنها اصلأ پیدا نشد.
+
+#جنگ #ارتش
+@DEJradio
+</div>
+
+## DEJradio — post 5283
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5283_1780481666.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ یک کشته در حمله سـ.ـپاه به فرودگاه کویت
+
+وزارت خارجه کویت روز چهارشنبه ۱۳ خرداد ۱۴۰۵ اعلام کرد در حمله سـ.ـپاه پاسداران به فرودگاه کویت یک نفر کشته شده است.
+
+پیش تر اعلام شده بود که در این حملات چهار نفر زخمی شدند. کویت اعلام کرد روز چهارشنبه پروازهای تجاری را تعلیق کرده است.
+
+#کویت
+@DEJradio
+</div>
+
+## Shin_Persian — post 6467
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6467_1780481668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Andy @andynovy
+Wed, 03 Jun 2026 09:31:58 UTC
+
+Approx location of Iranian strike on Kuwait International Airport Terminal
+
+C: 29.240227, 47.971233
+S: https://x.com/RoaaWarStudies/status/2062102651307737220
+
+@GeoConfirmed @FaytuksNetwork @EpicFuryMap
+
+فارسی
+
+محل تقریبی حمله ایران به ترمینال فرودگاه بین‌المللی کویت
+
+C: 29.240227, 47.971233
+S: https://x.com/RoaaWarStudies/status/2062102651307737220
+
+@GeoConfirmed @FaytuksNetwork @EpicFuryMap
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6463
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6463_1780481668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: رؤى لدراسات الحرب ✓ @RoaaWarStudies Wed, 03 Jun 2026 09:22:38 UTC لدي استفسار ⁉️‼️ ألم تقل القيادة المركزية الأمريكية إنها أسقطت بنجاح جميع الصواريخ التي استهدفت القواعد الأمريكية في الكويت؟؟ حسنا لماذا لا تحمي أيضا المنشآت المدنية الكويتية…
+</div>
+
+## Shin_Persian — post 6462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+رؤى لدراسات الحرب ✓ @RoaaWarStudies
+Wed, 03 Jun 2026 09:22:38 UTC
+
+لدي استفسار ⁉️‼️
+
+ألم تقل القيادة المركزية الأمريكية إنها أسقطت بنجاح جميع الصواريخ التي استهدفت القواعد الأمريكية في الكويت؟؟
+
+حسنا لماذا لا تحمي أيضا المنشآت المدنية الكويتية من الهجمات الإيرانية؟
+
+هذا حال مطار الكويت الدولي!
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+I have an inquiry ⁉️‼️
+
+Didn’t the US Central Command (CENTCOM) say that it successfully intercepted all the missiles targeting US bases in Kuwait??
+
+Well, why does it not also protect Kuwaiti civilian facilities from Iranian attacks?
+
+This is the state of Kuwait International Airport!
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 282757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل: پرتابه شلیک شده از لبنان را رهگیری کردیم
+
+🔻ارتش اسرائیل گفت یک شیء پرنده متخاصم را که از لبنان وارد اسرائیل شده بود، رهگیری کرده است.
+
+این اولین حمله هوایی از این نوع است که ارتش اسرائیل در بیش از ۲۴ ساعت گذشته گزارش کرده است.
+
+ارتش اسرائیل اعلام کرد: «در پی نفوذ یک شیء پرنده متخاصم در مناطق مناره و کریات شامونه، هدف هوایی مشکوک که از لبنان وارد اسرائیل شده بود رهگیری شد.»
+
+مقام‌های اسرائیلی هشدار داده‌اند که در صورت شلیک موشک‌های حزب‌الله به سمت شمال اسرائیل، به ضاحیه در جنوب بیروت حمله خواهند کرد، موضعی که به گفته آنها از حمایت واشنگتن برخوردار است.
+
+https://bbc.in/4foK8EM
+@BBCPersian
+</div>
+
+## alonews — post 124740
+
+<div align="center">
+  <a href="telegram/content/alonews_124740_1780481670.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر حمل‌ونقل ترکیه: ۹ کشتی ترکیه ای در تنگه هرمز قرار دارد که ۷ فروند آن درخواست خروج داده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 13:34
 ---
 
