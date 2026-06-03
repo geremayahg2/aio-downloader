@@ -7,6 +7,129 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 09:43
+---
+
+## FoxNewsTwitter — post 342549
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342549_1780467216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"People just want the truth..."
+
+LA mayoral candidate Spencer Pratt shares what he's learned from his campaign, and why the race has become personal for him as he awaits election results:
+
+"All I do is just speak from the heart, and I try to be as true to my authentic self and express how I feel about what I see and what other people see."
+
+"I know what people want now. They want somebody to speak the truth for their communities and fight for them."
+</div>
+
+## FarsiVOA — post 219441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بلومبرگ: آمریکا بی‌سروصدا در حال باز کردن مسیر هرمز است
+
+▪️بلومبرگ گزارش داد یک ماه پس از آنکه دونالد ترامپ طرحی علنی برای اسکورت کشتی‌های تجاری در تنگه هرمز اعلام کرد و سپس آن را کنار گذاشت، ارتش آمریکا اکنون روش‌هایی کم‌صداتر را برای حفاظت از کشتی‌ها در این آبراه حیاتی آزمایش می‌کند.
+
+▪️بر اساس این گزارش، واشنگتن به‌جای اعلام یک چالش آشکار علیه تهران، به‌طور غیرعلنی با شرکت‌های کشتیرانی هماهنگ می‌کند؛ شرکت‌هایی که حاضرند برای عبور از هرمز، مسیر و شیوه حرکت خود را تغییر دهند.
+
+▪️طرح تازه آمریکا نه اسکورت رسمی است و نه عقب‌نشینی از هرمز؛ بلکه نسخه‌ای کم‌صداتر و عملیاتی‌تر برای باز کردن مسیر عبور تجاری، بدون تبدیل آن به رویارویی علنی با تهران است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/us-looks-to-unblock-hormuz-with-quiet-version-of-project-freedom/8156777.html
+</div>
+
+## Persian_Trend_Official — post 15593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ فارس:
+
+احتمال شنیدن صدای انفجارهای کنترل‌شده در دزفول
+
+فرمانداری دزفول: درپی امحای مهمات از ساعت ۱۰ تا ۱۲، احتمال شنیدن صدای انفجار وجود دارد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15592
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15592_1780467218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سنتکام:
+
+«موج دیگری از پهپادهای ایرانی که تلاش داشتند به نیروهای آمریکا در کویت حمله کنند، امشب نتوانست به اهداف موردنظر اصابت کند. پدافند هوایی فرماندهی مرکزی ایالات متحده با موفقیت چندین پهپاد را سرنگون کرد و اطمینان حاصل شد که هیچ‌یک از پرسنل یا تجهیزات آمریکایی آسیب ندیده‌اند.»
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15591
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15591_1780467218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سنتکام:
+
+🚫 ادعا: سپاه پاسداران انقلاب اسلامی مدعی شده است که امروز با استفاده از موشک‌ها و پهپادها، مقر ناوگان پنجم نیروی دریایی آمریکا در بحرین و یک پایگاه هوایی آمریکا در منطقه را هدف قرار داده و مورد اصابت قرار داده است. نادرست.
+
+✅ واقعیت: تمامی حملات ایران علیه نیروهای آمریکایی ناکام ماند. نیروهای ایالات متحده همچنان در حالت هوشیاری کامل قرار دارند و آماده‌اند در برابر آنچه «اقدامات تهاجمی و غیرموجه ایران» توصیف شده است، از خود دفاع کنند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنتکام:
+در پاسخ به حملات جمهوری اسلامی، به اهدافی در جزیره قشم حمله کردیم.
+موج دیگری از حمله پهپادی جمهوری اسلامی علیه نیروهای آمریکا در کویت ناکام مانده و هیچ آسیبی به نیروها یا تجهیزات آمریکایی وارد نشده.
+سنتکام همچنین ادعاهای جمهوری اسلامی درباره هدف گرفتن مقر ناوگان پنجم در بحرین رو تکذیب کرد.
+
+@IranianMinds
+</div>
+
+## alonews — post 124681
+
+<div align="center">
+  <a href="telegram/content/alonews_124681_1780467218.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک پست: خلبانی که در ایران سقوط کرد و‌ نجات یافت همان خلبانی بوده که در کویت و بر اثر آتش خودی سقوط کرده بود. دو سقوط در ۴ هفته!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124680
+
+<div align="center">
+  <a href="telegram/content/alonews_124680_1780467219.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله گسترده روسیه به کی‌اف و دیگر مناطق اوکراین دست‌کم ۲۲کشته و بیش از ۱۰۰زخمی برجای گذاشت و هزاران نفر به مترو پناه بردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 09:34
 ---
 
