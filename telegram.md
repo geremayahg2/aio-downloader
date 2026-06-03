@@ -7,6 +7,235 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 19:34
+---
+
+## VahidOOnLine — post 243531
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243531_1780502699.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ روبیو در مجلس نمایندگان:
+به پیروزی نظامی علیه جمهوری اسلامی دست یافتیم
+
+♦️مارکو روبیو، وزیر امور خارجه آمریکا، در نشست کمیته امور خارجی مجلس نمایندگان آمریکا در روز چهارشنبه ۱۳ خرداد گفت: «ما پیروزی را این‌گونه تعریف کرده بودیم: نابودی زیرساخت و توانمندی‌های صنایع دفاعی جمهوری اسلامی، کاهش چشمگیر تعداد پرتابگرهای موشکی که در اختیار دارند و همچنین کاهش قابل‌توجه ذخایر پهپادی آنها.»
+روبیو افزود: «ما به تمامی این اهداف دست یافتیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243530
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243530_1780502701.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد از ابتدای محاصره دریایی بنادر ایران تاکنون ۱۲۵ کشتی تجاری مجبور به تغییر مسیر شده‌اند و شش کشتی نیز توسط نیروهای آمریکایی از کار انداخته شده‌اند.
+پیش‌تر سنتکام با انتشار ویدیویی در ایکس از هدف قرار دادن یک نفتکش خالی از محموله که در حال حرکت به سوی جزیره خارک در خلیج فارس بود، خبر داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92230
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92230_1780502701.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارکو روبیو، وزیر خارجه آمریکا:
+ما دیگر حملات مداومی در داخل ایران برای تضعیف ارتش آنها انجام نمیدیم، چون جنگ «خشم حماسی» تمام شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92229
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92229_1780502702.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلنسکی: من آماده مذاکرات مستقیم با پوتین برای پایان دادن به این جنگ هستم، نه اینکه در صف بمونم تا تمام درگیری‌های جهان تمام بشه و بعد نوبت ما برسه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340383
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340383_1780502702.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌‌اینترنشنال، لحظه کشته شدن جاویدنام سعید اسکندری را درون پارکینگ خانه‌ای در شرق تهران نشان می‌دهد. اسکندری، ۶۴ ساله، شامگاه ۱۸ دی ۱۴۰۴ در فلکه سوم تهرانپارس هدف گلوله جنگی ماموران قرار گرفت.
+</div>
+
+## IranIntlTV — post 340382
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340382_1780502704.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد از ابتدای محاصره دریایی بنادر ایران تاکنون ۱۲۵ کشتی تجاری مجبور به تغییر مسیر شده‌اند و شش کشتی نیز توسط نیروهای آمریکایی از کار انداخته شده‌اند.
+پیش‌تر سنتکام با انتشار ویدیویی در ایکس از هدف قرار دادن یک نفتکش خالی از محموله که در حال حرکت به سوی جزیره خارک در خلیج فارس بود، خبر داد.
+https://iranintl.com/202606037009
+</div>
+
+## IranianMinds — post 21326
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21326_1780502705.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عراقچی:
+
+نیروهای مسلح ما در حال انجام حملات دفاعی به اهدافی هستند که آمریکا از آن‌ها برای حمله به کشتی‌های غیرنظامی و نقض آتش‌بس استفاده می‌کند.
+
+«هر اقدام خصمانه‌ای با پاسخی فوری و قاطع روبه‌رو خواهد شد.
+
+آنچه تحریم‌ها و جنگ نتوانستند به دست آورند، با جنگ بیشتر هم به دست نخواهد آمد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21325
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21325_1780502705.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فقط 
+4️⃣ روز فرصت باقی مونده
+🔴
+
+🎉 500 هزارتومن بونوس رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+😮 تنها سایتی که با عضویت بدون واریز 500,000 تومان شارژ بی قیدو شرط میده #وینرو هست
+💰
+
+
+7️⃣
+1️⃣ خرداد، افتتاحیه سایت با جوایز بزرگ
+🔥
+
+
+👑 #معتبرترین سایت ایرانی 
+⬇️
+
+🌐 Winro.io
+
+🌐 Winro.io
+
+📱کانال اخبار و هدایا Sg13 
+🎁
+
+📱 @winro_io
+</div>
+
+## alonews — post 124839
+
+<div align="center">
+  <a href="telegram/content/alonews_124839_1780502706.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این فقط بخشی از جنایت حکومت در 18 و 19 دی هستش.
+
+
+🔴هرکدام از این جاویدنام ها عزیز یک خانواده هستن.
+
+
+🤔عرزشی حرام زاده از عدل علی بگو
+
+
+✅@AloNews
+</div>
+
+## alonews — post 124838
+
+<div align="center">
+  <a href="telegram/content/alonews_124838_1780502706.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: تاریخ برگزاری آئین وداع، تشییع و خاکسپاری آیت الله خامنه ای اعلام شد
+
+
+🔴۲۰، ۲۱، ۲۲ خرداد/ وداع در حرم امام‌ خمینی
+
+🔴۲۳ خرداد/ تشییع در تهران
+
+🔴۲۴ خرداد/ تشییع در قم
+
+🔴۲۵ خرداد/ تشییع در عراق
+
+🔴۲۶ خرداد (اول محرم)/ تشییع و خاکسپاری در مشهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124837
+
+<div align="center">
+  <a href="telegram/content/alonews_124837_1780502707.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : نباید ایران تهدیدی برای اسرائیل، خاورمیانه و آمریکا نباشه؛
+
+
+🔴سلاح هسته‌ای نسازه و ابزار حمل اون رو هم نداشته باشه؛
+
+
+🔴نه فقط علیه اسرائیل یا پایتخت‌های اروپا، بلکه علیه شهرهای آمریکا هم
+
+
+🔴 این هدف مشترک ماست، برای همین وارد این مسیر شدیم. همچنین می‌خوایم دایره صلح رو گسترش بدیم؛
+
+
+🔴همون‌طور که من و رئیس‌جمهور با هم در چارچوب توافق‌های ابراهیم انجام دادیم.
+
+
+🔴پس هدف مشترک داریم. گاهی هم، مثل هر خانواده‌ای، روی تاکتیک‌ها اختلاف‌نظر پیش میاد. اما همیشه راهی برای حلش پیدا می‌کنیم
+
+
+🔴 ما به‌عنوان دوستان نزدیک این کار رو انجام می‌دیم؛ ممکنه صبح با هم اختلاف داشته باشیم، ولی عصر به یک اقدام مشترک برسیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124836
+
+<div align="center">
+  <a href="telegram/content/alonews_124836_1780502707.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره به نقل از رئیس ستاد کل ارتش اسرائیل: آماده‌ایم فوراً به جنگ علیه ایران بازگردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124833
+
+<div align="center">
+  <a href="telegram/content/alonews_124833_1780502707.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنگنده‌های اسرائیل ساعاتی پیش مناطق «باریش»، «تولین»، «الطویری»، «صریفـا» و «الحنیه» در جنوب لبنان را هدف قرار دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 19:24
 ---
 
