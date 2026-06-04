@@ -7,6 +7,45 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 01:12
+---
+
+## IranIntlTV — post 340574
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340574_1780609343.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرعامل ایرانی یک شرکت فناوری در کالیفرنیا به اتهام همکاری با جمهوری اسلامی بازداشت شد. او متهم است بیش از ۲۵۰ تُن تجهیزات شبکه ساخت آمریکا را با استفاده از شرکت‌های پوششی به ایران منتقل کرده که بخشی از آن به نهادهای نظامی و هسته‌ای رسیده است.
+
+نیلوفر منصوری گزارش می‌دهد.
+@iranintltv
+</div>
+
+## BBCPersian — post 282884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 خانواده مرجان ساتراپی، خالق رمان پرسپولیس، می‌گویند او از اندوه جان باخت؛ این غم جانکاه از کجا نشات گرفت؟
+
+گزیده‌هایی از گفتگوی سرور کسمایی، نویسنده و از دوستان مرجان ساتراپی را با پریزاد نوبخت ببینید.
+
+@BBCPersian
+</div>
+
+## alonews — post 125188
+
+<div align="center">
+  <a href="telegram/content/alonews_125188_1780609345.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت جدید اتاق جنگ اسرائیل: ⌛️
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 01:02
 ---
 
