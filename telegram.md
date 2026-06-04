@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 18:35
+---
+
+## VahidOOnLine — post 243675
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243675_1780585540.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی آغاز کارزار مردمی کشف حقیقت، فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال، بر اساس گزارش‌های رسیده به موضوع کشته‌شدن جاویدنام امیر عباس پرداخته است که شامگاه ۱۸ دی در جریان اعتراضات شهر رشت، به دست نیروهای سرکوبگر جمهوری اسلامی به قتل رسید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13496
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13496_1780585544.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلیسای کاتولیک یک جن‌گیر را پس از ارتباط دادن مشاهده‌های یوفو با فعالیت‌های شیطانی برکنار کرد،.
+جن‌گیر مشهور و قدیمی کاتولیک، استیون روزتی، گفت به باور شخصی او بسیاری از مشاهده‌های یوفو ممکن است ماهیتی شیطانی داشته باشند ! وی علاوه بر آن روان‌شناس نیز هست. به همین دلیل وقتی او درباره یوفوها صحبت می‌کند، سخنانش بیشتر از یک فرد عادی مورد توجه قرار می‌گیرد
+اسقف‌نشین کاتولیک واشینگتن این اظهارات را مغایر با رویکرد رسمی کلیسا دانست و روزتی از سمت جن‌گیر رسمی برکنار شد و همکاری کلیسا با مرکز معنوی او نیز قطع گردید.
+روزتی بعداً عذرخواهی کرد و بر تبعیت از آموزه‌های رسمی کلیسا تأکید نمود.
+این ماجرا بحث قدیمی درباره ارتباط احتمالی یوفوها، موجودات فرازمینی و پدیده‌های ماورایی را دوباره مطرح کرده است
+@withyashar
+</div>
+
+## mwarmonitor — post 10143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مدیرکل آژانس بین‌المللی انرژی اتمی از ایران می‌خواهد به‌طور کامل همکاری کند، درباره سرنوشت اورانیوم غنی‌شده‌اش پس از بمباران‌های سال گذشته توضیح دهد و اجازه دهد بازرسی‌های کامل از سر گرفته شود — رویترز
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342604
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342604_1780585544.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Blanche, Patel hold press conference on federal actions in Ohio
+https://twitter.com/i/broadcasts/1jGXggyMwEjKZ
+</div>
+
+## FoxNewsTwitter — post 342603
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342603_1780585545.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: John Bolton is set to plead guilty over his mishandling of classified documents.
+
+The former Trump national security adviser will plead guilty to retaining classified information after his home and office were raided last year on August 22.
+</div>
+
+## FoxNewsTwitter — post 342602
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342602_1780585547.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Former National Security Advisor John Bolton to plead guilty to retaining classified information, two sources confirm to Fox News
+</div>
+
+## IranIntlTV — post 340530
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340530_1780585548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی آغاز کارزار مردمی کشف حقیقت، فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال، بر اساس گزارش‌های رسیده به موضوع کشته‌شدن جاویدنام امیر عباس پرداخته است که شامگاه ۱۸ دی در جریان اعتراضات شهر رشت، به دست نیروهای سرکوبگر جمهوری اسلامی به قتل رسید.
+</div>
+
+## IranIntlTV — post 340529
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340529_1780585551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در واکنش به تصویب قطعنامه مجلس نمایندگان آمریکا درباره محدود کردن اختیارات جنگی در قبال جمهوری اسلامی، این اقدام را «بی‌معنی» توصیف کرد و گفت دموکرات‌ها به «سندرم جنون ترامپ» مبتلا هستند.
+
+جزییات بیشتر با سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15700
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15700_1780585554.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمرا بزارم این حماسه رو فراموش کنید !
+
+جالبه همه فرماندهین نخبه که در این گزارش بودند دیگر نیستند
+احتمالا به همین نوع تاکتیک های خاص از جان خودشون هم دفاع میکردن ...
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157896
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157896_1780585557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سپاه پاسداران روز پنجشنبه ۱۴ خرداد اعلام کرد تا زمان عقب‌نشینی اسرائیل از لبنان «هیچ آرامشی در منطقه برقرار نخواهد شد».
+
+🔸در حالی که طرح آتش‌بس میان لبنان و اسرائیل با میانجی‌گری آمریکا اعلام شده است، حملات اسرائیل به جنوب لبنان و شلیک پهپادهای حزب‌الله به شمال اسرائیل همچنان ادامه دارد.
+
+🔸سپاه پاسداران در بیانیه خود تأکید کرده است: «شرط اولیه ما برای پذیرش آتش‌بس در جنگ منطقه‌ای، آتش‌بس در تمامی جبهه‌ها از جمله لبنان بوده است.»
+
+🔸این شرط ایران که قبلا نیز اعلام شده، از جمله دلایلی است که مذاکرات برای رسیدن به توافق صلح با آمریکا را پیچیده کرده است.
+
+🔸ساعتی پیش دبیرکل حزب‌الله لبنان نیز طرح آتش‌بس میان لبنان و اسرائیل را رد کرد و تهدید کرد اگر حملات اسرائیل به روستاهای جنوب لبنان ادامه یابد، این گروه نیز شمال اسرائیل را هدف قرار خواهد داد.
+
+🔸این در حالی است که رئیس‌جمهور لبنان این توافق را «آخرین فرصت» خواند و گفت آتش‌بس ممکن است ظرف ۲۴ ساعت آینده آغاز شود.
+
+@RadioFarda
+</div>
+
+## alonews — post 125076
+
+<div align="center">
+  <a href="telegram/content/alonews_125076_1780585557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوش چشم کارشناس صداوسیما: به نظرم جنگ تموم شده و دشمنان دیگه جرأت حمله ندارن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 18:24
 ---
 
