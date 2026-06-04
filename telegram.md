@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 23:35
+---
+
+## VahidOOnLine — post 243713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رسانه‌های داخلی ایران پنجشنبه‌شب ۱۴ مردادماه تصاویری از اجرای زنده قیصر، خواننده ساکن لس‌آنجس در میدان انقلاب تهران را منتشر کردند.
+
+قیصر در این مراسم که به‌مناسبت عید غدیر و با حضور جمعی از حامیان حکومت برگزار شد، قطعه «تهران» را اجرا کرد.
+حاضران، همزمان با این اجرا پرچم‌های جمهوری اسلامی و حزب‌الله را تکان می‌دادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عربی:ظاهرا چراغ سبز برای بمباران حومه شهر بیروت گرفته شده است
+@withyashar
+</div>
+
+## mwarmonitor — post 10152
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10152_1780603517.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️• یک فروند هواپیمای ترابری سنگین C-5M Super Galaxy نیروی هوایی آمریکا اکنون از پایگاه هوایی الظفره در ابوظبی در حال پرواز است.
+
+✈️• دو فروند هواپیمای ترابری راهبردی C-17 Globemaster III نیروی هوایی آمریکا از پایگاه هوایی العدید در قطر و پایگاه هوایی شیخ عیسی در بحرین در حال پرواز هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10151
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10151_1780603518.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️گزارش‌ها حاکی است که تعداد زیادی از هواپیماهای ترابری راهبردی C-17 Globemaster III نیروی هوایی ایالات متحده اکنون از خاورمیانه به سمت اروپا در حال پرواز هستند.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 340566
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340566_1780603518.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور رهبر جمهوری اسلامی، پنج‌شنبه در مصاحبه‌ای با صداوسیمای جمهوری اسلامی اعلام کرد که پیش‌نویس فعلی تفاهم‌نامه در حال مذاکره برای پایان دادن به جنگ میان ایران و ایالات متحده دارای ابهاماتی است که باید روشن شوند.
+
+رضایی افزود که ترامپ تلاش می‌کند حکومت ایران را تحت فشار قرار دهد تا شرایط او را بپذیرد و شرایط تهران را در وضعیتی مبهم نگه دارد.
+
+مشاور مجتبی خامنه‌ای همچنین پیشتر به صداوسیما گفت که آمریکا منتظر «چراغ سبز» جمهوری اسلامی است و تهران تا به «همه حقوق‌» خود دسترسی پیدا نکند، این چراغ سبز را به هیچ کسی نشان نخواهد داد.
+https://iranintl.com/202606047780
+</div>
+
+## FarsiVOA — post 219609
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219609_1780603519.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نازیلا گلستان در برنامه تفسیر خبر: «ولایت فقیه» امروز حتی صدا هم ندارد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219608
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219608_1780603520.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکریا برادوست: سالگرد مرگ خمینی در حالی که جنازه خامنەای بر دست جمهوری اسلامی مانده، برگزار می‌شود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار تازه آژانس در مورد برنامه هسته‌ای جمهوری اسلامی
+
+▪️نهاد ناظر هسته‌ای سازمان ملل متحد روز پنجشنبه ۱۴ خرداد، گزارشی را برای کشورهای عضو ارسال کرد که در آن هیچ تغییر عمده‌ای در نگرانی‌های این نهاد از برنامه هسته‌ای جمهوری اسلامی نسبت به دوران پیش از جنگ اخیر دیده نمی‌شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/first-iaea-report-irans-nuclear-programme-since-february-shows-little-change/8157353.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/lfZfeBuNAT4?feature=share»
+</div>
+
+## Persian_Trend_Official — post 15717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+23:30 دقیقه لایو آغاز میشه
+</div>
+
+## IranianMinds — post 21394
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21394_1780603520.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحرکات سنگین سوخت رسان های آمریکایی در منطقه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید:
+
+هر کسی که معتقد است دولت ایران دست بالا را دارد، اشتباه می‌کند یا سخنگوی سپاه پاسداران است
+
+@IranianMinds
+</div>
+
+## alonews — post 125163
+
+<div align="center">
+  <a href="telegram/content/alonews_125163_1780603521.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ کرملین اعلام کرد: نامه زلنسکی به دست پوتین رسیده است.
+
+
+🔴اگر زلنسکی می‌خواهد با پوتین ملاقات کند، می‌تواند به مسکو بیاید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 23:25
 ---
 
