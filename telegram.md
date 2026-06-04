@@ -7,6 +7,48 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 04:06
+---
+
+## VahidOOnLine — post 243593
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243593_1780533373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مجلس نمایندگان آمریکا روز چهارشنبه ۱۳ خرداد با طرح اختیارات جنگی موافقت کرد؛ طرحی که هدف آن توقف اقدامات نظامی آمریکا علیه ایران است و برای نخستین بار با وجود مخالفت دونالد ترامپ، از مجلس نمایندگان عبور کرد.
+به گزارش آسوشیتدپرس، این طرح با ۲۱۵ رای موافق در برابر ۲۰۸ رای مخالف تصویب شد و چهار نماینده جمهوری‌خواه نیز در رای‌گیری به دموکرات‌ها پیوستند؛ اتفاقی که به‌عنوان نشانه‌ای از افزایش مخالفت‌ها با ادامه جنگ تعبیر شده است.
+دموکرات‌ها پس از هفت تلاش ناموفق، سرانجام در هشتمین رای‌گیری موفق شدند این طرح را در مجلس نمایندگان تصویب کنند. این مصوبه اکنون به سنا می‌رود؛ جایی که ماه گذشته چند سناتور جمهوری‌خواه نیز از طرح مشابهی حمایت کرده بودند، اما هنوز رای‌گیری نهایی انجام نشده است.
+این طرح به‌طور فوری جنگ را متوقف نمی‌کند، اما در صورت تبدیل شدن به قانون، رییس جمهوری آمریکا برای ادامه عملیات نظامی علیه ایران نیازمند دریافت مجوز رسمی کنگره خواهد بود. در صورت تصویب سنا، این مصوبه برای امضا به کاخ سفید ارسال می‌شود؛ جایی که دونالد ترامپ اختیار وتوی آن را دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342586
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342586_1780533374.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Israel and Lebanon have agreed to a ceasefire in a major U.S.-brokered diplomatic breakthrough.
+
+The agreement was reached after days of negotiations led by the Trump administration, with both countries committing to halt hostilities and continue direct talks aimed at a broader peace deal.
+
+The ceasefire remains conditional on Hezbollah ending attacks, withdrawing fighters from southern Lebanon, and preventing the return of armed groups to the area.
+</div>
+
+## FarsiVOA — post 219537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️لنزهایی که می‌توانند آینده فناوری‌های پوشیدنی را تغییر دهند؛ از نمایش واقعیت افزوده و اتصال به اینترنت تا پایش سلامت بدن - همه روی چشم. آیا این فناوری جای موبایل و عینک‌های هوشمند را می‌گیرد؟ گزارشی از تازه‌ترین پیشرفت‌ها و چالش‌ها.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 03:55
 ---
 
