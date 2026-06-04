@@ -7,6 +7,133 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 00:22
+---
+
+## WithYashar — post 13531
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما به ایران رسیدگی خواهیم کرد، و به‌محض اینکه کارمان با آن تمام شد، در مسیر بازگشت، برای مدت کوتاهی توقف می‌کنیم و به کوبا رسیدگی خواهیم کرد… باید از شر این نظام خلاص شویم
+@withyashar
+</div>
+
+## WithYashar — post 13530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: برنده این جنگ ما هستیم حالا چه روی کاغذ چه با قدرت نظامی
+@withyashar
+</div>
+
+## WithYashar — post 13529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: جابجایی مواد هسته‌ای ایران مستلزم حضور یک یا دو هفته‌ای در منطقه درگیری بود، بنابراین ما این کار را انجام ندادیم
+@withyashar
+</div>
+
+## WithYashar — post 13528
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : من دنبال عملیات مخفی برای گرفتن اورانیوم ایران نیستم اون اورانیوم عملاً دفن شده و از بین رفته
+اعزام نیروهای نظامی برای تصاحب ذخایر اورانیوم ایران؟ نه من نمی‌خوام جیمی کارتر باشم
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342619
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342619_1780606348.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+PETER DOOCY: "There's been a lot of talk lately about the Treasury putting your face on a $250 bill... Would you ever be able to tip anyone anything but that?"
+
+TRUMP: "Well, I think I'll probably leave it for everybody."
+"I have actually seen something just about two days ago. I know it's been pushed by a lot of our supporters."
+
+"I'm honored that they're doing it, but we'll see how that all works out."
+
+"They really like the job we're doing, you know? So that's a great honor."
+</div>
+
+## FoxNewsTwitter — post 342618
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342618_1780606349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"It means Italian people love Trump."
+
+President Trump praises the stunning restoration of the Christopher Columbus statue at Union Station, highlighting the massive beautification effort that saved the historic monument from being torn down.
+
+After decades of being covered in graffiti and grime, the monument's original marble was fully restored.
+</div>
+
+## IranIntlTV — post 340572
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340572_1780606351.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ درباره احتمال دیدار با رهبر جمهوری اسلامی گفت تمایلی به این دیدار ندارد، اما اگر هدف دستیابی به توافق باشد، چنین دیداری می‌تواند انجام شود.
+
+او افزود: «من این پیشنهاد را مطرح نکرده‌ام و چیز زیادی هم درباره آن نشنیده‌ام، اما برخی آن را پیشنهاد کرده‌اند. اگر قرار باشد اتفاق بیفتد، رخ خواهد داد و من با احترام برخورد می‌کنم.»
+https://iranintl.com/202606047542
+</div>
+
+## FarsiVOA — post 219616
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219616_1780606352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه گفت ایالات متحده بر جمهوری اسلامی غلیه می‌کند، یا با توافق یا با عملیات نظامی.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157906
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157906" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۵خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## alonews — post 125182
+
+<div align="center">
+  <a href="telegram/content/alonews_125182_1780606353.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حجم قابل توجهی از ترابری های آمریکا در حال خروج از خاورمیانه و حرکت به سمت اروپا هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125181
+
+<div align="center">
+  <a href="telegram/content/alonews_125181_1780606353.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: جابجایی مواد هسته‌ای ایران مستلزم حضور یک یا دو هفته‌ای در منطقه درگیری بود، بنابراین ما این کار را انجام ندادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 00:12
 ---
 
