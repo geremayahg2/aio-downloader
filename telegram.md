@@ -7,6 +7,44 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 01:42
+---
+
+## mwarmonitor — post 10160
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وقتی در ماه مارس یک آتش‌سوزی روی ناو هواپیمابر USS Gerald R. Ford نیروی دریایی آمریکا رخ داد، نیروی دریایی در یک بیانیه کوتاه اعلام کرد که آتش «مهار شده است»، دو ملوان برای «جراحات غیرمرگبار» تحت درمان قرار گرفته‌اند و این ناو همچنان «کاملاً عملیاتی» است.
+
+اما ویدیوی جدیدی که توسط منتشر شده نشان می‌دهد که این آتش‌سوزی بسیار شدیدتر و آسیب‌زننده‌تر از آن چیزی بوده که نیروی دریایی اعلام کرده بود. منابع به CNN گفته‌اند که سامانه اطفای حریق این کشتی از کار افتاده بود.
+
+@mwarmonitor
+</div>
+
+## IranianMinds — post 21399
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21399_1780611145.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت جدید اتاق جنگ اسرائیل بازم ساعت شنی
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391015
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391015_1780611145.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
++ بنظرت به ترامپ بگیم مجتبی رو هم ترور کردیم یا هنوز زوده؟
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 01:32
 ---
 
