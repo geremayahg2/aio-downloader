@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 09:14
+---
+
+## Persian_Trend_Official — post 15676
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15676_1780551841.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک پهپاد BZK-005E ساخت چین که متعلق به امارات است، در فرودگاه دارفور سودان مشاهده شده است.
+
+این امر نشان می‌دهد امارات به طور قابل توجهی در حال دامن زدن به جنگ داخلی در سودان برای تضمین ادامه آن است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21344
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21344_1780551842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وال استریت ژورنال :
+
+ترامپ دستور داده که اگه ایران حمله ای انجام بده و یک سرباز آمریکایی آسیب ببینه فورا به آتش بس پایان بدن و‌ جنگ رو مجدد شروع کنن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282834
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282834_1780551842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+بهای نفت برنت شمال در بازارهای صبح پنجشنبه آسیا به حدود ۹۷ دلار برای هر بشکه رسید.
+
+حمله روز گذشته ایران به کویت و بحرین و حمله ارتش آمریکا به یک نفتکش در مسیر بنادر ایران و همچنین نقاطی در جنوب جزیره قشم، به تلاطم مجدد در بازار نفت منجر شده است.
+
+با این حال انتظار می‌رود خبر توافق آتش‌بس میان لبنان و اسرائیل مانع از صعود بهای نفت برنت دریای شمال به بالای ۱۰۰ دلار در هر بشکه در روزهای آخر هفته شود.
+
+https://bbc.in/3RNA7XQ
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 124955
+
+<div align="center">
+  <a href="telegram/content/alonews_124955_1780551843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: مقامات آمریکایی گفتند حملات مکرر تهران فشار بر ترامپ را افزایش داده و در مورد دوام آتش بس در درازمدت تردید ایجاد کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124954
+
+<div align="center">
+  <a href="telegram/content/alonews_124954_1780551843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 معاریو به نقل از یک مقام امنیتی اسرائیلی: ما یک پنجره عملیاتی برای انجام مأموریت در بیروت داشتیم، اما بیانیه نتانیاهو و کاتس آن را بست.
+
+
+🔴 ما می‌توانیم در صور و صیدا آزادانه عمل کنیم، اما بیروت تابع محدودیت‌ها است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124953
+
+<div align="center">
+  <a href="telegram/content/alonews_124953_1780551843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویر ماهواره‌ای با وضوح بالاتر از خسارات وارده به یکی از پناهگاه‌های پهپاد/هواگرد در پایگاه آمریکایی علی‌السالم کویت در پی حملات موشکی سپاه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124952
+
+<div align="center">
+  <a href="telegram/content/alonews_124952_1780551845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ۲۰۰,۰۰۰,۰۰۰,۰۰۰ دلار از ارزش بازار رمزارزها در ۲۴ ساعت گذشته کاهش یافته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124951
+
+<div align="center">
+  <a href="telegram/content/alonews_124951_1780551845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان گزارش داد ترامپ به مشاوران خود اعلام کرده است هیچ توافقی را که شامل ارائه بودجه مستقیم ایالات متحده به ایران باشد، امضا نخواهد کرد.
+
+
+🔴 این در حالی است که بحث‌هایی درباره ایجاد صندوقی برای واگذاری میلیاردها دلار به ایران پس از دستیابی به توافق نهایی مطرح شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124950
+
+<div align="center">
+  <a href="telegram/content/alonews_124950_1780551845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تصاویر مربوط به اصابت پهپاد انتحاری به فرودگاه کویت از دید دوربین‌های مداربسته.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 09:04
 ---
 
