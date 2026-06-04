@@ -7,6 +7,84 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 02:52
+---
+
+## IranIntlTV — post 340584
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340584_1780615366.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرجان ساتراپی چگونه تصویر ایران را در جهان تغییر داد؟
+
+مرجان ساتراپی، نویسنده، تصویرگر، فیلمساز و خالق کتاب مصور «پرسپولیس»، در ۵۶ سالگی درگذشت. ساتراپی سال گذشته نشان لژیون دونور دولت فرانسه را در اعتراض به ریاکاری دولت فرانسه در قبال مردم ایران و جمهوری اسلامی رد کرد.
+
+مرجان ساتراپی با انتشار «پرسپولیس»، کتابی مصور درباره زندگی خود در ایران و مهاجرت، به شهرت جهانی رسید
+
+کامبیز حسینی در «برنامه» به این موضوع می پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9L7sKS5oEaE
+@iranintltv
+</div>
+
+## IranIntlTV — post 340583
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340583_1780615368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مانا نیستانی: اهمیت «پرسپولیس» مرجان ساتراپی، در ثبت هنرمندانه و انسانی روایت‌های جمعی ماست
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9L7sKS5oEaE
+@iranintltv
+</div>
+
+## IranIntlTV — post 340582
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340582_1780615370.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیتا ملکوتی: «پرسپولیس» مرجان ساتراپی یکی از نمونه‌های شاخص ادبیات مهاجرت و تبعید است
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9L7sKS5oEaE
+@iranintltv
+</div>
+
+## IranIntlTV — post 340581
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340581_1780615372.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امید کشتکار: تأثیر ساتراپی به ایران محدود نمی‌شود؛ او بر رمان گرافیکی در جهان تأثیر گذاشت
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9L7sKS5oEaE
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 02:42
 ---
 
