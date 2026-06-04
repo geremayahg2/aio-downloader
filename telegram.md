@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 01:52
+---
+
+## FoxNewsTwitter — post 342623
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342623_1780611744.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump on Biden: "He was never the sharpest guy, you do know that, right?"
+
+"It wasn't like he was sharp as a tack."
+
+"Something happened to him during the debate. It could have been me."
+</div>
+
+## IranIntlTV — post 340577
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340577" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ ویژه برنامه درگذشت مرجان ساتراپی با حضور مانا نیستانی و امید کشتکار
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340576
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340576_1780611746.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال در خبری اختصاصی گزارش داد هواداران جبهه پایداری در پی درخواست مسعود پزشکیان و محمدباقر قالیباف از حضور در تجمع‌های حمایت از جمهوری اسلامی منع شده‌اند.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340575
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340575_1780611747.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اندکی پس از تصویب قطعنامه مجلس نمایندگان آمریکا درباره محدود کردن اختیارات جنگی رییس‌جمهوری در قبال ایران، دونالد ترامپ این اقدام را بی‌معنی توصیف کرد و گفت آنها ترجیح می‌دهند کشور شکست بخورد تا شاهد یک پیروزی دیگر از او باشند.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 01:42
 ---
 
