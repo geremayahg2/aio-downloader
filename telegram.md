@@ -7,6 +7,22 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 10:24
+---
+
+## alonews — post 124976
+
+<div align="center">
+  <a href="telegram/content/alonews_124976_1780556043.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال : ترامپ جمعه گذشته آخرین پیشنهاد ایران را رد کرد و به دستیارانش گفت که ایران باید از قبل امتیازات جدی بدهد، نه در یک دوره طولانی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 10:14
 ---
 
