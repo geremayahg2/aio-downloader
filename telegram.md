@@ -7,6 +7,133 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 00:52
+---
+
+## VahidOOnLine — post 243722
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243722_1780608168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ،رئیس‌جمهوری آمریکا، روز پنجشنبه ۱۴ خرداد در گفتگو با خبرنگاران در کاخ سفید، درباره احتمال دیدار با مجتبی خامنه‌ای گفت تمایلی به چنین دیداری ندارد.
+ترامپ گفت: «اگر ملاقات کنیم، با احترام برخورد می‌کنم»، اما تاکید کرد شخصا به دنبال چنین دیداری نیست.
+رئیس‌جمهوری آمریکا همچنین در پاسخ به سوالی درباره اینکه آیا به دلیل کشته شدن اعضای خانواده مجتبی خامنه‌ای، احتمال دارد او تمایلی به دیدار نداشته باشد، گفت: «من شخص مورد علاقه او نیستم.»
+ترامپ افزود در صورت شکل‌گیری توافق، احتمال انجام چنین دیداری وجود دارد، اما تاکید کرد در حال حاضر به دنبال آن نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243721
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243721_1780608169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۱۴ خرداد در اظهاراتی درباره جمهوری اسلامی تاکید کرد که ایالات متحده «به هر حال» پیروز خواهد شد؛ چه از طریق توافق و چه از راه نظامی.
+
+ترامپ گفت: «فکر می‌کنم اوضاع برای ما خیلی خوب پیش می‌رود، اما خواهیم دید که به چه شکلی پیروز می‌شویم. به هر حال ما پیروز خواهیم شد؛ یا روی کاغذ و از طریق توافق، یا از راه نظامی.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ ۲۵ بهمن ۱۴۰۴: میخوام با آیت الله علی خامنه ای دیدار کنم.
+۹ اسفند بخارش‌ کرد.
+
+ترامپ ۱۴ خرداد ۱۴۰۵: میخوام با آیت الله مجتبی خامنه ای دیدار کنم.
+
+چه تاریخی بخار میشه؟!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342621
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342621_1780608171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump declines to reveal specific details of his own proposed compromises to end the Russia-Ukraine war:
+
+"I'd rather not say."
+
+"I'm very responsible when that happens. It's going to happen. They're going to both make compromises — I suggested those compromises."
+
+"They're two very incredible countries, beautiful countries."
+
+"They've got to stop. Last month, they had 25,000 people killed. Soldiers, mostly soldiers, some people, but mostly soldiers."
+</div>
+
+## FarsiVOA — post 219619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: اگر نیروهای آمریکایی در حملات جمهوری اسلامی کشته شوند عملیات نظامی علیه آن از سر گرفته می‌شود
+
+▪️دونالد ترامپ، رئیس جمهوری آمریکا روز پنجشنبه ۱۴ خرداد در مراسم سرمایه‌گذاری در حوزه انرژی و زغال‌سنگ در کاخ سفید در هشداری به جمهوری اسلامی گفت اگر نیروهای آمریکایی در حملات جمهوری اسلامی کشته شوند، عملیات نظامی علیه رژیم از سر گرفته خواهد شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157398.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «من نمی‌خواهم با آیت‌الله ملاقات کنم، اما اگر با او ملاقات می‌کردم، برایم افتخار بود که با او دیدار کنم. با احترام رفتار می‌کردم.» @IranianMinds
+</div>
+
+## Dirty_Kids — post 391012
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391012_1780608174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شنیدم میخوای با آیت‌الله جدید(مجتبی خامنه‌ای) ملاقات کنی. ترامپ: نه من نمیخوام باهاش ملاقات کنم، ولی باعث افتخاره که باهاش دیدار داشته باشم؛ دوست دارم ببینم میتونیم آیا باهم یه قرار داد خوبی داشته باشیم یا نه، ولی اگه باهاشون قرارداد ببندیم، ممکنه…
+</div>
+
+## Dirty_Kids — post 391011
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391011_1780608176.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شنیدم میخوای با آیت‌الله جدید(مجتبی خامنه‌ای) ملاقات کنی.
+
+ترامپ: نه من نمیخوام باهاش ملاقات کنم، ولی باعث افتخاره که باهاش دیدار داشته باشم؛
+
+دوست دارم ببینم میتونیم آیا باهم یه قرار داد خوبی داشته باشیم یا نه، ولی اگه باهاشون قرارداد ببندیم، ممکنه همو ببینیم حتی توآمریکا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125187
+
+<div align="center">
+  <a href="telegram/content/alonews_125187_1780608178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ ۲۵ بهمن ۱۴۰۴:
+میخوام با آیت الله علی خامنه ای دیدار کنم.
+
+
+🔴ترامپ ۱۴ خرداد ۱۴۰۵:
+میخوام با آیت الله مجتبی خامنه ای دیدار کنم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 00:42
 ---
 
