@@ -7,6 +7,303 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 22:35
+---
+
+## VahidOOnLine — post 243704
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243704_1780599924.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، گفت شواهد بسیاری وجود دارد که آمریکا و اسرائیل از حریم هوایی و سرزمین امارات متحده عربی علیه ما استفاده کرده‌اند و مدارکی داریم که نشان می‌دهد امارات در برخی موارد، شخصاً در عملیات‌های نظامی علیه جمهوری اسلامی مشارکت داشته است.
+او افزود: «دلیل اصلی تیره شدن روابط فعلی با امارات، حضور عامل اسرائیلی و روابط سیاسی، تجاری و اقتصادی نزدیک ابوظبی با تل‌آویو است.»
+عراقچی اضافه کرد اگر امارات مثل سایر کشورهای حاشیه خلیج فارس سیاست متفاوتی در پیش می‌گرفت، اکنون می‌توانستیم روابط بسیار بهتری با این کشور داشته باشیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243703
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243703_1780599925.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️پوتین: روسیه می‌تواند به حل بحران ایران کمک کند
+
+♦️ولادیمیر پوتین، رئیس‌جمهوری روسیه، روز پنجشنبه ۱۴ خرداد در دیدار با مدیران ارشد رسانه‌های بین‌المللی در مجمع اقتصادی سن‌پترزبورگ اعلام کرد که «مسکو به دلیل روابط مبتنی بر اعتماد با جمهوری اسلامی، می‌تواند در حل بحران ایران نقش ایفا کند».
+
+روسیه از زمان آغاز تنش‌های اخیر پیرامون برنامه هسته‌ای جمهوری اسلامی و درگیری‌های منطقه‌ای مرتبط با ایران، بر حل‌وفصل دیپلماتیک اختلافات تأکید کرده است. مسکو که از شرکای اصلی تهران به شمار می‌رود، پیش‌تر نیز برای میانجی‌گری در برخی پرونده‌های مرتبط با ایران اعلام آمادگی کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13512
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13512_1780599926.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زرشکیان و دخترش کشمش 🥴
+@withyashar
+</div>
+
+## mwarmonitor — post 10149
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10149_1780599927.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨وزارت خارجه ایالات متحده به دلیل «احتمال بروز درگیری‌ها»، برای تمام کشورهای خاورمیانه هشدار امنیتی صادر کرده و به همه شهروندان آمریکایی توصیه کرده است نزدیک‌ترین پناهگاه امن را شناسایی کنند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342614
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342614_1780599927.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Treasury Secretary Scott Bessent gets Democrat Rep. Judy Chu to admit she doesn’t know who was president during World War I in the middle of a heated debate over the ongoing war in Iran.
+
+Chu accused Bessent and the Trump administration of not caring about Americans’ financial situations during the ongoing military action in the Middle East before Bessent flipped the script by quizzing the Congresswoman on basic American history.
+
+"Congresswoman, who was the president during World War I? ...so you don't know who the president during World War I was? But let me tell you... President Trump does care about Americans’ financial situations.”
+</div>
+
+## pm_afshaa — post 92287
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.23&port=8443&secret=ee1603010200010001fc030386e24c3add646565707365656B2E636F6D
+
+پروکسی سرعت بالا مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایالات متحده:به ایران، عراق، لبنان، سوریه، غزه یا یمن سفر نکنید
+شهروندان آمریکایی باید از محل نزدیکترین پناهگاه در صورت بروز درگیری مطلع باشن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفارت ایالات متحده در اورشلیم هشدار سفر جدیدی برای اسرائیل منتشر کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=promo.dealer.ac&port=443&secret=ee6aa3b7302162fefaffdcfafa34ab94ba7477656e7475722e636f6d
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92283
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92283_1780599930.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوباره فروش رو باز کردیم ولی این بار با کاهش قیمت
+😉
+
+
+⭐️ تضمین کیفیت: امکان دریافت تست رایگان قبل از خرید برای اطمینان از سرعت
+
+
+💳 خرید امن: دارای گارانتی و ضمانت بازگشت وجه در صورت عدم رضایت
+
+
+⚡️ تعرفه ثابت: هر گیگابایت ترافیک با ساب، فقط و فقط ۱۸ هزار تومان!
+
+برای تحویل آنی و پشتیبانی، همین حالا به آیدی زیر پیام دهید:
+👇
+👇
+👇
+
+
+🔤 @Gliitch_Admin
+
+🔤 @Gliitch_Admin
+
+🔤 @Gliitch_Admin
+</div>
+
+## IranIntlTV — post 340556
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340556_1780599931.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، گفت شواهد بسیاری وجود دارد که آمریکا و اسرائیل از حریم هوایی و سرزمین امارات متحده عربی علیه ما استفاده کرده‌اند و مدارکی داریم که نشان می‌دهد امارات در برخی موارد، شخصاً در عملیات‌های نظامی علیه جمهوری اسلامی مشارکت داشته است.
+او افزود: «دلیل اصلی تیره شدن روابط فعلی با امارات، حضور عامل اسرائیلی و روابط سیاسی، تجاری و اقتصادی نزدیک ابوظبی با تل‌آویو است.»
+عراقچی اضافه کرد اگر امارات مثل سایر کشورهای حاشیه خلیج فارس سیاست متفاوتی در پیش می‌گرفت، اکنون می‌توانستیم روابط بسیار بهتری با این کشور داشته باشیم.
+https://iranintl.com/202606046973
+</div>
+
+## FarsiVOA — post 219603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادنمای میدان: نگاهی تاریخی به روابط ایزان و اسرائيل
+</div>
+
+## FarsiVOA — post 219602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بحث جدی مهمانان برنامه میدان در مورد مخاصمه دیرینه جمهوری اسلامی و اسرائیل
+</div>
+
+## RadioFarda — post 157904
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157904_1780599932.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مارکو روبیو، وزیر امور خارجه آمریکا، روز پنج‌شنبه حملات «شنیع» ایران به فرودگاه کویت در بامداد چهارشنبه را که به کشته شدن یک نفر و زخمی شدن ده‌ها نفر منجر شد، محکوم کرد.
+
+🔸بر اساس بیانیه وزارت خارجه ایالات متحده، او در دیدار با جراح جابر الاحمد الصباح، وزیر امور خارجه کویت، در واشنگتن «حملات شنیع و غیر قابل قبول ایران که فرودگاه بین‌المللی کویت و دیگر نقاط این کشور را هدف قرار داد» محکوم کرد و مراتب تسلیت خود را بابت کشته‌شدگان و مجروحان این حمله ابراز داشت.
+
+🔸مقام‌های کویتی گفتند که ایران ۳۰ موشک بالستیک و پهپاد در این حمله پرتاب کرد. تنها کشته شده این حمله یک شهروند هندی بود و ۶۳ نفر نیز زخمی شدند.
+
+🔸ایران مسئولیت برخورد پهپاد به فرودگاه غیرنظامی کویت را نپذیرفت و گفت یک موشک پدافندی پاتریوت آمریکا باعث این حادثه شد. اما سنتکام، ستاد فرماندهی مرکزی ایالات متحده، این ادعا را رد کرد.
+
+🔸این در حالی است که مقام‌های آمریکایی می‌گویند مذاکره با ایران برای پایان دادن به جنگ ادامه دارد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21389
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21389_1780599933.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهبر جهان محسن رضایی :
+
+به نفع آمریکا است که زودتر حقوق ملت ایران را بدهد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21386
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21386_1780599935.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیصر خواننده، ننگ بر تو.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282859
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282859_1780599937.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرجان ساتراپی، نویسنده و تصویرگر فرانسوی-ایرانی، که بیشتر با کتاب و فیلم «پرسپولیس» شناخته می‌شود، درگذشت. به گفته نزدیکانش، او «غم از دست دادن همسرش»، ماتیاس ریپا، را تاب نیاورد.
+
+داستان «پرسپولیس» سال‌های کودکی او در تهران پس از انقلاب و مهاجرت و تنهایی او در نوجوانی را روایت می‌کند و اینکه چگونه نوجوانی عصیانگر با محدودیت‌های پس از انقلاب اسلامی دست‌وپنجه نرم می‌کند.
+
+او در زمان جنبش «زن، زندگی، آزادی» از تریبون‌های مختلف برای رساندن صدای مخالفان در ایران استفاده کرد. #مرجان_ساتراپی پارسال نشان شوالیه اعطایی دولت فرانسه را به دلیل آنچه «ریاکاری» این کشور در مواجهه با حکومت ایران خواند، رد کرد.
+
+این پست را ورق بزنید.
+Credits: Marjane Satrapi, Vincent Paronnaud, 2.4.7. films, France 3 Cinema, Arte France Cinema, Bertrand Guay, Gareth Cattermole, Yoan Valat/EPA, Getty Images
+@bbcpersian⁩
+</div>
+
+## Hranews — post 113392
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهرستان؛ یک نوجوان توسط نیروهای امنیتی بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– طاها دهانی، نوجوان ۱۶ ساله اهل شهرستان مهرستان، روز دوشنبه ۱۱ خردادماه توسط نیروهای امنیتی بازداشت و به مکان نامعلومی منتقل شده است.
+#طاها_دهانی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125143
+
+<div align="center">
+  <a href="telegram/content/alonews_125143_1780599940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز:
+حزب‌الله طرح آتش‌بس پیشنهادی بین اسرائیل و لبنان رو رد کرده؛ طرحی که می‌تونست روی مذاکرات گسترده‌تر بین آمریکا، ایران و کل خاورمیانه اثر بذاره.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125142
+
+<div align="center">
+  <a href="telegram/content/alonews_125142_1780599940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یغما فشخامی، خبرنگار: قضیه تجاوز گروپ به شهبازی بو داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125141
+
+<div align="center">
+  <a href="telegram/content/alonews_125141_1780599940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: رابطه ما با سلطان نشین عمان بسیار دوستانه و برادرانه است و شما شاهد بوده اید که در جنگ اخیر هیچ آسیبی به آن وارد نشده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 22:24
 ---
 
