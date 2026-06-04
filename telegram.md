@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 14:44
+---
+
+## pm_afshaa — post 92259
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92259_1780571683.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاتز، وزیر دفاع اسرائیل:
+توافق با لبنان شامل خلع سلاح حزب‌الله و محکومیت دخالت جمهوری اسلامیه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92258
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92258_1780571684.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث: آمریکا و جمهوری اسلامی به توافق 4 مرحله‌ای نزدیک شدن.
+
+توافقی که از کاهش تنش‌ها آغاز می‌شه و در مراحل بعدی به امنیت تنگه هرمز، کاهش برخی تحریم‌ها و در نهایت پرونده هسته‌ای ایران می‌پردازه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340496
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340496" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | پنج‌شنبه ۱۴ خرداد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219558
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219558_1780571686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی توافق آتش‌بس اسرائیل و لبنان، قیمت نفت در بازارهای جهانی بیش از ۱ درصد افت کرد.
+
+قیمت نفت شاخص برنت در روز پنج‌شنبه به زیر ۹۷ دلار و قیمت نفت وست تگزاس اینترمیدیت آمریکا و شاخص نفت موربان امارات نیز هر کدام به حدود ۹۵ دلار کاهش یافت.
+
+قیمت‌های کنونی نفت کماکان ۳۵ درصد بالاتر از دوران پیش از انسداد تنگه هرمز توسط جمهوری اسلامی است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219557
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219557_1780571687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله مرگبار ارتش آمریکا به قایق قاچاقچیان مورد حمایت شبکه‌های تروریستی در اقیانوس آرام؛
+
+بنا بر اعلام فرماندهی جنوبی ایالات متحده، نیروهای مشترک این فرماندهی روز چهارشنبه، به دستور ژنرال فرانسیس داناوان، یک حمله هدفمند و مرگبار علیه شناور متعلق به سازمان‌های تروریستیِ شناسایی‌شده انجام دادند.
+
+بر اساس داده‌های اطلاعاتی، این شناور در حال حرکت در مسیرهای شناخته‌شده قاچاق مواد مخدر در شرق اقیانوس آرام و انجام عملیات انتقال محموله بود.
+
+در جریان این اقدام، دو قاچاقچی تروریست کشته شدند. در این عملیات به هیچ‌یک از نیروهای نظامی آمریکا آسیبی نرسید.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آموزش و پرورش:
+
+اعلام برنامه امتحانات نهایی کذب است.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390968
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390968_1780571689.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چالش کون 
+🍑 به ایران هم رسید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390967
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390967_1780571690.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سوتی مجری صدا و سیما روز اول جنگ .
+همه در رفتن 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390966
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390966_1780571692.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تموم شد رفت!! حالا پیکاسو همینو ۶۰۰روز طول میداد
+
+فقط کفتر و گنجیشک‌ش کمه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390965
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390965_1780571695.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو تجمعات شبانه علاوه بر پزشکیان، دارن به قالیباف هم حمله میکنن؛
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125040
+
+<div align="center">
+  <a href="telegram/content/alonews_125040_1780571696.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارین پالیسی: جایگاه متمایز آمریکا، چین، روسیه و بریتانیا در صحنه جهانی
+
+
+🔴 نشریه فارین پالیسی در تحلیلی به قلم برندن سیمز استدلال می‌کند که اگرچه ایالات متحده و چین از نظر اقتصادی و نظامی بسیار جلوتر از روسیه و بریتانیا هستند، اما هر چهار کشور دارای ویژگی‌هایی هستند که آنها را از رده بعدی بازیگران اصلی در صحنه جهانی متمایز می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125039
+
+<div align="center">
+  <a href="telegram/content/alonews_125039_1780571697.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش نشنال اینترست: استفاده ایران از موشک چینی برای سرنگونی جنگنده آمریکایی
+
+
+🔴 نشریه نشنال اینترست گزارش داده است که به نظر می‌رسد چین سخت‌افزار نظامی در اختیار ایران قرار داده و ایران در جریان عملیات «خشم حماسی» از یک موشک چینی برای سرنگونی یک فروند جنگنده F-15E Strike Eagle آمریکایی استفاده کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 14:35
 ---
 
