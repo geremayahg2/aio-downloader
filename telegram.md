@@ -7,6 +7,91 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 10:34
+---
+
+## pm_afshaa — post 92247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر دفاع اسرائیل: به هدف قرار دادن زیرساخت های حزب الله در لبنان ادامه خواهیم داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340467
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340467_1780556672.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع پاکستانی از تشدید تلاش‌های اسلام‌آباد برای کاهش تنش میان ایالات متحده و جمهوری اسلامی خبر داده‌اند. همزمان گفته می‌شود قطر نیز در پی برگزاری دور دوم مذاکرات احتمالی در دوحه است
+
+گفت‌وگو با جواد همدانی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## DW_Farsi — post 125472
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125472_1780556674.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ: به امضای توافق با ایران خیلی نزدیک شده‌ایم
+
+دونالد ترامپ، رئیس جمهور آمریکا روز چهارشنبه ۱۳ خرداد (۳ ژوئن) در جمع خبرنگاران گفت که مذاکرات با ایران ممکن است در روزهای آینده به نتیجه برسد و این گفت‌وگوها "به‌خوبی" پیش می‌رود.
+
+ترامپ همچنین افزود بر اساس توافق، ایالات متحده ذخایر اورانیوم با غنای بالای ایران را "دریافت خواهد کرد"؛ موضوعی که یکی از اصلی‌ترین نقاط اختلاف در مذاکرات است.
+
+رئیس جمهور آمریکا بار دیگر تاکید کرد که این مواد باید از ایران خارج شوند. ترامپ همچنین خاطرنشان کرد که هدف اصلی او جلوگیری از دستیابی ایران به سلاح هسته‌ای از طریق اورانیوم با غنای بالاست.
+
+ترامپ همچنین گفت که می‌خواهد مذاکرات مربوط به جنگ در لبنان را از گفت‌وگوهای مربوط به جنگ میان آمریکا و ایران جدا کند. این در حالی است که جمهوری اسلامی بارها توقف حملات اسرائیل در لبنان و تضمین امنیت این کشور را پیش‌شرط مذاکرات خود با آمریکا عنوان کرده است.
+
+عباس عراقچی، وزیر خارجه ایران هشدار داده است که هرگونه حمله به بیروت می‌تواند به "ازسرگیری کامل" جنگ در خاورمیانه منجر شود. او همچنین گفت که خطوط ارتباطی با ایالات متحده همچنان باز است، اما "هیچ پیشرفت ملموسی" در مذاکرات حاصل نشده است.
+
+@dw_farsi
+</div>
+
+## alonews — post 124979
+
+<div align="center">
+  <a href="telegram/content/alonews_124979_1780556675.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صور، جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124978
+
+<div align="center">
+  <a href="telegram/content/alonews_124978_1780556677.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تصاویری از حمله به انبار نفت کرج (فردیس) در جنگ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124977
+
+<div align="center">
+  <a href="telegram/content/alonews_124977_1780556679.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: دموکرات‌ها دوباره شروع کرده‌اند! آن‌ها در تلاش‌اند تا فرماندار کالیفرنیا و شهردار لس‌آنجلس را از دو کاندیدای بزرگ جمهوری‌خواه بدزدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 10:24
 ---
 
