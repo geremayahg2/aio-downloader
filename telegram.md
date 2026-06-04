@@ -7,6 +7,158 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 09:54
+---
+
+## IranIntlTV — post 340463
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340463_1780554279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تنها یک هفته به شروع جام جهانی ۲۰۲۶ باقی مانده است. به نظر شما کدام تیم قهرمان این دوره می‌شود؟
+
+🔹در این نظرسنجی دو مرحله‌ای، ۸ تیمی که از نظر کارشناسان بالاترین شانس را برای قهرمانی دارند، در دو گروه به رای مخاطبان ایران اینترنشنال گذاشته می‌شوند.
+
+🔹برای شرکت در این نظرسنجی به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇🏽
+https://www.instagram.com/p/DZJ0n90Ay7J/
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 219541
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219541_1780554280.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر ژنرال دن کین، رئیس ستاد مشترک نیروهای مسلح آمریکا، اعلام کرد که او چهارشنبه به کاراکاس، پایتخت ونزوئلا سفر کرد.
+
+در بیانیه‌ دفتر رئیس ستاد مشترک نیروهای مسلح آمریکا آمده است: «ژنرال کین در گفت‌وگوهای دوجانبه با رهبران ارشد دولت موقت [ونزوئلا]، همچنین با رهبری و کارکنان سفارت ایالات متحده شرکت کرد و از واحد تقویتی امنیت تفنگداران دریایی سفارت نیز بازدید به عمل آورد.»
+
+در این بیانیه همچنین تأکید شده که این نخستین سفر رسمی کین به ونزوئلا بوده است.
+
+این سفر کمتر از دو هفته پس از آن انجام می‌شود که ژنرال فرانسیس دوناوان، فرمانده عملیات نظامی ایالات متحده در آمریکای لاتین، در چارچوب یک رزمایش واکنش سریع با مشارکت تفنگداران دریایی و هواپیماهای نظامی، از کاراکاس بازدید کرده بود.
+
+دلسی رودریگز، رئیس‌جمهور موقت ونزوئلا، در حال حاضر در چارچوب یک سفر رسمی دولتی، در هند به سر می‌برد.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21350
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21350_1780554281.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ در مورد خاورمیانه :
+
+در اون بخش از جهان آتش بس یعنی به جای توقف کامل شلیک ، فقط به شدت کمتری شلیک میکنن همین!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21349
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21349_1780554283.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🆗
+🔡
+🔡
+5️⃣ تومان هدیه فقط برای ثبت‌نام! 
+🆗
+
+
+💥 بدون واریز
+
+3️⃣ قدم تا دریافت هدیه:
+✅ ثبت‌نام در سایت
+
+✅ دریافت بونوس
+0️⃣
+0️⃣
+5️⃣ هزار تومانی
+
+✅ تبدیل بونوس به موجودی واقعی با شرط‌بندی
+
+فقط تا 
+3️⃣ روز دیگه میتونی هدیه بگیری!
+
+پس از پایان افتتاحیه، امکان دریافت این هدیه وجود نخواهد داشت.
+
+
+🚩
+🚩 خرداد افتتاحیه بزرگ سایت وینرو
+🟥 اگر هنوز ثبت‌نام نکردی، همین حالا اقدام کن و جزو دریافت‌کنندگان بونوس ویژه افتتاحیه باش.
+ar14
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io
+
+📱 کانال اخبار و هدایــا 
+🌟
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 21348
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21348_1780554284.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+طبق اطلاعاتی که به من رسیده مجتبی خامنه ای حال و روز خوبی نداره و بیشتر اعضای بدنشو از دست داده.
+
+@IranianMinds
+</div>
+
+## alonews — post 124969
+
+<div align="center">
+  <a href="telegram/content/alonews_124969_1780554285.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاتز: اسرائیل این آزادی عمل را دارد که با حمایت آمریکا در پاسخ به هرگونه آتش‌سوزی به سمت شهرک‌ها یا اسرائیل، به بیروت حمله کند
+
+
+🔴حضور ارتش ما در منطقه امنیتی شامل منطقه قلعه بوفورت می‌شود و ساکنان از بازگشت به آنجا منع شده‌اند
+
+
+🔴یک منطقه غیرنظامی در جنوب رودخانه لیتانی ایجاد خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124967
+
+<div align="center">
+  <a href="telegram/content/alonews_124967_1780554285.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیده شدن دونالد ترامپ در یکی از پارک های شیراز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124966
+
+<div align="center">
+  <a href="telegram/content/alonews_124966_1780554288.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دفاع اسرائیل: به هدف قرار دادن زیرساخت های حزب الله در لبنان ادامه خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 09:43
 ---
 
