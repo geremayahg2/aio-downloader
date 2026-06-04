@@ -7,6 +7,147 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 22:24
+---
+
+## WithYashar — post 13511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: ایران و عمان مدیریت تنگهٔ هرمز را براساس معیارهای حقوق بین‌الملل تنظیم خواهند کرد
+@withyashar
+</div>
+
+## WithYashar — post 13510
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفارت ایالات متحده در اورشلیم هشدار عدم سفر جدیدی برای اسرائیل منتشر می‌کند
+@withyashar
+</div>
+
+## FarsiVOA — post 219601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدور مجدد حکم اعدام علیه یعقوب درخشان به‌رغم نقض حکم اولیه
+
+◾️یعقوب درخشان، زندانی سیاسی ۵۱ ساله محبوس در زندان لاکان رشت، پس از نقض حکم اعدام پیشینش در دیوان عالی کشور، بار دیگر در شعبه هم‌عرض دادگاه انقلاب رشت، به اعدام محکوم شد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/political-prisoner-execution-yaqub-derakhshan/8157303.html
+</div>
+
+## FarsiVOA — post 219600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی جوانمردی: مشکل ایران در رهبری است، تغییر فقط توسط مردم ایران
+</div>
+
+## FarsiVOA — post 219599
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219599_1780599292.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش دفاعی اسرائیل پنجشنبه ۱۴ خرداد، در شبکه اجتماعی ایکس از کشته شدن ۴ مقام ارشد حماس در نوار غزه خبر داد.
+
+در ادامه این بیانیه آمده است: «در این حمله، تروریست حسن رباح حسن لبد، جانشین رئیس امنیت عمومی و یکی از عوامل کلیدی در تصمیم‌گیری و تدوین دستورالعمل‌ها در این نهاد، کشته شد. همچنین تروریست‌ها، عصام امین شلاش شبیر، عبدالله عطا یونس ابو کلوب و محمد نعمان زکی ابو مرق، سه مقام ارشد دیگر که نقش مرکزی در فرآیند تصمیم‌گیری این نهاد داشتند، کشته شدند.»
+
+گزارش کامل را در وب‌سایت صدای آمریکا بخوانید.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15709
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15709_1780599292.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوتین دربارهٔ زلنسکی: او یهودی است. یادتان باشد، پدربزرگش در برابر نازی‌ها می‌جنگید. فکر می‌کنم الان در قبرش می‌‌لرزد. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15708
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15708_1780599293.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوتین دربارهٔ زلنسکی: او یهودی است. یادتان باشد، پدربزرگش در برابر نازی‌ها می‌جنگید. فکر می‌کنم الان در قبرش می‌‌لرزد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 125140
+
+<div align="center">
+  <a href="telegram/content/alonews_125140_1780599294.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: ایران و عمان مدیریت تنگهٔ هرمز را براساس معیارهای حقوق بین‌الملل تنظیم خواهند کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125138
+
+<div align="center">
+  <a href="telegram/content/alonews_125138_1780599295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین: ایران یک کشور دوست است و کاملاً به ما اعتماد دارد؛ از اورانیوم غنی‌شده پس از کاهش سطح غنی‌سازی، برای انرژی هسته‌ای صلح‌آمیز ایران تحت نظارت آژانس استفاده می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125136
+
+<div align="center">
+  <a href="telegram/content/alonews_125136_1780599295.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین در مورد اروپا: آن‌ها به سادگی مایل به گفتگو با روسیه به عنوان یک شریک برابر نیستند، اما مجبور خواهند شد که این کار را انجام دهند. ما عجله‌ای نداریم.
+
+
+🔴حتی اگر نه زن باردار را با هم بگذارید، نه زن نمی‌توانند در یک ماه به یک کودک زایمان کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125135
+
+<div align="center">
+  <a href="telegram/content/alonews_125135_1780599297.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفارت ایالات متحده در اورشلیم هشدار سفر جدیدی برای اسرائیل منتشر می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125132
+
+<div align="center">
+  <a href="telegram/content/alonews_125132_1780599297.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق تصاویر جدید ماهواره ایی، ایران علاوه بر تعمیر پایگاه های فعلیش، داره به طور فعال پایگاه های موشکی جدید حفاری میکنه و قبلی هارو هم گسترش میده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 22:14
 ---
 
