@@ -7,6 +7,69 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 07:54
+---
+
+## Shin_Persian — post 6494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماینهوف @donya_meinhof
+Tue, 02 Jun 2026 03:02:46 UTC
+
+آخرش معلوم میشه اون کبودی روی دست دانلد حسین ترامپ اثر انفجار پیجر حزب الله‌ش بوده.
+
+English
+
+In the end, it will turn out that the bruise on Donald "Hossein" Trump's hand was the result of his Hezbollah pager exploding.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6493
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6493_1780547046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Tue, 02 Jun 2026 23:46:54 UTC GHWB: “You attacking Kuwait? we’re coming” DJT: “You attacking Kuwait? We won’t even condemn it, their cabinet will gently ask them to stop the strikes” ↩️ توییت نقل‌قول شده — برای پاسخ،…
+</div>
+
+## Shin_Persian — post 6492
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 23:46:54 UTC
+
+GHWB: “You attacking Kuwait? we’re coming”
+
+DJT: “You attacking Kuwait? We won’t even condemn it, their cabinet will gently ask them to stop the strikes”
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+جورج اچ. دبلیو. بوش: «شما به کویت حمله می‌کنید؟ ما داریم می‌آییم»
+
+دونالد جی. ترامپ: «شما به کویت حمله می‌کنید؟ ما حتی آن را محکوم هم نخواهیم کرد، کابینه‌شان با ملایمت از آن‌ها خواهد خواست که حملات را متوقف کنند»
+
+𝕏 · @shin_persian
+</div>
+
+## RadioFarda — post 157875
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157875" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۱۴ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 07:44
 ---
 
