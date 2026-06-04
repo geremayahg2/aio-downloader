@@ -7,6 +7,139 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 21:54
+---
+
+## VahidOOnLine — post 243701
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243701_1780597473.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویری که کاربران شبکه‌های اجتماعی روز چهارشنبه ۱۳ خرداد منتشر کرده‌اند شهروند میانسالی که «مرد کفن‌پوش» لقب گرفته را در کنار رودخانه زاینده‌رود نشان می‌دهد.
+این مرد با لباسی شبیه به کفن خطاب به دولت پزشکیان می‌گوید: «می‌خواهم با لباس احرام به دولت بروم و مشکلات تورم و گرانی را برطرف کنم، مگر نگفتید هرکه می‌خواهد به میدان بیاید؟ آقای پزشکیان اجازه بدهید من به دولت بروم و مشکل معیشت و اقتصاد ایران را حل کنم».
+
+انتشار این ویدیو دست‌مایه طنز کاربران شبکه‌های اجتماعی قرار گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342613
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342613_1780597475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I hope you get some social media clips.”
+
+Treasury Secretary Scott Bessent calls out Rep. Linda Sánchez during a Ways and Means Committee hearing after the California Democrat pressed Bessent about potential IRS audits related to President Trump and his family.
+
+SÁNCHEZ: “I'm curious to know who counts as Trump's ‘family’ for the purposes of this immunity. Is it his children, his in-laws, his grandchildren, his second or third cousin? His great-great-grandchildren? Do you know the answer to that question, Mr. Secretary?”
+
+BESSENT: “Again, I imagine you have the Justice Department phone number. I suggest you call them.”
+</div>
+
+## FarsiVOA — post 219597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فشار بر زنان در ایران با صدور و اجرای احکام سنگین زندان وارد مرحله تازه‌ای شده است. مریم باباجانی، معترض دی و شهروند اهل ایذه به ۳۲ سال و ۶ ماه زندان محکوم شد
+</div>
+
+## FarsiVOA — post 219596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با نامشخص بودن سرنوشت مذاکرات، اختلافات درون حاکمیت جمهوری اسلامی علنی‌تر شده است. در این میان هادی خامنه‌ای، عموی رهبر جمهوری اسلامی، با انتقاد از تندروها و حمایت از رویکرد واقع‌گرایانه‌تر در قبال مذاکرات، به یکی از صداهای متفاوت در مناقشات داخلی تبدیل شده است.
+</div>
+
+## BBCPersian — post 282857
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282857" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه رادیویی جام جهان‌نما، پنج‌شنبه ۱۴ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391002
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391002_1780597475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شجاعت رو از خردسالی به کودکانتان بیاموزید ✌️👌😁😁
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391001
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391001_1780597477.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اگه براتون سواله که اکس‌تون برگشت، باید چیکار کنین؟ حتما این کلیپو ببینین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391000
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391000_1780597478.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرج میرازی زمانه‌ات را بشناس
+هنر نزد میهن پرستان است و بس😏
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125126
+
+<div align="center">
+  <a href="telegram/content/alonews_125126_1780597479.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان: ایران می‌گوید در تنگه هرمز هزینه خدمات دریافت خواهد کرد، نه عوارض
+
+
+🔴 ایران می‌گوید به دنبال دریافت هزینه خدمات برای کشتی‌هایی است که از تنگه هرمز عبور می‌کنند، در ازای تضمین امنیت کشتی‌ها، به جای عوارض ترانزیت.
+
+
+🔴 این کشور به دنبال جبران خسارت برای خدماتی است که در کنار عمان انجام می‌دهد، از جمله کمک‌های ناوبری، جست‌وجو و نجات، خدمات امنیتی و ایمنی و خدمات پاکسازی محیط زیست در صورت آلودگی.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125125
+
+<div align="center">
+  <a href="telegram/content/alonews_125125_1780597479.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین درباره فلسطین: اکنون باتوجه به رویدادهای جاری در ایران و تنگه هرمز، ما فاجعه فلسطین را فراموش کرده‌ایم، اما این مسئله هنوز وجود دارد.
+
+
+🔴روسیه معتقد است که راه‌حل اساسی این موضوع، تأسیس کشور فلسطین است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 21:44
 ---
 
