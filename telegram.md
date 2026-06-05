@@ -7,6 +7,189 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 19:52
+---
+
+## VahidOOnLine — post 243822
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243822_1780676579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از کاهش شدید صادرات نفت ایران حکایت دارند. تجربه تاریخی نشان می‌دهد وقتی درآمد نفتی سقوط می‌کند، پیامدهای آن معمولا در بخش انرژی متوقف نمی‌ماند. از ونزوئلا تا اتحاد جماهیر شوروی، از عراق تا لیبی، شوک‌های نفتی اغلب فقط یک بحران مالی نیستند، بلکه واقعیت‌های عمیق‌تر اقتصادی و سیاسی را آشکار می‌کنند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243821
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243821_1780676579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مجتبی خامنه‌ای، رهبر سوم جمهوری اسلامی که هنوز از زمان انتصاب در انظار عمومی حضور نیافته و صدایش شنیده نشده، با عفو یا تخفیف مجازات بیش از ۲ هزار زندانی موافقت کرده است. به گزارش ایرنا، اکثریت این زندانیان پس از موافقت رهبر با درخواست غلامحسین محسنی اژه‌ای، رئیس قوه قضاییه، به‌طور فوری آزاد خواهند شد.
+
+ایرنا تاکید کرده است که محکومان «جرایم امنیتی» از جمله افرادی که به اتهام «جاسوسی» در زندان به سر می‌برند، مشمول این عفو قرار نگرفته‌اند.
+
+این تصمیم در حالی اتخاذ می‌شود که در پی اعتراضات سراسری دی‌ماه هزاران شهروند ایرانی با اتهامات ساختگی «جاسوسی و همکاری با کشور متخاصم» بازداشت شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️حمام خون در بازار کریپتو! بیش از ۶۳۵ میلیارد دلار تنها در کمتر از ۵ روز از ارزش کل بازار رمزارزها محو شده است. @withyashar
+</div>
+
+## FoxNewsTwitter — post 342652
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342652_1780676580.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Four teens allegedly tried to rob a former Marine at gunpoint outside his own home. Seconds later, the plan unraveled.
+
+Jheyco Borda Chura says he was installing a dashcam in his truck when the group approached and demanded his keys, phone, and belongings. Instead of handing them over, he says he grabbed the perp's gun.
+
+Doorbell video captures the chaotic struggle and a shot fired from the gun.
+
+Then Borda's father and younger brother sprint into frame to help the veteran.
+
+Police say the family held the suspects until officers arrived, and remarkably, no one was injured.
+</div>
+
+## IranIntlTV — post 340688
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340688_1780676582.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمتر از یک هفته مانده به آغاز جام جهانی ۲۰۲۶، رییس فدراسیون فوتبال جمهوری اسلامی با ادبیاتی تهدیدآمیز گفت به فیفا اعلام کرده در صورت صادر نشدن ویزای برخی اعضای تیم ملی، تصمیم‌های دیگری خواهد گرفت.
+
+گفت‌وگو با محمد تقوی، فوتبالیست پیشین تیم ملی ایران و باشگاه استقلال
+@iranintltv
+</div>
+
+## IranIntlTV — post 340687
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340687" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چرتکه: تورم اردیبهشت در برزخ نه جنگ، نه صلح
+@iranintlTV
+</div>
+
+## ManotoTV — post 105926
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105926_1780676584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از کاهش شدید صادرات نفت ایران حکایت دارند. تجربه تاریخی نشان می‌دهد وقتی درآمد نفتی سقوط می‌کند، پیامدهای آن معمولا در بخش انرژی متوقف نمی‌ماند. از ونزوئلا تا اتحاد جماهیر شوروی، از عراق تا لیبی، شوک‌های نفتی اغلب فقط یک بحران مالی نیستند، بلکه واقعیت‌های عمیق‌تر اقتصادی و سیاسی را آشکار می‌کنند.
+</div>
+
+## FarsiVOA — post 219677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور آمریکا اعلام کرد فوران آتشفشان «کیلاویا» در پارک ملی آتشفشان‌های هاوایی رکورد تازه‌ای در تعداد فوران‌های فواره‌ای گدازه ثبت کرده است.
+
+به گفته مقام‌های آمریکایی، این فوران همچنان ادامه دارد و کیلاویا به فعالیت خود ادامه می‌دهد.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125542
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125542_1780676584.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 حملات هوایی مرگبار اسرائیل به جنوب لبنان
+
+جنگنده‌های اسرائیل پس از صدور هشدار تخلیه برای ۹ روستا، مناطقی در جنوب لبنان را بمباران کردند که دست‌کم شش کشته برجای گذاشت.
+
+این حملات یک روز پس از مخالفت حزب‌الله با جدیدترین توافق آتش‌بس و درخواست این گروه برای خروج کامل نیروهای اسرائیلی از خاک لبنان رخ داد.
+
+هشدار تخلیه ارتش روز جمعه ۱۵ خرداد (۵ ژوئن) صدها خانواده از جمله ۲ هزار و ۵۰۰ آواره جنگی مستقر در روستای "عنقون" را مجبور به فرار کرد. تنها چند ساعت پس از هشدار این روستاها هدف بمباران قرار گرفتند.
+
+در واکنش به توافق پیشنهادی آتش‌بس نبیه بری، رئیس پارلمان لبنان و میانجیگر حزب‌الله اعلام کرد که عقب‌نشینی حزب‌الله از مناطق جنوب رود لیتانی تنها در صورت خروج همزمان نیروهای اسرائیلی پذیرفتنی است. وی با انتقاد از ویرانی‌های گسترده ارتش اسرائیل، طرح ایجاد "مناطق آزمایشی" را رد کرد و خواستار آتش‌بسی بی‌قیدوشرط شد.
+
+در تحولی میدانی نیروهای حافظ صلح سازمان ملل و ارتش لبنان در ورودی روستای ویران‌شده "دیبین" مستقر شدند. این نخستین عقب‌نشینی ارتش اسرائیل از یک منطقه در جنوب لبنان طی جنگ سه‌ماهه اخیر است.
+@dw_farsi
+</div>
+
+## RadioFarda — post 157935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت خزانه‌داری ایالات متحده روز جمعه تحریم‌های جدیدی مرتبط با ایران اعمال کرد و چندین نهاد، فرد و نفتکش‌های حامل گاز مایع، ال‌پی‌جی، را هدف قرار داد. 🔸بر اساس جزئیات منتشرشده در وب‌سایت این وزارتخانه، از میان ۱۲ نهادی که در فهرست تحریم‌ها قرار گرفته‌اند،…
+</div>
+
+## RadioFarda — post 157934
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157934_1780676585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت خزانه‌داری ایالات متحده روز جمعه تحریم‌های جدیدی مرتبط با ایران اعمال کرد و چندین نهاد، فرد و نفتکش‌های حامل گاز مایع، ال‌پی‌جی، را هدف قرار داد.
+
+🔸بر اساس جزئیات منتشرشده در وب‌سایت این وزارتخانه، از میان ۱۲ نهادی که در فهرست تحریم‌ها قرار گرفته‌اند، پنج نهاد در جزایر مارشال، چهار نهاد در امارات متحده عربی و یک نهاد در چین مستقر هستند.
+
+🔸همچنین شش کشتی هدف تحریم قرار گرفته‌اند که چهار فروند از آنها با پرچم پاناما فعالیت می‌کنند.
+
+🔸اسکات بسنت، وزیر خزانه‌داری آمریکا، در بیانیه‌ای گفت: «اقتصاد ایران در وضعیت نابسامانی قرار دارد و توان نظامی آن به‌شدت تضعیف شده است. از طریق کارزار "خشم اقتصادی" وزارت خزانه‌داری به قطع دسترسی ناوگان سایه، شبکه‌های بانکی سایه و مسیرهای تجارت جهانی ایران ادامه خواهد داد.»
+
+@RadioFarda
+</div>
+
+## manototv — post 105926
+
+<div align="center">
+  <a href="telegram/content/manototv_105926_1780676586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از کاهش شدید صادرات نفت ایران حکایت دارند. تجربه تاریخی نشان می‌دهد وقتی درآمد نفتی سقوط می‌کند، پیامدهای آن معمولا در بخش انرژی متوقف نمی‌ماند. از ونزوئلا تا اتحاد جماهیر شوروی، از عراق تا لیبی، شوک‌های نفتی اغلب فقط یک بحران مالی نیستند، بلکه واقعیت‌های عمیق‌تر اقتصادی و سیاسی را آشکار می‌کنند.
+</div>
+
+## alonews — post 125349
+
+<div align="center">
+  <a href="telegram/content/alonews_125349_1780676586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زلزله 4.8 ریشتری دقایقی پیش کازرون فارس را لرزاند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125348
+
+<div align="center">
+  <a href="telegram/content/alonews_125348_1780676586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: مقامات اسرائیلی معتقدند که تماس تلفنی اخیر بین ترامپ و نتانیاهو، که جزئیات آن به رسانه‌ها درز کرده است، یکی از داغ‌ترین تماس‌های بین دو طرف است و به ویژه با نزدیک شدن به انتخابات امسال، پیامدهای سیاسی در داخل اسرائیل را افزایش می‌دهد
+
+
+🔴یکی از این مقامات گفت که این افشاگری پیش از انتخابات به نتانیاهو آسیب سیاسی وارد کرده است
+
+
+🔴بر اساس نظرسنجی انجام شده توسط کانال ۱۲ اسرائیل، گادی آیزنکوت ، رئیس سابق ستاد کل ارتش ، برای اولین بار از نتانیاهو به عنوان مناسب‌ترین فرد برای ریاست دولت در آستانه انتخابات بعدی پیشی گرفته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 19:43
 ---
 
