@@ -7,6 +7,172 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 01:33
+---
+
+## WithYashar — post 13588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به NBC : وضعیت برای اونا واقعاً سخته
+
+یه جورایی استقلال زیادی هم دارن، ولی سال‌ها با یه رهبری ضعیف و بی‌اثر از طرف آمریکا و بعضی کشورهای دیگه طرف بودن؛
+طوری که عملاً گذاشتن هر کاری دلشون خواست بکنن.
+من فکر می‌کنم خودشون هم الان باورشون نمی‌شه به اینجا رسیدن؛ جایی که عملاً خیلی ضعیف شدن
+@withyashar
+</div>
+
+## WithYashar — post 13587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به شبکه ان بی سی: رهبران ایران چاره ای جز رسیدن به توافق ندارند‌‌
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342664
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342664_1780697002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“172,000 jobs were created in May. That’s about four times higher than anticipated.”
+
+President Trump says the jobs report crushed expectations for the third straight month, prompting cheers at an agriculture roundtable in Wisconsin.
+
+He highlighted the report as a sign of economic strength despite ongoing military tensions abroad.
+
+“These are the strongest jobs numbers of the entire administration so far.”
+</div>
+
+## pm_afshaa — post 92342
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92342_1780697003.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به شبکه ان بی سی: رهبران ایران چاره‌ای جز رسیدن به توافق ندارن. ایران بین 21 تا 22 درصد موشک‌هاش رو در اختیار داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340730
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340730_1780697004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ بار دیگر تاکید کرد جمهوری اسلامی تحت هیچ شرایطی به سلاح هسته‌ای دست نخواهد یافت. همزمان، اکسیوس گزارش داد سرنوشت توافق نهایی میان آمریکا و جمهوری اسلامی همچنان نامشخص است.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6536
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6536_1780697005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 21:55:11 UTC
+
+State-owned Mehr News denies the explosion sound from Kharg island.
+
+فارسی
+
+خبرگزاری دولتی مهر صدای انفجار در جزیره خارگ را تکذیب کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219706
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219706_1780697006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️محمد قائدی در برنامه تفسیر خبر: جمهوری اسلامی اورانیوم غنی‌سازی شده خود را تحویل خواهد داد
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درگیری های فعلی در خارک گویا همون همیشگی هست و چیز مهمی نیست
+اما اگر شدت گرفت لایو اضطراری خواهیم داشت
+</div>
+
+## alonews — post 125424
+
+<div align="center">
+  <a href="telegram/content/alonews_125424_1780697006.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به ان بی سی: خیلی از مقاماتشون هم مغرورن یه سری کارها هست که هیچ‌وقت فکر نمی‌کردن مجبور بشن انجام بدن
+
+
+🔴ولی الان مجبور شدن، راه دیگه‌ای ندارن و این قضیه زمان می‌بره
+
+
+🔴داریم درباره ۴۷ سال حرف می‌زنیم که هر کاری خواستن انجام دادن
+
+
+🔴توافق اوباما با ایران خیلی بد بود و از قبل هم عملاً تاریخش تموم شده بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125423
+
+<div align="center">
+  <a href="telegram/content/alonews_125423_1780697006.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به NBC : وضعیت برای اونا واقعاً سخته
+
+
+🔴یه جورایی استقلال زیادی هم دارن، ولی سال‌ها با یه رهبری ضعیف و بی‌اثر از طرف آمریکا و بعضی کشورهای دیگه طرف بودن؛
+
+
+🔴طوری که عملاً گذاشتن هر کاری دلشون خواست بکنن.
+
+
+🔴من فکر می‌کنم خودشون هم الان باورشون نمی‌شه به اینجا رسیدن؛ جایی که عملاً خیلی ضعیف شدن
+
+
+🔴این موضوع باید خیلی وقت پیش حل می‌شد
+
+
+🔴توسط رئیس‌جمهورهای قبلی یا کشورهای دیگه، لزوماً هم ما نه
+
+
+🔴ولی واقعیت اینه که دو بار تا ساخت سلاح هسته‌ای خیلی نزدیک شده بودن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125422
+
+<div align="center">
+  <a href="telegram/content/alonews_125422_1780697007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به شبکه ان بی سی: رهبران ایران چاره ای جز رسیدن به توافق ندارند‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 01:23
 ---
 
