@@ -7,6 +7,243 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 23:33
+---
+
+## VahidOOnLine — post 243858
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243858_1780689796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خزایی، نماینده ورامین در مجلس، گفت: «غنی‌سازی، توان دفاعی و موشکی، امنیت جبهه مقاومت و حقوق ملت ایران از موضوعاتی است که نباید مورد معامله یا عقب‌نشینی قرار گیرد.»
+
+او ادامه داد: «امروز جنگ در حوزه‌های شناختی، رسانه‌ای و اقتصادی دنبال می‌شود و دشمن تلاش می‌کند از طریق تاثیرگذاری بر گرانی، گران‌فروشی، احتکار و فشار بر معیشت مردم اهداف خود را محقق کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243857
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243857_1780689797.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از شهروندان در شمیران تهران شامگاه جمعه ۱۵ خرداد از درون خانه‌ها فریاد «مرگ بر جمهوری اسلامی» سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243856
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243856_1780689799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه ۱۵ خرداد در جریان پاسخ به پرسش‌های خبرنگاران در هواپیمای اختصاصی رئیس‌جمهور، گفت که حجم «بسیار زیادی» نفت در حال عبور از تنگه هرمز است.
+
+ترامپ که برای شرکت در میزگردی با کشاورزان عازم ایالت ویسکانسین بود، گفت: «نمی‌خواهیم آمار [دقیق] بدهم، اما مقدار آن بسیار زیاد است. حجم عظیمی از نفت وارد کشور ما و بازارهای جهانی می‌شود و مردم حتی از آن باخبر هم نیستند؛ به همین دلیل است که قیمت نفت به جای بشکه‌ای ۳۰۰ دلار، اکنون روی ۹۷ دلار ایستاده است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار ناشناس در نزدیکی کنسولگری ایران در استان سلیمانیه در شمال عراق.
+@withyashar
+</div>
+
+## pm_afshaa — post 92329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار در اطراف سفارت ج.ا در سلیمانیه عراق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2658
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2658_1780689800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 سرور ابری رو از هر جای دنیا و با هر ارزی که دوست داری بخر!
+
+🌍 دیگه نیازی نیست برای خرید سرور از دیتاسنترهای معتبر جهانی دغدغه پرداخت یا محدودیت لوکیشن داشته باشی. در دوپراکس (Doprax)، بهترین زیرساخت‌های ابری دنیا در یک پنل اختصاصی زیر دست شماست!
+
+با دوپراکس می‌تونی از غول‌های تکنولوژی مثل Google Cloud, DigitalOcean, Hetzner, Vultr و چندین پروایدر دیگر، سرور تهیه کنی.
+
+✨ چرا دوپراکس بهترین انتخاب شماست؟
+📍 تنوع لوکیشن: دسترسی به ده‌ها لوکیشن مختلف در اروپا، آمریکا، آسیا.
+💳 پرداخت بدون مرز: امکان پرداخت آسان با ریال و یا رمزارز.
+⏱️ پرداخت ساعتی: فقط به اندازه‌ای که مصرف می‌کنی پول بده!
+🔄 امکان تعویض IP: قابلیت تغییر آی‌پی در اکثر دیتاسنترها.
+
+همین حالا وارد سایت شو و اولین سرورت رو با کانفیگ دلخواهت بساز 👇
+
+🌐 وب‌سایت: www.doprax.com
+
+💬 پشتیبانی و اخبار در کانال ما:
+@dopraxcloud
+</div>
+
+## IranIntlTV — post 340719
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340719_1780689801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خزایی، نماینده ورامین در مجلس، گفت: «غنی‌سازی، توان دفاعی و موشکی، امنیت جبهه مقاومت و حقوق ملت ایران از موضوعاتی است که نباید مورد معامله یا عقب‌نشینی قرار گیرد.»
+
+او ادامه داد: «امروز جنگ در حوزه‌های شناختی، رسانه‌ای و اقتصادی دنبال می‌شود و دشمن تلاش می‌کند از طریق تاثیرگذاری بر گرانی، گران‌فروشی، احتکار و فشار بر معیشت مردم اهداف خود را محقق کند.»
+https://iranintl.com/202606056001
+</div>
+
+## IranIntlTV — post 340718
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340718_1780689802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از شهروندان در شمیران تهران شامگاه جمعه ۱۵ خرداد از درون خانه‌ها فریاد «مرگ بر جمهوری اسلامی» سردادند.
+</div>
+
+## IranIntlTV — post 340717
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340717" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: توقیف یک نفت‌کش و تحریم صنعت نفت و گاز ادامه فشار اقتصادی واشینگتن بر تهران
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6528
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6528_1780689805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 19:57:53 UTC
+
+Blast in Sulaimaniyah was reportedly near the Iranian Consulate building.
+#KRI, #Iraq 🇮🇶
+
+فارسی
+
+گزارش‌ها حاکی از آن است که انفجار در سلیمانیه در نزدیکی ساختمان کنسولگری ایران رخ داده است.
+#KRI, #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219700
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219700_1780689806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️همن سیدی در برنامه تفسیر خبر: جمهوری اسلامی تنگه هرمز را به کارت سوخته یکبار مصرف تبدیل کرد
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/Hn1QyiiGrKI?feature=share»
+</div>
+
+## Persian_Trend_Official — post 15772
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15772_1780689807.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/Hn1QyiiGrKI?feature=share
+</div>
+
+## Dirty_Kids — post 391086
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391086_1780689808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه رسما دارن تو اینستاگرام فارسی پورن داستانی میسازن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391085
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391085_1780689810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شماها حکم دستمال رو برای حکومت دارید و وقتی کارشون با شما تمام شد شما رو به سطل زباله هدایت می کنند😀😀
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391084
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391084_1780689810.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جوری که ترامپ تنگه هرمز رو به یه مشکل برای خودش تبدیل کرد:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125402
+
+<div align="center">
+  <a href="telegram/content/alonews_125402_1780689812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر پاکستان: همواره در کنار آمریکا بوده‌ایم؛ برای همیشه از «ترامپ» به عنوان «مرد صلح» یاد خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125401
+
+<div align="center">
+  <a href="telegram/content/alonews_125401_1780689812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / نایا : انفجار ناشناس در نزدیکی کنسولگری ایران در استان سلیمانیه در شمال عراق. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125400
+
+<div align="center">
+  <a href="telegram/content/alonews_125400_1780689813.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / نایا : انفجار ناشناس در نزدیکی کنسولگری ایران در استان سلیمانیه در شمال عراق.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 23:22
 ---
 
