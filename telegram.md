@@ -7,6 +7,169 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 01:43
+---
+
+## VahidOOnLine — post 243867
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243867_1780697596.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت دادگستری آمریکا با انتشار بیانیه‌ای رسمی اعلام کرد که نیروهای ایالات متحده طی یک عملیات شبانه، ابرنفتکش «ام/تی داوینا» (M/T Davina) معروف به «لنور» را که ظرفیت حمل تا دو میلیون بشکه نفت را دارد و در فهرست تحریم‌های وزارت خزانه‌داری آمریکا علیه بخش نفت و پتروشیمی ایران قرار گرفته است، توقیف کرده‌اند. بر اساس اعلام واشنگتن، این شناور بخشی از «ناوگان سایه» ایران به شمار می‌رود؛ شبکه‌ای از تسهیل‌کنندگان حمل‌ونقل غیرقانونی که به گفته مقامات آمریکایی، به درآمدزایی انرژی برای نظام ایران، به خطر انداختن ثبات منطقه و حمله به شرکا و متحدان ایالات متحده کمک کرده است. وزارت دادگستری آمریکا تاکید کرد که این اقدام بخشی از تلاش‌های هماهنگ با سایر نهادهای دولتی برای اختلال در شبکه قاچاق نفت و درآمدزایی‌هایی است که به سود دولت ایران و سپاه پاسداران تمام می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوتا صدای انفجار الان ومد همین الان قشم🚨
+@withyashar
+</div>
+
+## WithYashar — post 13590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری ان‌بی‌سی: رهبران جمهوری اسلامی معتقد نیستن که به‌طور کامل شکست خوردن.
+
+ترامپ: ایران به دلیل تصور برخورداری از قدرت کافی، از امضای توافق خودداری کرده. ایران در نهایت گزینه‌ای جز توافق نخواهد داشت.
+@withyashar
+</div>
+
+## WithYashar — post 13589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ان بی سی:
+خیلی از مقاماتشون مغرورن، یه سری کارها هست که هیچوقت فکر نمی‌کردن مجبور بشن انجام بدن ولی الان مجبور شدن، راه دیگه‌ای ندارن و این قضیه زمان می‌بره.
+
+داریم درباره 47 سال حرف میزنیم که هر کاری خواستن انجام دادن.
+@withyashar
+</div>
+
+## pm_afshaa — post 92344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️مجری ان‌بی‌سی: رهبران جمهوری اسلامی معتقد نیستن که به‌طور کامل شکست خوردن.
+
+ترامپ: ایران به دلیل تصور برخورداری از قدرت کافی، از امضای توافق خودداری کرده. ایران در نهایت گزینه‌ای جز توافق نخواهد داشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92343
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92343_1780697597.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به ان بی سی:
+خیلی از مقاماتشون مغرورن، یه سری کارها هست که هیچوقت فکر نمی‌کردن مجبور بشن انجام بدن ولی الان مجبور شدن، راه دیگه‌ای ندارن و این قضیه زمان می‌بره.
+
+داریم درباره 47 سال حرف میزنیم که هر کاری خواستن انجام دادن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6537
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6537_1780697597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:12:11 UTC
+
+3 blasts in Qeshm island, Hormozgan Province, #Iran
+2 @ 2208Z and one at 2211Z
+
+فارسی
+
+۳ انفجار در جزیره قشم، استان هرمزگان، #Iran
+۲ انفجار در ۲۲۰۸ زولو (۰۱:۳۸ به وقت تهران) و یکی در ۲۲۱۱ زولو (۰۱:۴۱ به وقت تهران)
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219707
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219707_1780697598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امیرحسین ثابتی مذاکرات با آمریکا را «ابلهانه و سفیهانه» توصیف کرده است؛ مذاکراتی که مقام‌های جمهوری اسلامی می‌گویند با تأیید مجتبی خامنه‌ای در حال انجام است. از بستن تنگه هرمز تا اعتراض به وصل شدن اینترنت، هر جناحی در جمهوری اسلامی ساز خودش را می‌زند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15775
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15775_1780697598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش قاطعیتتون رو نشون بدید عمو ببینه 😎
+</div>
+
+## BBCPersian — post 282933
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282933_1780697600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وب‌سایت آکسیوس گزارش داده است که استیو ویتکاف و جرد کوشنر، فرستادگان دونالد ترامپ، روز پنجشنبه برای رایزنی با گروهی از کارشناسان فنی به آزمایشگاه ملی اوک‌ریج در ایالت تنسی سفر کردند.
+
+به نوشته آکسیوس، کاخ سفید در تلاش است با ایران بر سر یک تفاهم‌نامه برای پایان دادن به جنگ و آغاز مذاکرات تفصیلی هسته‌ای «به توافق برسد» و می‌خواهد در صورت آغاز این مذاکرات، تیم کارشناسی لازم را آماده داشته باشد.
+
+به گفته منابع آمریکایی و منطقه‌ای، تهران و واشنگتن همچنان بر سر برخی جزئیات این تفاهم‌نامه اختلاف دارند، اما مذاکرات وارد مراحل پایانی شده است.
+@BBCPersian
+</div>
+
+## alonews — post 125425
+
+<div align="center">
+  <img src="telegram/content/alonews_125425_1780697600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+​
+🔼 کسب درآمد از فروش VPN هنوزم ممکنه!
+
+درآمد چندتا از نماینده‌ها رو ببین 
+👀
+
+پنل نمایندگی وی‌پی‌ان گذربان، سریع‌ترین و راحت‌ترین راه برای پول درآوردنه 
+✔️
+
+​
+🤑 چرا پنل نمایندگی گذربان؟
+
+
+🚀 سرعت و کیفیت بی‌نظیر
+
+⚙️ پنل مدیریتی حرفه‌ای
+
+💵 سود عالی
+
+⭐️ بدون ریسک
+
+​فرصت رو از دست نده و کلمه «الو» رو بفرست 
+👇
+@GozarBanAdmin
+@GozarBanAdmin
+@GozarBanAdmin
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 01:33
 ---
 
