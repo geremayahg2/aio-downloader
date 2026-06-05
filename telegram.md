@@ -7,6 +7,300 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 01:53
+---
+
+## VahidOOnLine — post 243869
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243869_1780698213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک مقام آمریکایی گزارش داد جمهوری اسلامی چندین پهپاد انتحاری را به سمت تنگه هرمز پرتاب کرد که هواپیماهای آمریکا دست‌کم چهار پهپاد را سرنگون کردند.
+این مقام گفت مقام‌های آمریکایی گمان می‌کنند این پهپادها کشتی‌های تجاری در حال عبور از آب‌های منطقه یا نیروهای آمریکایی فعال در نزدیکی آن منطقه را هدف قرار داده بودند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243868
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243868_1780698213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با شبکه «ان‌بی‌سی نیوز» با تاکید بر اینکه مقامات ایران به شدت به دنبال توافق هستند اما به دلیل «قوی و مغرور بودن»، پذیرش شرایط برایشان دشوار است، اعلام کرد: «آن‌ها در موقعیتی قرار گرفته‌اند که باور نمی‌کنند سرشان بریده و ارتش آن‌ها کاملا نابود شده است.» ترامپ با اشاره به اینکه تهران پیش از این دو بار در آستانه دستیابی به سلاح هسته‌ای قرار داشت، خروج خود از برجام را که آن را مسیر رسیدن ایران به بمب اتمی می‌دانست، ستود و افزود: «بسیاری از کارخانه‌های پهپادی، سکوهای پرتاب و مراکز تولید موشک ایران از بین رفته‌اند و در حال حاضر تنها حدود ۲۱ تا ۲۲ درصد از موشک‌های آن‌ها باقی مانده است؛ این میزان هنوز کم نیست، اما با آنچه در شروع حمله داشتند قابل مقایسه نیست.» او با انتقاد از فشارها برای توافق فوری، سرعت خود را با جنگ ۱۹ ساله ویتنام مقایسه کرد و گفت: «من بسیار سریع حرکت می‌کنم و تازه در ماه سوم هستم؛ این آدم‌ها ۴۷ سال است که در حال جنگ هستند و آمریکایی‌ها را کشته‌اند، اما اکنون چاره دیگری ندارند و در نهایت مجبور خواهند شد کارهایی را که هرگز فکرش را هم نمی‌کردند، انجام دهند و توافق کنند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش هایی از قطع شدن اینترنت
+@withyashar
+</div>
+
+## WithYashar — post 13592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی ان ان : منابع می گوید ایران چندین پهپاد را به سمت تنگه هرمز پرتاب کرده است. نیروهای ایالات متحده حداقل 3 تا از آنها را رهگیری کردند
+@withyashar 🚨
+</div>
+
+## FoxNewsTwitter — post 342665
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342665_1780698214.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @EricShawnTV: It certainly was the most unexpected celebration of our country’s founding, the July 4th block party sponsored by John Gotti. A look back at the days of the Mafia Don in the new documentary “Gotti’s Guy,” now streaming on Fox Nation. @foxnation @FoxNews @foxnewspolitics
+</div>
+
+## pm_afshaa — post 92346
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92346_1780698216.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان: امشب ایران پهپادهایی رو به سمت تنگه هرمز پرتاب کرده و نیروهای آمریکایی 3 فروند پهباد رو سرنگون کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92345
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92345_1780698216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: این دیگه خیلی جنگ حساب نمیشه؛ یه درگیری نظامیه که بیشتر شبیه تمرین می‌مونه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5377
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5377_1780698217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 سرهنگ پزشک علی خانی از معاونت بهداشت و درمان فراجا در ویدیویی با خطاب قرار دادن مجتبی خامنه‌ای،‌‌ از فساد و تخلف فرماندهان آن معاونت و سکوت و بی‌توجهی فرماندهان ارشد و هیات رییسه فراجا نسبت به اعتراض و شکایات پرسنل اعتراض کرد.
+
+#فراجا
+@DEJradio
+</div>
+
+## DEJradio — post 5376
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5376_1780698219.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 بر اساس گزارش‌های دریافتی، «زهرا عاطفی‌فرد» از کارکنان کلانتری ۲۱ قم، پس از مصرف تعداد زیادی قرص به زندگی خود پایان داد.
+
+برخی منابع علت این اقدام را فشارهای روحی و روانی و مشکلات ناشی از محیط کاری عنوان کرده‌اند؛ با این حال تاکنون جزئیات رسمی و تأییدشده‌ای درباره علت این حادثه منتشر نشده است.
+
+در صورت انتشار اطلاعات رسمی از سوی مراجع ذی‌صلاح، جزئیات تکمیلی اطلاع‌رسانی خواهد شد.
+
+#خودکشی #نیروی_انتظامی #قم
+@DEJradio
+</div>
+
+## IranIntlTV — post 340732
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340732_1780698220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از یک مقام آمریکایی گزارش داد جمهوری اسلامی چندین پهپاد انتحاری را به سمت تنگه هرمز پرتاب کرد که هواپیماهای آمریکا دست‌کم چهار پهپاد را سرنگون کردند.
+این مقام گفت مقام‌های آمریکایی گمان می‌کنند این پهپادها کشتی‌های تجاری در حال عبور از آب‌های منطقه یا نیروهای آمریکایی فعال در نزدیکی آن منطقه را هدف قرار داده بودند.
+
+https://iranintl.com/202606058431
+</div>
+
+## IranIntlTV — post 340731
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340731_1780698220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تام باراک، سفیر آمریکا در ترکیه روز جمعه در پیامی در شبکه ایکس صدور ویزا برای بازیکنان تیم ملی را تأیید کرد: «به تیم فوق‌العاده‌مان در سفارت آمریکا در آنکارا افتخار می‌کنیم که برای رسیدگی به درخواست ویزای تیم فوتبال ایران در مسیر حضورشان در جام جهانی در ایالات متحده تلاش کردند.»
+
+🔹او این مطلب را در واکنش به گزارشی منتشر کرد که اعلام کرده بود بازیکنان ایران ویزای ورود به آمریکا را دریافت کرده‌اند.
+
+🔹رویترز روز جمعه به نقل از یک مقام کاخ سفید خبر داد بازیکنان تیم ملی برای ورود به آمریکا ویزا دریافت کرده‌اند.
+
+🔹همچنین الجزیره به نقل از منابعی گزارش داد که دست‌کم ۱۵ نفر از اعضای کادر تیم ملی ایران با رد درخواست ویزای خود از سوی ایالات متحده برای حضور در جام جهانی ۲۰۲۶ مواجه شده‌اند. این افراد شامل برخی مربیان، اعضای کادر فنی و کارکنان اجرایی هستند.
+
+🔹منابع این رسانه گفته‌اند که برخی از افرادی که ویزای آن‌ها رد شده، به‌طور رسمی از سوی فیفا به‌عنوان بخشی از کادر مربیگری و یا فنی تیم به رسمیت شناخته شده بودند: «بازیکنان تحت تأثیر این تصمیم قرار نگرفته‌اند.»
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6540
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:21:05 UTC
+
+🫪
+(First time using this emoji)
+
+فارسی
+
+🫪
+(اولین بار است که از این ایموجی استفاده می‌کنم)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:19:32 UTC
+
+Initial:
+#USAF 🇺🇸 airstrikes on Saladin governorate, western #Iraq 🇮🇶
+
+فارسی
+
+حملات هوایی نیروی هوایی ایالات متحده (USAF) 🇺🇸 به استان صلاح‌الدین در غرب #عراق 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:17:18 UTC
+
+Explosions reported in Salah al-Din Province, #Iraq 🇮🇶
+
+فارسی
+
+گزارش‌هایی از وقوع انفجار در استان صلاح‌الدین، #Iraq 🇮🇶 منتشر شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ: رهبران جمهوری اسلامی چون «مغرور» هستند تاکنون توافق نکرده‌اند اما چاره‌ای جز توافق ندارند
+
+▪️رئیس‌جمهوری آمریکا، دونالد ترامپ، روز جمعه در مصاحبه‌ای اختصاصی با شبکه ان‌بی‌سی نیوز گفت که رهبران جمهوری اسلامی هنوز به توافقی با آمریکا برای پایان دادن به جنگ جاری دست نیافته‌اند، زیرا «سرسخت» و «مغرور» هستند، اما در نهایت «چاره‌ای جز توافق ندارند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157786.html
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 391102
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391102_1780698221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391101
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391101_1780698221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد میگن چرا از تجاوز بهش خوشحالی
+بچ من ناراحتم که زیر بار تجاوز نمرده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391100
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391100_1780698221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقا این موزیک جدیدا مثل بمب ترکیده توی اینستا و وایرال شده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391099
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391099_1780698222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجب تبلیغی ساخته نایک، عجب ستاره‌هایی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391098
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391098_1780698224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آهنگ میخوام از تتلو ورژن اسلامی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391097
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391097_1780698225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دوره زمونه هم عوض شده
+الان دیگه دخترا گروهی دعوا میکنند پسرا میشینن یه گوشه نگاه میگنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391096
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391096_1780698227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیش بینی های درست تاریخ! یا ما خواب بودیم و سر در برف یا حریف مکار و بد حیله گر!
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 01:43
 ---
 
