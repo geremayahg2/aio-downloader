@@ -7,6 +7,145 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 02:23
+---
+
+## WithYashar — post 13598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین انفجار در سيريك
+🚨🚨🚨🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 13597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌بی‌اس نیوز به نقل از یک مقام آمریکایی: نیروهای آمریکایی حداقل ۴ پهپاد را که توسط ایران به سمت تنگه هرمز پرتاب شده بود، سرنگون کرده‌اند.🚨
+@withyashar بچه جنگ شده باز
+</div>
+
+## pm_afshaa — post 92347
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92347_1780700006.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان: امشب ایران پهپادهایی رو به سمت تنگه هرمز پرتاب کرده و نیروهای آمریکایی 3 فروند پهباد رو سرنگون کردن. هدف این پهپادها یا کشتی‌های تجاری عبوری از منطقه بوده یا نیروهای آمریکایی مستقر در اطراف تنگه هرمز. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino…
+</div>
+
+## VahidOnline — post 75957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ سیریک هرمزگان
+
+پیام‌های دریافتی:
+پایگاه نیروی دریایی سپاه بندر سیریک رو همین الان دوباره زدند. همون لوکیشن چند روز پیش.
+
+شهرستان سیریک صدای لانچ موشک ساعت ۲:۱۴
+
+سلام ساعت دو ده دیقه
+پنج تا انفجار نیرو دریای سپاه سیرک هرمزگان
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75956
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75956_1780700006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وب‌سایت آکسیوس گزارش داده است که استیو ویتکاف و جرد کوشنر، فرستادگان دونالد ترامپ، روز پنجشنبه برای رایزنی با گروهی از کارشناسان فنی به آزمایشگاه ملی اوک‌ریج در ایالت تنسی سفر کردند.
+
+به نوشته آکسیوس، کاخ سفید در تلاش است با ایران بر سر یک تفاهم‌نامه برای پایان دادن به جنگ و آغاز مذاکرات تفصیلی هسته‌ای «به توافق برسد» و می‌خواهد در صورت آغاز این مذاکرات، تیم کارشناسی لازم را آماده داشته باشد.
+
+به گفته منابع آمریکایی و منطقه‌ای، تهران و واشنگتن همچنان بر سر برخی جزئیات این تفاهم‌نامه اختلاف دارند، اما مذاکرات وارد مراحل پایانی شده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340735
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340735_1780700007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ساعاتی پیش از سفر تیم ملی فوتبال به مکزیک برای اقامت در کمپ اصلی تمرینی جام جهانی ۲۰۲۶، خبرگزاری رویترز گزارش داد آمریکا برای همه بازیکنان تیم ملی، ویزا صادر کرده است.
+
+🔹در ادامه، شبکه تلویزیونی الجزیره هم به نقل از منابعی آگاه نوشت که آمریکا دست‌کم برای ۱۵ نفر از کادر فنی و اجرایی تیم ملی، ویزا صادر نکرده است.
+
+🔹قرار است تیم فوتبال ایران در مرحله گروهی جام جهانی ۲۰۲۶ در شهرهای لس آنجلس و سیاتل با نیوزیلند، بلژیک و مصر بازی کند.
+
+🔹رضا محدث، خبرنگار ایران اینترنشنال گزارش می‌دهد.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:51:15 UTC
+
+Sirik Naval Base has been targeted @ 2240Z Hormozgan Province, #Iran
+
+فارسی
+
+پایگاه دریایی سیریک در ساعت ۲۲۴۰ زولو (۰۲:۱۰ به وقت تهران) در استان هرمزگان هدف قرار گرفته است. #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6546
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:49:10 UTC
+
+CENTCOM: U.S. forces shot down four Iranian one-way attack drones heading toward the Strait of Hormuz, then struck Iranian coastal radar sites in Goruk and Qeshm Island. The drones posed an immediate threat to maritime traffic.
+
+فارسی
+
+سنتکام (ستاد فرماندهی مرکزی ایالات متحده): نیروهای آمریکایی چهار پهپاد تهاجمی یک‌طرفه ایرانی را که به سمت تنگه هرمز در حرکت بودند سرنگون کردند و سپس سایت‌های راداری ساحلی ایران در گروک و جزیره قشم را مورد هدف قرار دادند. این پهپادها تهدیدی فوری برای تردد دریایی بودند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 22:44:10 UTC
+
+Numerous #USAF 🇺🇸 tankers up in the region
+
+فارسی
+
+تعداد زیادی تانکر سوخت‌رسان نیروی هوایی ایالات متحده (USAF) 🇺🇸 در منطقه حضور دارند #USAF
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219713
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219713_1780700008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترامپ: ما برای خارج کردن اورانیوم غنی‌شده مدفون در ایران نیازی به توافق با جمهوری اسلامی نداریم
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 02:13
 ---
 
