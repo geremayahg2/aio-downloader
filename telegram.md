@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 02:33
+---
+
+## WithYashar — post 13600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام : چند لحظه پیش، نیروهای سنتکام چهار پهپاد تهاجمی یک‌طرفهٔ ایرانی را که به سمت تنگهٔ هرمز پرتاب شده بودند، سرنگون کردند. این پهپادهای تهاجمی تهدیدی فوری برای تردد دریایی منطقه ایجاد کرده بودند. در ادامه، نیروهای آمریکا برای دفاع در برابر حملات بیشتر، سایت‌های رادار مراقبت ساحلی ایران در گورک و جزیرهٔ قشم را هدف قرار دادند.
+نیروهای آمریکایی همچنان هوشیار هستند و برای پاسخ‌دادن به تجاوز بی‌دلیل ایران در چارچوب دفاع از خود، در حالت آماده‌باش قرار دارند.
+🚨🚨🚨🚨🚨🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 13599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سنتکام از حمله به سایت های راداری قشم خبر داد!
+@withyashar
+</div>
+
+## Shin_Persian — post 6551
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Tammuz Intel ✓ @Tammuz_Intel
+Fri, 05 Jun 2026 22:44:56 UTC
+
+Unknown drone was shot down over Baiji Oilfields by Iraqi security forces.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+یک پهپاد ناشناس توسط نیروهای امنیتی عراق بر فراز میدان‌های نفتی بیجی سرنگون شد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکاف عمیق میان صفوف گروه‌های مسلح تحت امر جمهوری اسلامی در عراق
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15777
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15777_1780700620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌌
+F-16 Falcon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنت‌کام: لحظاتی پیش، نیروهای سنتکام چهار پهپاد حمله یک‌طرفه ایرانی را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند. این پهپادهای حمله تهدید فوری برای ترافیک دریایی منطقه بودند. نیروهای آمریکایی سپس سایت‌های رادار نظارت ساحلی ایرانی در خارک و جزیره قشم…
+</div>
+
+## IranianMinds — post 21457
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21457_1780700621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنت‌کام:
+
+لحظاتی پیش، نیروهای سنتکام چهار پهپاد حمله یک‌طرفه ایرانی را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند. این پهپادهای حمله تهدید فوری برای ترافیک دریایی منطقه بودند.
+
+نیروهای آمریکایی سپس سایت‌های رادار نظارت ساحلی ایرانی در خارک و جزیره قشم را برای دفاع در برابر حملات بیشتر هدف قرار دادند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجب جَو عجیبی شده
+مخالفای جمهوری اسلامی شدن هیتر ترامپ
+موافقای جمهوری اسلامی دارن میشن هیتر جمهوری اسلامی
+
+چرا هیچی سر جاش نیست؟
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 02:23
 ---
 
