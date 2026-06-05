@@ -7,6 +7,118 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 23:53
+---
+
+## FoxNewsTwitter — post 342661
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342661_1780690994.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“He’s going faster than all the cars!”
+
+That was the reaction after a motorized wheelchair user was spotted speeding alongside traffic on a busy road near Baltimore.
+
+The video shows the wheelchair keeping pace with surrounding vehicles as stunned drivers watched it unfold.
+
+The unexpected sight left onlookers doing double takes and quickly sparked attention online.
+</div>
+
+## DEJradio — post 5370
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آمریکا ویزای بازیکنان تیم فوتبال جمهوری اسلامی ایران را صادر کرد
+
+یک مقام کاخ سفید روز آدینه به خبرگزاری رویترز گفت آمریکا ویزای بازیکنان تیم ملی فوتبال جمهوری اسلامی ایران را برای حضور در جام جهانی ۲۰۲۶ صادر کرده است.
+اکیپ فوتبالی جمهوری اسلامی قرار است در نخستین دیدار ۲۶ خردادماه در لس‌آنجلس برابر نیوزلند بازی کند.
+این تیم ۳۱ خرداد برابر بلژیک و ۶ تیرماه مقابل مصر به میدان می‌رود.
+تیم فوتبال جمهوری اسلامی اردو و محل اقامت خود را در تیخوانای مکزیک مستقر کرده و فقط برای مسابقات وارد آمریکا می‌شود.
+وزارت امور خارجهٔ آمریکا پیش‌تر اعلام کرده بود افراد مرتبط با سپاه پاسداران در هیئت همراه تیم، اجازه ورود به آمریکا ندارند.
+خبرگزاری حکومتی فارس گزارش داد ویزای برخی از اعضای کادر فنی و همراهان تیم هنوز صادر نشده است.
+آمریکا افرادی را که پیشینهٔ حضور در سپاه پاسداران را دارند، به این‌ کشور راه نمی‌دهد.
+سپاه در سیاههٔ تروریستی آمریکا قرار دارد.
+
+#خبر #دژ #فوتبال #جام_جهانی
+@DEJradio
+</div>
+
+## DEJradio — post 5369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ: همچنان نفت زیادی از تنگهٔ هرمز عبور می‌کند
+
+دونالد ترامپ، رئیس جمهوری آمریکا، شامگاه آدینه گفت همچنان حجم زیادی از نفت از تنگهٔ هرمز عبور می‌کند.
+ترامپ در هواپیمای ایر فورس وان، گفت نفت زیادی وارد بازار جهانی می‌شود.
+او افزود که به همین دلیل، لهای نفت اکنون درحدود ۹۷ دلار در هر بشکه است و به ۳۰۰ دلار نرسیده اشت.
+رئیس جمهوری آمریکا رقم دقیق صادرات و عبور نفت از تنگهٔ هرمز را اعلام نکرد.
+در روزهای اخیر گزارش‌هایی در مورد عبور شماری از نفتکش‌ها از آبراه هرمز با هماهنگی و پشتیبانی ارتش آمریکا منتشر شده بود.
+
+#خبر #دژ #تنگه_هرمز
+@DEJradio
+</div>
+
+## mamlekate — post 103618
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 بنیان‌گذار آنتروپیک: توسعه هوش مصنوعی بدون نظارت انسان را باید متوقف کنیم
+
+جک کلارک، از بنیان‌گذاران شرکت «آنتروپیک»، که در حوزه هوش مصنوعی (ا‌ی آی) فعالیت می‌کند، هشدار داده است که هوش مصنوعی به نقطه‌ای نزدیک می‌شود که ممکن است بتواند بدون دخالت مستقیم انسان به توسعه خود ادامه دهد.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 340721
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340721_1780690996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک عضو مجلس جمهوری اسلامی گفت امتیازدهی در میز مذاکره خطاست. همزمان، امامان جمعه در شهرهای مختلف از آنچه عقب‌نشینی‌های مکرر آمریکا خواندند سخن گفتند و تاکید کردند دونالد ترامپ در حال بلند کردن پرچم سفید است و پیروزی نزدیک است.
+
+گفت‌وگو با مهدی نخل‌احمدی، روزنامه‌نگار و فعال سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 340720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک عضو مجلس جمهوری اسلامی گفت امتیازدهی در میز مذاکره خطاست. همزمان، امامان جمعه در شهرهای مختلف از آنچه عقب‌نشینی‌های مکرر آمریکا خواندند سخن گفتند و تاکید کردند دونالد ترامپ در حال بلند کردن پرچم سفید است و پیروزی نزدیک است.
+
+گفت‌وگو با مهدی نخل‌احمدی، روزنامه‌نگار و فعال سیاسی
+@iranintltv
+</div>
+
+## IranianMinds — post 21446
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21446_1780690999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمریکا به تیم جمهوری اسلامی ویزا داد.
+
+@IranianMinds
+</div>
+
+## alonews — post 125403
+
+<div align="center">
+  <a href="telegram/content/alonews_125403_1780691000.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عکس امروز از دست ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 23:43
 ---
 
