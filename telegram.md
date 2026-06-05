@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 17:43
+---
+
+## mwarmonitor — post 10174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سوالی دارید دایرکت جواب میدم ...
+</div>
+
+## IranIntlTV — post 340669
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340669_1780668783.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیات منصفه دادگاه سلطنتی وولویچ در لندن اعلام کرد دو متهم پرونده حمله به پوریا زراعتی، مجری ایران‌اینترنشنال، به اتفاق آرا مجرم شناخته شدند. بر اساس رای صادرشده، نخستین جرم این دو متهم، ایراد جراحت عمدی با قصد وارد کردن صدمه شدید جسمی به پوریا زراعتی است.
+
+علی رشید، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340668
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340668_1780668784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش خبرنگار ایران‌اینترنشنال، هیات منصفه دادگاه سلطنتی وولویچ دو متهم پرونده حمله به پوریا زراعتی، مجری ایران‌اینترنشنال، را به اتفاق آرا مجرم شناخت.
+
+بر اساس این گزارش، قاضی اعلام کرد جلسه صدور حکم در ۱۲ تیر ماه برگزار خواهد شد.
+https://iranintl.com/202606051615
+</div>
+
+## FarsiVOA — post 219667
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219667_1780668785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیژن عبدالکریمی، استاد دانشگاه حامی حکومت در تهران، می‌گوید برای رسیدن به انسجام ملی و فراهم شدن زمینه اصلاحات، باید خطرات امنیتی و ژئوپلیتیکی ایران را به رسمیت شناخت.
+
+به گفته عبدالکریمی نادیده گرفتن این مسائل می‌تواند مانع شکل‌گیری آگاهی و اجماع ملی برای پیگیری اصلاحات شود. او که در یک برنامه تلویزیونی در ایران صحبت می‌کرد، گفت روشنفکری که خطرات امنیتی و ژئوپولیتیک خاورمیانه را درک نکند، باید هفت بار با آرپی‌جی اعدام شود.
+
+@FarsiVOA
+</div>
+
+## alonews — post 125327
+
+<div align="center">
+  <a href="telegram/content/alonews_125327_1780668786.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گروسی: ایران و آمریکا نسبتاً به توافق نزدیک هستند؛ البته این را بیشتر در ارتباط با موضوع هسته‌ای می‌گویم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 17:33
 ---
 
