@@ -7,6 +7,35 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 09:42
+---
+
+## IranIntlTV — post 340607
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340607_1780639974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریگ فرگوسن با هدف جلب توجه به اهمیت سلامت روان مردان و حمایت از تیم ملی اسکاتلند، در حال طی کردن مسیر پنج هزار کیلومتری میان لس‌آنجلس و بوستون است.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranianMinds — post 21406
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21406_1780639976.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این همه جو‌ بایدن بدبختو مسخره کردی آهش گرفتت
+
+ترامپ دیشب اینطوری تو سخنرانی که داشتن خواب آلود بود و خوابش برده بود :)
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 09:32
 ---
 
