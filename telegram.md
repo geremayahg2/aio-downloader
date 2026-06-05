@@ -7,6 +7,159 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 03:03
+---
+
+## VahidOOnLine — post 243876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با برنامه «میت د پرس» شبکه «ان‌بی‌سی نیوز» اعلام کرد که بر اساس ارزیابی‌ها، در حال حاضر تنها حدود ۲۱ تا ۲۲ درصد از توان موشکی اولیه ایران باقی مانده است. ترامپ در این مصاحبه با اشاره به حجم تخریب توان نظامی تهران افزود: «این میزان هنوز تعداد زیادی موشک محسوب می‌شود، اما با آنچه در زمان اولین حمله ما در اختیار داشتند، قابل مقایسه نیست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13604
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13604_1780702424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar منتظر زارتان زورتان
+</div>
+
+## WithYashar — post 13603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳پا باید یه جوابی بده چیزی‌ دیدن یا شنیدین بگین
+</div>
+
+## FoxNewsTwitter — post 342666
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342666_1780702426.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump wears Olympic gold.
+
+Olympic speed skating champion Jordan Stolz placed his gold medal around the president's neck during an agriculture roundtable at Custer Farms in Chippewa Falls, Wisconsin.
+
+The Wisconsin native later shook hands with Trump at the event, which focused on policies impacting American farmers.
+</div>
+
+## pm_afshaa — post 92349
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92349_1780702426.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی یک طرفه ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن. پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه به شمار میرفت. نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در…
+</div>
+
+## pm_afshaa — post 92348
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92348_1780702427.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی یک طرفه ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن.
+
+پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه به شمار میرفت. نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم حمله کردن تا در برابر حملات بیشتر دفاع کنند.
+
+نیروهای آمریکایی هوشیار و آماده پاسخگویی به تهاجم غیرموجه ایران در دفاع از خود هستند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 219720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️افزایش اعتیاد و کشت خشخاش به جای برنج در ایران؛ ‌گفت‌وگو با فریدون رحمانی جامعه‌شناس
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219719
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219719_1780702428.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هزینه اعدام‌ها برای جمهوری اسلامی چگونه زیاد خواهد شد؟ گفت‌وگو با حسن بنی‌هاشم مدافع حقوق بشر
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21467
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21467_1780702429.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایشون زینب دشتی هستن مجری تلویزیون کویت، که اومد از جمهوری اسلامی حمایت کرد و دولت کویت هم برای همیشه اخراجش کرد و از کارای دولتی کاملا محرومش کرد و به سه سال زندان هم محکوم شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21466
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21466_1780702430.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤩
+🤩
+🤩
+🤩 بونوس اضافه به ازای هر واریز 
+💰
+
+🔴فرصت تکرارنشدنی به مناسبت افتتاحیه
+🔴
+
+⚡️هر چقدر شارژ کنی، بیشتر هدیه می‌گیری
+⚡️
+
+🔴تا سقف ۳ میلیون تومان
+🔴
+
+⌛ فقط برای مدت محدود
+
+
+💣بالاترین بونوس‌ها فقط در سایت وینرو
+
+پیش بینی کن و برنده شو
+🎯
+aa15
+
+📺 تلویزیون لایو برای پوشش بازی ها
+
+🛍بالاترین ضرایب ممکن
+و هزاران امکانات خاص دیگه
+💰
+
+
+🚩
+🚩 خرداد افتتاحیه بزرگ سایت وینرو
+🟥 همین الان ثبت نام کن و علاوه بر ۵۰۰ هزار تومن بونوس ثبت نام با هر شارژ تا ۲۰۰ درصد شارژ اضافه از ما هدیه بگیر
+
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io
+
+📱 کانال اخبار و هدایــا 
+🌟
+
+📱 @winro_io
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 02:53
 ---
 
