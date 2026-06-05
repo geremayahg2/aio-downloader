@@ -7,6 +7,23 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 06:52
+---
+
+## VahidOnline — post 75944
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75944_1780629761.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از دو منبع در روز جمعه گزارش داد که پایانه نفتی مینا الفحل در عمان پس از وقوع یک انفجار در نزدیکی اسکله‌ها، عملیات بارگیری نفت را متوقف کرده است. به گفته این منابع، انفجار ظاهراً در پی یک حمله پهپادی رخ داده است.
+@VahidHeadline
+AJENews
+
+📡 @VahidOnline
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 06:42
 ---
 
