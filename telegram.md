@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 23:12
+---
+
+## WithYashar — post 13570
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13570_1780688572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خواستگاری جنجالی قیصر از الهام چرخنده در تجمعات حکومتی
+
+قیصر در یکی از تجمعات حکومتی، به‌صورت علنی از الهام چرخنده، بازیگر سابق تلویزیون ایران، درخواست ازدواج کرد. این اتفاق غیرمنتظره خیلی زود در فضای مجازی و رسانه‌ای مورد توجه قرار گرفت و واکنش‌های زیادی را به دنبال داشت
+@withyashar
+</div>
+
+## FarsiVOA — post 219699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از وداع با ساتراپی تا بازگشت قیصر؛ کاربران از پرسپولیس و «حلال» شدن موسیقی لس‌آنجلسی می‌گویند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219698
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219698_1780688572.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هشدارها درباره وضعیت نامناسب زندان‌ها در ایران؛ گفت‌وگو با شیوا محبوبی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پدیدار شدن تدریجی عوارض قطع ۸۸ روزه اینترنت در ایران بر اقتصاد؛ نابودی کسب‌وکارهای دیجیتال در گفت‌وگو با رضا غیبی
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21445
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21445_1780688573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عضو فاطمیون میخواد بزنه توی دهن ما، بعد به ما میگن وطن‌فروش😂
+
+@IranianMinds
+</div>
+
+## Hranews — post 113412
+
+<div align="center">
+  <img src="telegram/content/Hranews_113412_1780688574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات ۱۴۰۴؛ گزارشی تازه از وضعیت سمیرا و مینا کوچکی در زندان اوین
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سمیرا و مینا کوچکی، از بازداشت‌شدگان اعتراضات ۱۴۰۴، دوران محکومیت خود را در زندان اوین سپری می‌کنند. این افراد توسط دادگاه انقلاب به مجموعا ۱۰ سال حبس محکوم شده‌اند.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، سمیرا و مینا کوچکی، زندانیان سیاسی در حال سپری کردن دوران حبس خود در زندان اوین هستند.
+
+یک منبع مطلع و نزدیک به خانواده کوچکی ضمن تایید این خبر به هرانا گفت: خانم‌های کوچکی که در جریان اعتراضات سراسری ۱۴۰۴ بازداشت شده‌اند، هرکدام توسط دادگاه انقلاب به پنج سال حبس محکوم شدند. این خواهران که پس از بازداشت در زندان قرچک ورامین به‌سر می‌بردند، مورخ ۲۷ بهمن ماه سال گذشته به زندان اوین منتقل شدند.
+
+ادامه مطلب
+
+#سمیرا_کوچکی
+#مینا_کوچکی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 125396
+
+<div align="center">
+  <a href="telegram/content/alonews_125396_1780688575.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری فارس : آمریکا هنوز به برخی از اعضای فنی و اجرایی تیم ملی ایران ویزا نداده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 23:02
 ---
 
@@ -122,8 +215,6 @@ https://www.foxbusiness.com/economy/us-jobs-report-may-2026
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
