@@ -7,6 +7,209 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 00:53
+---
+
+## WithYashar — post 13578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما خیلی سریع از ایران خارج خواهیم شد و نتیجه آن، به هر شکل، بسیار قوی خواهد بود؛ چه از طریق یک تکه کاغذ (توافق) و چه از راهی بسیار سخت‌تر. شاید حتی راه بسیار سخت‌تر، آسان‌تر هم باشد.
+
+اما ما از این مسئله عبور خواهیم کرد و قیمت کود شیمیایی شما به‌شدت کاهش خواهد یافت، درست همان‌طور که چهار ماه پیش بود. قیمت کود شیمیایی اکنون هم کاهش یافته است.
+قیمت انرژی، نفت و گاز نیز همگی به‌طور قابل‌توجهی پایین خواهند آمد. و صادقانه بگویم، من تصور می‌کردم قیمت‌ها بسیار بیشتر از این افزایش پیدا کنند.
+@withyashar
+</div>
+
+## WithYashar — post 13577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش های تایید نشده : چندین جت جنگنده آمریکایی حمله‌ای را به بندرعباس و مناطق اطراف جزیره خارک آغاز کردند و چندین بندر از جمله فرودگاه بندرعباس را هدف قرار دادند. پدافند هوایی فعال شد و درگیر نبرد شدیدی با جت‌های جنگنده شد.
+@withyashar
+</div>
+
+## WithYashar — post 13576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش هایی از شلیک نیروهای ایرانی به سمت ناو های آمریکایی🚨
+@withyashar
+</div>
+
+## WithYashar — post 13575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای انفجار در جزیره خارک🚨
+@withyashar
+</div>
+
+## mwarmonitor — post 10193
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10193_1780694585.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 این دون‌مایگانِ بدکیش و جیره‌خوارانِ سفله که با سیمایی کریه و حق‌به‌جانب در بوقِ رسواییِ صدا و سیما خوش نشسته‌اند، چنان عقولِ تهی و افکارِ مضحکی دارند که حتی مکتبِ جهل و ابلهی نیز در پیشگاهِ هندسهٔ بی‌پایهٔ این موجوداتِ حقیر، لنگ می‌اندازد. در قاموسِ مبتذلِ این دغل‌کارانِ شیعه‌نما و بادمجان‌دورقاب‌چین‌هایِ دربار، این طویلهٔ رسانه‌ای، بوقی «مؤثر» شمرده می‌شود؛ بله، صد البته مؤثر است!
+
+🔸من به شخصه پس از رویتِ ریختِ نحس و پفیوزِ این پسماندهایِ تمدن در تلویزیونِ جمهوری اسلامی، از غایتِ وقاحتِ بی‌حدومرزشان، مجاریِ گوارشم به غلیان درمی‌آید و معضلِ اجابتِ مزاجم فی‌الفور مرتفع می‌گردد. گویی علمِ طب باید دکانِ خویش تخته کند؛ چرا که نظارهٔ تفکراتِ عفن و چهر‌ه‌هایِ منزجرکنندهٔ این دلقک‌هایِ ولایت، قوی‌ترین، مسهل‌ترین و ارزان‌ترین ملینِ گیتی است!
+
+🔸این اعجازِ بی‌بدیل که حاصلِ اسهالِ کلامیِ آقایان است را برای خلاصی از هرگونه انسدادِ روحی و جسمی، به آحادِ ملت توصیه می‌نمایم تا به عینه نظاره‌گر باشند چگونه بیت‌المال و بودجهٔ یک مملکت، صرفِ معرکه‌گیری و یاوه‌گوییِ این انگل‌هایِ بی‌خاصیت و خنده‌آور می‌شود.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92339
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92339_1780694586.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما سریع از ایران بیرون میایم؛ به هر شکلی که شده، چه یک تکه کاغذ و چه از راه‌های بسیار سخت، بسیار قوی خواهد بود. راه بسیار سخت شاید راه آسان‌تر باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92338
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92338_1780694587.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پوتین: روسیه هیچ سلاحی به جمهوری اسلامی تحویل نداده و ایران هم درخواستی برای اون نکرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 21:17:33 UTC
+
+Explosion and AA activity in Kharg island, Bushehr Province, #Iran
+
+فارسی
+
+انفجار و فعالیت پدافند هوایی در جزیره خارگ، استان بوشهر، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 05 Jun 2026 19:57:53 UTC Blast in Sulaimaniyah was reportedly near the Iranian Consulate building. #KRI, #Iraq 🇮🇶 ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی گزارش‌ها حاکی از آن است که انفجار…
+</div>
+
+## Shin_Persian — post 6529
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6529_1780694587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 19:57:53 UTC
+
+Blast in Sulaimaniyah was reportedly near the Iranian Consulate building.
+#KRI, #Iraq 🇮🇶
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+گزارش‌ها حاکی از آن است که انفجار در سلیمانیه در نزدیکی ساختمان کنسولگری ایران رخ داده است.
+#KRI, #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از روند دستیابی جمهوری اسلامی به اورانیوم با غلظت بالا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219703
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ در جمع کشاورزان آمریکایی: مسئله جمهوری اسلامی یا با امضای یک کاغذ یا با اقدام نظامی حل‌وفصل خواهد شد
+
+▪️دونالد ترامپ، رئيس‌جمهوری آمریکا، روز جمعه در ایالت ویسکانسین و در جمع کشاورزان آمریکایی صحبت کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157780.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند غرب نیویورک فعال شد
+</div>
+
+## IranianMinds — post 21449
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشاتی از انفجار در جزیره خارک @IranianMinds
+</div>
+
+## IranianMinds — post 21448
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشاتی از انفجار در جزیره خارک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21447
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21447_1780694589.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره جنگ با ایران :
+
+بیشتر شبیه یه نوع تمرینه تا جنگ !
+
+@IranianMinds
+</div>
+
+## alonews — post 125417
+
+<div align="center">
+  <a href="telegram/content/alonews_125417_1780694590.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما خیلی سریع از ایران خارج خواهیم شد و نتیجه آن، به هر شکل، بسیار قوی خواهد بود؛ چه از طریق یک تکه کاغذ (توافق) و چه از راهی بسیار سخت‌تر. شاید حتی راه بسیار سخت‌تر، آسان‌تر هم باشد.
+
+
+🔴اما ما از این مسئله عبور خواهیم کرد و قیمت کود شیمیایی شما به‌شدت کاهش خواهد یافت، درست همان‌طور که چهار ماه پیش بود. قیمت کود شیمیایی اکنون هم کاهش یافته است.
+
+
+🔴قیمت انرژی، نفت و گاز نیز همگی به‌طور قابل‌توجهی پایین خواهند آمد. و صادقانه بگویم، من تصور می‌کردم قیمت‌ها بسیار بیشتر از این افزایش پیدا کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 00:43
 ---
 
