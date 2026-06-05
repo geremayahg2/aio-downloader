@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 07:42
+---
+
+## VahidOOnLine — post 243755
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243755_1780632759.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مقامات ایالات متحده ویدئویی را منتشر کردند که نشان می‌دهد یک قایق چوبی حامل ۲۴۰ مهاجر هائیتی در دریا رهگیری و متوقف شده است.
+به گزارش رویترز و به گفته مقامات، این قایق که بیش از حد ظرفیت خود مسافر حمل می‌کرد، یکی از موتورهایش را از دست داده بود و آب به آرامی در حال نفوذ به داخل آن بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## RadioFarda — post 157907
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157907" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۱۵ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 07:32
 ---
 
