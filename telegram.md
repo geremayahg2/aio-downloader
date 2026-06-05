@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 04:32
+---
+
+## FoxNewsTwitter — post 342636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/politics/hated-women-explosive-abuse-new-nazi-tattoo-allegations-exes-rock-platners-campaign
+</div>
+
+## FoxNewsTwitter — post 342635
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342635_1780621367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A former girlfriend of Maine Democratic Senate candidate Graham Platner is making explosive new allegations, reportedly claiming Platner would sharpen an ax while watching television and ruminate about raping home invaders.
+
+The ex-partner also alleged Platner once pulled her from a taxi by her wrist during an argument, pushed her into a bedroom and held the door shut, and regularly fantasized about killing people he viewed as threats.
+
+She further claimed Platner joked about his Totenkopf tattoo — an emblem associated with Nazi death camp guards — and said members of his military unit chose the symbol because they viewed themselves as a "death unit" of "killers."
+
+Platner has denied wrongdoing, but the allegations are now putting his campaign under intense scrutiny.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 04:22
 ---
 
