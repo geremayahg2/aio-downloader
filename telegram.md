@@ -7,6 +7,144 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 01:13
+---
+
+## VahidOOnLine — post 243865
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243865_1780695786.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، روز جمعه گفت افزایش جریان نفت از طریق تنگه هرمز برای کمک به کاهش قیمت بنزین و گازوییل، در نهایت مستلزم حل‌وفصل مسائل با جمهوری اسلامی خواهد بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی : پدافند ۱۷ شهریور گنبد کاووس فعال شد @withyashar
+</div>
+
+## WithYashar — post 13582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی : پدافند ۱۷ شهریور گنبد کاووس فعال شد
+@withyashar
+</div>
+
+## WithYashar — post 13581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به خبرای هست ولی نمیتونم ثابت کنم
+</div>
+
+## WithYashar — post 13580
+
+
+
+
+## mwarmonitor — post 10195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 عجب کارگاهِ شستشوی مغزیِ موفقی! آدم را به این ته‌خط می‌رساند که چطور جمهوری اسلامی با مهندسیِ دقیقِ فقر، ملتی را که روزگاری ادعای تمدن داشت، به این «مقامِ انسانیتِ» مضحک رسانده است. تقصیر این مردمِ فرودست چیست وقتی اتاقِ فکرِ نظام عمداً جامعه را به خاک سیاه نشانده تا برای بقا بجنگند؟ بعد از شاهکارهای صفِ مرغ، روغن و یارانه، حالا این حکومتِ مدعیِ مدیریتِ جهان، با افتخار آپدیتِ جدیدی عرضه کرده: کشت و کشتار و له کردنِ شرفِ مردم برای یک قاچ هندوانه‌ی صدقه‌ای در جشنی عقیدتی! این باغ‌وحشی که راه انداخته‌اند، تندیسِ موفقیتِ آقایان است؛ آن‌ها مردم را در فقرِ مطلق نگه می‌دارند تا کرامتِ انسانی‌شان را این‌طور جلو دوربین متلاشی کنند و بعد به اسمِ «امتِ پرشور»، به ریشِ این ملتِ گروگان‌گرفته‌شده بخندند. لعنت فرستادن به باعث و بانیِ این فلاکت، کمترین کاری است که می‌توان برای این حجم از رذالتِ سیستمی انجام داد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇨🇦🇺🇸🇩🇪🇬🇧 هشدارها و توصیه‌های جدید سفر و امنیت برای بخش‌هایی از خاورمیانه صادر کرده‌اند. 🇩🇪 آلمان: در تاریخ ۵ ژوئن یک هشدار صادر کرده و به‌شدت به شهروندان خود توصیه کرده به دلیل «تشدید وضعیت امنیتی در منطقه» به کشورهای زیر سفر نکنند: کویت بحرین 🇬🇧 بریتانیا:…
+</div>
+
+## FoxNewsTwitter — post 342663
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342663_1780695787.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @Outkick: "What did he mean by that?" 🤨
+
+Trump has questions. He'd like to know more about Wemby crossing his arms during the national anthem.
+
+📹: @RealDanZak
+</div>
+
+## pm_afshaa — post 92341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز شروع کردن این بلاگرای دوزاری با حاشیه های کسشر و یه مشت موج سوار که دارن به اینا ویو میدن تا بیشتر عادی سازی کنن.
+
+فقط عمیقا دلم واسه انلاین شاپا میسوخت ولی الان این بلاگرای حکومتی و وسط باز رو که میبینم میگم همون بهتر اینستا بسته بود..
+</div>
+
+## pm_afshaa — post 92340
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92340_1780695789.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ درباره ایران:
+ما یک سلاح هسته‌ای رو خاموش کردیم. قرار بود کشوری توانمند باشن که حضور هسته‌ای خواهد داشت، اما ما تا حد زیادی این کار رو تمام کردیم. به هر حال، کار تمام شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340728
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340728_1780695790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، روز جمعه گفت افزایش جریان نفت از طریق تنگه هرمز برای کمک به کاهش قیمت بنزین و گازوییل، در نهایت مستلزم حل‌وفصل مسائل با جمهوری اسلامی خواهد بود.
+https://iranintl.com/202606055667
+</div>
+
+## IranianMinds — post 21454
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21454_1780695791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان جنوبی با خیال راحت بخوابید که پدافندا فعالن آمریکا هیچ غلطی نمیتونه بکنه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارشاتی از انفجار در جزیره خارک @IranianMinds
+</div>
+
+## alonews — post 125419
+
+<div align="center">
+  <a href="telegram/content/alonews_125419_1780695791.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرواز جنگنده‌‌ها تو جنوب عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 01:03
 ---
 
