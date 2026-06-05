@@ -7,6 +7,22 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 07:32
+---
+
+## alonews — post 125193
+
+<div align="center">
+  <a href="telegram/content/alonews_125193_1780632159.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویر جدید و اختصاصی CNN خسارت وارده به ناو هواپیمابر USS Gerald R. Ford (CVN-78) پس از یک «آتش‌سوزی در بخش لباسشویی» روی این کشتی را نشان می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 07:22
 ---
 
