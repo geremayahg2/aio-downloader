@@ -7,6 +7,101 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 08:42
+---
+
+## pm_afshaa — post 92291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نورالدین الدغیر خبرنگار الجزیره در تهران:یادداشت تفاهم در مرحله نهایی خود قرار دارد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340602
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340602_1780636369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای جمعه ۱۵ خرداد
+@iranintltv
+</div>
+
+## FarsiVOA — post 219640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺توقف بارگیری نفت عمان در پی انفجار در پایانه نفتی
+
+▪️خبرگزاری رویترز از قول دو منبع آگاه گزارش داده که عمان بارگیری نفت در پایانه نفتی «مینا الفحل» را در پی انفجار در نزدیکی اسکله بارگیری آن متوقف کرده است.
+
+▪️این منابع گفته‌اند که ظاهراً عامل انفجار در فاصله میان اسکله‌های شماره ۱ و ۲ این بندر حملات پهپادی بوده است.
+
+▪️رویترز می‌نویسد چندین نفتکش عظیم روز جمعه برای بارگیری نفت در این پایانه لنگر انداخته بودند.
+
+▪️عمان تنها کشور همسایه جنوبی ایران است که خارج از تنگه هرمز قرار گرفته و برخلاف دیگر کشورهای منطقه، صادرات نفتش طی چند ماه گذشته تأثیر چندانی از انسداد تنگه هرمز توسط جمهوری اسلامی قرار نگرفته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157636.html
+</div>
+
+## RadioFarda — post 157909
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157909_1780636370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خبرگزاری رویترز صبح جمعه ۱۵ خرداد به نقل از دو منبع گزارش داد که پایانه نفتی «مینا الفحل» در عمان پس از وقوع یک «انفجار» در نزدیکی اسکله‌ها، عملیات بارگیری نفت را متوقف کرده است.
+
+🔸به گفته این منابع، انفجار ظاهراً در پی یک حمله «پهپادی» رخ داده است.
+
+🔸از زمان وقوع حمله گزارشی منتشر نشده است.
+
+@RadioFarda
+</div>
+
+## alonews — post 125197
+
+<div align="center">
+  <a href="telegram/content/alonews_125197_1780636371.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری دولتی چین: شی جین پینگ، رئیس جمهور چین بین 8 تا 9 ژوئن به کره شمالی سفر خواهد کرد. این اولین سفر او به این کشور در 7 سال اخیر است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125196
+
+<div align="center">
+  <a href="telegram/content/alonews_125196_1780636371.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در تازه‌ترین نشانه از عمق تأثیر جنگ بر اقتصاد منطقه، شرکت هواپیمایی امارات مجبور شده نزدیک به نیم‌میلیون صندلی را از برنامۀ پروازی این ماه خود را حذف کند؛ رقمی که معادل ۱۶ درصد ظرفیت پروازی این شرکت است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125195
+
+<div align="center">
+  <a href="telegram/content/alonews_125195_1780636371.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 رویترز: بارگیری نفت خام در بندر مینا الفحل در عمان پس از انفجاری که گمان می‌رود ناشی از حمله پهپادی باشد، متوقف شد
+
+
+✅ @AloNews خبر جناب
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 08:33
 ---
 
