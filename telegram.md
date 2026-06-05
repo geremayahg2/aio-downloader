@@ -7,6 +7,130 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 02:53
+---
+
+## VahidOOnLine — post 243875
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243875_1780701826.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گورک بوشهر را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243874
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243874_1780701827.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گورک بوشهر را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340738
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340738_1780701828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گورک بوشهر را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+https://iranintl.com/202606054048
+</div>
+
+## IranIntlTV — post 340737
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340737_1780701829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهایش چهار پهپاد انتحاری ایران را که به سمت تنگه هرمز پرتاب شده بودند، سرنگون کردند و در ادامه، برای دفاع در برابر حملات بیشتر، سایت‌های رادار نظارتی ساحلی جمهوری اسلامی در جزیره قشم و گورک بوشهر را هدف قرار دادند.
+سنتکام بر آمادگی خود برای پاسخ به «تجاوز غیرموجه ایران» در چارچوب دفاع از خود تاکید کرد.
+
+https://iranintl.com/202606054048
+</div>
+
+## Shin_Persian — post 6555
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6555_1780701829.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 23:15:52 UTC
+
+State-owned Mehr News confirms the explosions in Sirik.
+
+فارسی
+
+خبرگزاری دولتی مهر وقوع انفجارها در سیریک را تأیید کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6554
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 05 Jun 2026 23:14:05 UTC
+
+There are casualties amongst IRGC terrorists in Sirik Naval base.
+One identified so far:
+Saeed Chileh Var (سعید چیله ور) from the missile squad
+
+فارسی
+
+تلفاتی در میان تروریست‌های سپاه پاسداران انقلاب اسلامی (IRGC) در پایگاه دریایی سیریک وجود دارد.
+تاکنون یک نفر شناسایی شده است:
+سعید چیله‌ور از واحد موشکی
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش شبکه آمریکایی از شلیک چند پهپاد از سوی جمهوری اسلامی به سمت تنگه هرمز
+
+▪️شبکه سی‌ان‌ان به نقل از یک مقام آمریکایی گزارش داده است که جمهوری اسلامی چندین پهپاد را به سمت تنگه هرمز شلیک کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157796.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نفوذ شرکت‌های وابسته به سپاه در پروژه‌های عراق و افشای پرداخت‌های میلیاردی به اسماعیل قاآنی
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این پرستوی حکومتی صدف طاهریان هم‌ اومد کل عکسای لختیشو از پیجش پاک کرد و گفت برگشتم به وطن
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 02:43
 ---
 
