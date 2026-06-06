@@ -7,6 +7,153 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 16:33
+---
+
+## mwarmonitor — post 10216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌سخنگوی وزارت خارجه، تامی پیگوت گفت: ایالات متحده تحریم‌هایی را علیه شبکه‌هایی که در قاچاق سوخت ایرانی به ارزش صدها میلیون دلار دست دارند، اعمال می‌کند. دولت دونالد ترامپ نیز سیاست فشار حداکثری علیه نظام ایران را از طریق کارزار «خشم اقتصادی» ادامه خواهد داد.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5390
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5390_1780751028.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 سه ماه پس از جنگ ۴۰ روزه حکومت به اسم «بهبود شرایط معیشتی کارکنان نظامی» و با هدف تقویت توان خرید آنها به حساب پرسنل نظامی ۸۵۰ هزار تومان پول واریز کرده است. در این طرح به ازای هر عضو خانواده آنها نیز ۸۵۰ هزار تومان معادل هفت دلار واریز شده است.
+
+این پول نقدی نیست و پرسنل فقط با آن می‌توانند از فروشگاه‌های طرف قرارداد خرید کنند.
+
+#جنگ #جنگ۴۰روزه
+@DEJradio
+</div>
+
+## DEJradio — post 5389
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5389_1780751029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 جشن شکست به اسم پیروزی؛
+
+*شهرام سبزواری، کارشناس نظامی
+
+#جنگ #تجمعات_حکومتی
+@DEJradio
+</div>
+
+## IranIntlTV — post 340812
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340812_1780751031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که به تازگی به ایران اینترنشنال رسیده نشان می‌دهد مردم در شهر خشکبیجار گیلان در روز ۱۹ دی با فراخوان شاهزاده رضا پهلوی به خیابان رفته بوده و شعار «جاوید شاه»‌ داده بودند. جمعیت این شهر گیلان کمتر از ۱۰ هزار نفر است.
+</div>
+
+## IranIntlTV — post 340811
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340811_1780751033.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر اسرائیل در استرالیا در مصاحبه اختصاصی با ایران‌اینترنشنال، با تاکید بر پیوندهای تاریخی میان ایرانیان و اسرائیلی‌ها، جمهوری اسلامی را دشمن مشترک دو ملت دانست. او معتقد است ایدئولوژی حاکم بر جمهوری اسلامی تغییرپذیر نیست و بهبود روابط با پایان این حکومت امکان‌پذیر خواهد بود.
+
+تماشای نسخه کامل این گفت‌وگو در یوتیوب:
+
+https://youtu.be/e-HRYbJlK4A
+@iranintltv
+</div>
+
+## Shin_Persian — post 6569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 13:02:06 UTC
+
+The Kuwaiti Army reserves its right to shoot down a couple of USAF F-15Es in response to the Islamic Regime's UAV and BM strike earlier this morning.
+
+فارسی
+
+ارتش کویت حق خود را برای سرنگونی چند فروند F-15E نیروی هوایی ایالات متحده (USAF) در پاسخ به حمله پهپادی و موشک بالستیک (BM) رژیم اسلامی در اوایل صبح امروز محفوظ می‌دارد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در مراسم گرامی‌داشت هشتاد و دومین سالگرد «نبرد نرماندی» در فرانسه، از سربازان آمریکایی کشته‌شده در جنگ جهانی دوم تجلیل کرد.
+
+او گفت: «این‌جا فقط یک آرامستان نیست. این مکان، یادمان روحیه تسلیم‌ناپذیر سربازان آمریکایی است. گواهی بر فداکاری‌های بزرگی است که جنگجویان ما برای آزاد کردن کل یک قاره از چنگ استبداد انجام دادند.»
+ 
+آقای هگست همچنین از دولت فرانسه به دلیل حفظ یاد و خاطره سربازان آمریکایی قدردانی کرد و گفت که آنها «هنوز هم در حال خدمت به کشورشان هستند.»
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت عین‌الله رضازاده جویباری، زندانی سیاسی، از آزار و شکنجه: «ما زندانیان سیاسی مرگ را از میدان جنگ به خود نزدیک‌تر می‌بینیم»
+
+عین‌الله رضازاده جویباری، روحانی منتقد حکومت، ۱۵ خرداد ۱۴۰۵، در تماسی از زندان اوین، از تحمل شکنجه بعد از انتقالش به بیمارستان گفته است.
+
+عین‌الله رضازاده جویباری، پس از آنکه در انتقاد از جمهوری اسلامی، لباس روحانیت را کنار گذاشت، در دی ماه ۱۳۹۸ در شهر تکاب بازداشت شد.
+</div>
+
+## IranianMinds — post 21492
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21492_1780751034.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت پاکستان اینترنت را در جامو و کشمیر پاکستان (POJK) قطع می کند، سازمان حقوق کشمیری را به دلیل اعتراضات در گیلگیت-بالتستان، مظفرآباد قبل از راهپیمایی 9 ژوئن ممنوع می کند.
+
+اعتراضات در POJK علیه اشغالگری پاکستان تشدید شده است. ارتش پاکستان 15000 تا 20000 نیروی شبه نظامی را برای درهم شکستن صدای آنها مستقر کرده است.
+
+@IranianMinds
+</div>
+
+## alonews — post 125553
+
+<div align="center">
+  <a href="telegram/content/alonews_125553_1780751037.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فیلمی از ۱۸دی خیابان سهرودی تهران
+
+
+🔴از سری جنایاتی که جمهوری اسلامی با قطعی اینترنت در صدد مخفی کردنش بود.
+
+
+🤔عرزشی حرام زاده این مردم تروریست بودن که بهشون شلیک میکردین؟
+
+
+✅@AloNews
+</div>
+
+## alonews — post 125552
+
+<div align="center">
+  <a href="telegram/content/alonews_125552_1780751039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۴ اسرائیل: همه امیدوار بودن که آتش‌بس دووم بیاره اما ظاهرآ قواعد بازی داره کاملا عوض می‌شه. خودتون رو برای آخر هفته‌ای داغ تو خاورمیانه آماده کنید، زیرا ایران و آمریکا درحال گذار از حملات پراکنده و شبانه به رویارویی‌های گسترده در روشنایی روز هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 16:23
 ---
 
