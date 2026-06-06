@@ -7,6 +7,138 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 15:03
+---
+
+## VahidOOnLine — post 243944
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243944_1780745619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با گسترش سراسری اعتراضات دانش‌آموزی، محصلان استان خراسان رضوی روز شنبه ۱۶ خرداد در مشهد با تجمع مقابل اداره‌کل آموزش و پرورش علیه تاثیر معدل پایه یازدهم در کنکور و شیوه برگزار کلاس‌ها و امتحانات اعتراض کردند. آن‌ها خواستار استعفای دبیر شورای عالی انقلاب فرهنگی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243943
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243943_1780745621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️انتقادهای تند ژوزف عون، رئیس‌جمهوری لبنان از تهران و حزب‌الله، در روز شنبه ۱۶ خرداد ماه با واکنش مقام‌های وزارت امورخارجه جمهوری اسلامی در شبکه‌های اجتماعی مواجه شده است.
+عباس عراقچی، وزیر امور خارجه ایران، پیش‌تر در واکنش به اظهارات عون در شبکه اجتماعی ایکس نوشته بود: «اگر لبنان ابزار معامله ایران بود، مدت‌ها پیش به توافق رسیده بودیم» و از رئیس‌جمهوری لبنان خواسته بود «لبنان را از دشمن واقعی‌اش نجات دهد».
+ساعاتی بعد نیز اسماعیل بقایی، سخنگوی وزارت امور خارجه ایران، در پیامی به لهجه لبنانی نوشت: «بیبیع اللی واقف حدّو، وبیشتری اللی واقف ضدّو»؛ عبارتی که به معنای «کسی که کنار او ایستاده را می‌فروشد و کسی که مقابل او ایستاده را می‌خرد» است.
+عون در گفتگویی با شبکه سی‌ان‌ان، ایران را متهم کرده بود که از لبنان به عنوان «برگ چانه‌زنی» در مذاکرات و منازعات خود با آمریکا و اسرائیل استفاده می‌کند و گفته بود مردم لبنان بهای این سیاست‌ها را می‌پردازند.
+رئیس‌جمهوری لبنان همچنین خطاب به ایران و سپاه پاسداران گفته بود: «این کشور، کشور ماست نه کشور شما» و تاکید کرده بود که لبنانی‌ها از جنگ خسته شده‌اند و خواهان زندگی در صلح و ثبات هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره: وزیر کشور پاکستان در سفر به ایران حامل پیامی برای رهبر ایران خواهد بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340804
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340804_1780745622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با گسترش سراسری اعتراضات دانش‌آموزی، محصلان استان خراسان رضوی روز شنبه ۱۶ خرداد در مشهد با تجمع مقابل اداره‌کل آموزش و پرورش علیه تاثیر معدل پایه یازدهم در کنکور و شیوه برگزار کلاس‌ها و امتحانات اعتراض کردند. آن‌ها خواستار استعفای دبیر شورای عالی انقلاب فرهنگی شدند.
+</div>
+
+## Persian_Trend_Official — post 15800
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15800_1780745623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ تأیید شده: داده‌های این‌ بخش نشان می‌دهد که اتصال اینترنت در «آزاد جامو و کشمیر» تحت اداره پاکستان، با اختلال شدید روبه‌رو شده است.
+
+این قطعی اینترنت پیش از اعتراضات رخ داده؛ جایی که مقام‌ها با استفاده از اختیارات ضدتروریسم، «کمیته اقدام مشترک عوامی» را ممنوع کرده‌اند و احتمالاً این اقدام برای محدود کردن پوشش خبری رویدادها هم به کار می‌رود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21475
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21475_1780745624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اعتراض دانش اموزان به تاثیر قطعی معدل یازدهم در کنکور
+امروز ۱۶ خرداد
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391123
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391123_1780745625.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این ویدیو از دانش‌آموزان مملکت تو روز حمله آمریکا و اسرائیل به ایران و تعطیل شدن مدرسه‌شون رفته تو اکسپلور خارجی‌ها؛
+
+تو کامنت‌ها همشون تعجب کردن که اینا چرا اینجوری میکنن؟ اصلا چرا نمی‌ترسن؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391122
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391122_1780745626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورزش سه | ویزای آمریکا برای این نفرات رد شده: مهدی تاج - رئیس فدراسیون فوتبال مهدی محمدنبی - مدیر تیم هدایت ممبینی - دبیرکل فدراسیون محسن معتمدکیا - مدیررسانه‌ای مهدی خراطی - مدیراجرایی مسعود اردشیر - افسر امنیتی مهدی ملک آباد - رئیس حراست سروش سلماسی- آنالیزور…
+</div>
+
+## alonews — post 125524
+
+<div align="center">
+  <a href="telegram/content/alonews_125524_1780745626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه قطر: بر ضرورت دور نگه داشتن منطقه از پیامدهای حملات بی‌دلیل تأکید می‌کنیم و بر کاهش تنش برای بازگرداندن امنیت و ثبات تأکید داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125523
+
+<div align="center">
+  <a href="telegram/content/alonews_125523_1780745627.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الحدث به نقل از منابع ارشد پاکستانی:
+وزیر کشور پاکستان پس از دیدار با نخست‌وزیر شهباز شریف و مقامات ارشد، امروز عازم تهران خواهد شد
+
+
+🔴 نخست‌وزیر پاکستان دستورات ویژه‌ای به وزیر کشور خود درباره مذاکرات بین ایران و آمریکا داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 14:53
 ---
 
