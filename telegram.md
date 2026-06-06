@@ -7,6 +7,108 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 17:44
+---
+
+## VahidOOnLine — post 243963
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243963_1780755248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ ایالات متحده، روز شنبه به همراه همسر و فرزندانش برای شرکت در هشتادودومین سالگرد عملیات «دی‌دی» (D-Day) وارد نورماندی فرانسه شد.
+او در این مراسم که به یاد فرود نیروهای متفقین در جنگ جهانی دوم برگزار می‌شود، ضمن ادای احترام به سربازان کشته‌شده، بر اهمیت اتحادهای نظامی تأکید کرد.
+هگست در سخنانی با اشاره به مفهوم «ناتو ۳.۰» گفت این ائتلاف نباید به رابطه‌ای وابسته تبدیل شود، بلکه باید متشکل از کشورهای قدرتمند باشد. او از کشورهای اروپایی خواست «سریع‌تر و بیشتر» در تأمین امنیت جمعی نقش‌آفرینی کنند.
+این اظهارات در حالی مطرح می‌شود که واشینگتن بارها از متحدان اروپایی خواسته سهم بیشتری در هزینه‌ها و مسئولیت‌های ناتو بر عهده بگیرند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243962
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243962_1780755249.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان چهارمحال بختیاری در شهرکرد تجمع کرده و در اعتراض به برخوردهای فیزیکی با آنها، شعار دادند: «محصل داد بزن، حقتو فریاد بزن»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340829
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340829_1780755252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کی‌یر استارمر، نخست‌وزیر بریتانیا، هشدار داد روسیه ممکن است در سال‌های آینده توانایی حمله به یکی از کشورهای عضو ناتو را پیدا کند.
+
+مهران عباسیان، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340828
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340828_1780755254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان چهارمحال بختیاری در شهرکرد تجمع کرده و در اعتراض به برخوردهای فیزیکی با آنها، شعار دادند: «محصل داد بزن، حقتو فریاد بزن»
+</div>
+
+## Dirty_Kids — post 391133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخریب کلیسای تاریخی انجیلی مشهد به‌دست عوامل ناشناس
+
+تاریخ ساخت این کلیسا به دوره پهلوی اول می‌رسه و ثبت ملی بود
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391132
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهترین کشور واسه آتئیست شدن ایرانه ، کاملا نبودن خدا درونش حس می شه!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125574
+
+<div align="center">
+  <a href="telegram/content/alonews_125574_1780755262.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیصر، خواننده انقلابی: نظام ما یک تنه جلوی امپریالیسم ایستاده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125573
+
+<div align="center">
+  <a href="telegram/content/alonews_125573_1780755262.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خسروپناه، دبیر شورای عالی انقلاب فرهنگی تو شبکه خبر رسما اعلام کرد که تاثیر معدل یازدهم تو کنکور قطعی می‌مونه و قرار نیست مثبت بشه
+
+
+🔴پ.ن: دانش آموزا یه جمله به خسروپناه بگید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 17:33
 ---
 
