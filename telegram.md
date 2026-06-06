@@ -7,6 +7,132 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 21:14
+---
+
+## VahidOOnLine — post 243986
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243986_1780767850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ خبرگزاری تسنیم، وابسته به سپاه پاسداران روز شنبه ۱۶ خرداد گزارش داد که محسن نقوی، وزیر کشور پاکستان برای دومین بار در یک ماه گذشته به تهران سفر کرد. نقوی در روزهای اخیر دو بار با اسکندر مومنی، وزیر کشور دولت پزشکیان در قرقیزستان دیدار کرده بود و پس از ارائه گزارش به شهباز شریف، نخست‌وزیر پاکستان، روز شنبه راهی تهران شد تا با مقام‌های جمهوری اسلامی از جمله عباس عراقچی دیدار کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13636
+
+
+
+
+## DEJradio — post 5402
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5402_1780767851.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 شاهزاده رضا پهلوی: هرگز در این سال‌ها به دنبال مقام نبوده و نیستم.
+
+بخشی از نشست آنلاین با شماری از فعالان و چهره‌های رسانه‌ای و هنری، ۱ خرداد ۲۵۸۵/۱۴۰۵
+
+#شاهزاده_رضا_پهلوی #ایران_را_پس_میگیریم
+
+@DEJradio
+</div>
+
+## IranIntlTV — post 340862
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340862_1780767854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افشای حضور نیروهای اسرائیلی در نزدیکی تبریز در جریان جنگ با جمهوری اسلامی
+@iranintltv
+</div>
+
+## IranIntlTV — post 340861
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340861_1780767856.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع‌های اعتراضی دانش‌آموزان در شهرهای مختلف ایران ادامه دارد و امروز در دست‌کم ۲۰ استان، دانش‌آموزان به خیابان آمدند. معترضان به سیاست‌های آموزشی، حضوری شدن امتحانات و تاثیر معدل پایه‌های یازدهم و دوازدهم در کنکور اعتراض کردند.
+
+گفت‌وگو با آسیه امینی، تحلیل‌گر مسائل اجتماعی
+@iranintltv
+</div>
+
+## IranIntlTV — post 340860
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340860_1780767858.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با ادامه مذاکرات میان تهران و واشینگتن، تبادل حملات میان جمهوری اسلامی و آمریکا شدت گرفته است. فرشته پزشک، کارشناس روابط بین‌الملل، می‌گوید جمهوری اسلامی تلاش می‌کند آمریکا را میان بازگشت به جنگ تمام‌عیار یا عقب‌نشینی از فشارهای اقتصادی قرار دهد. به گفته او، دونالد ترامپ تاکنون با ادامه محاصره اقتصادی و طولانی کردن مذاکرات، در پی وادار کردن تهران به پذیرش شروط مورد نظر واشینگتن بوده است.
+@iranintltv
+</div>
+
+## FarsiVOA — post 219791
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219791_1780767861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تفسیر خبر
+پیامد ماجراجویی سپاه چه خواهد بود؟
+هم اکنون در یوتیوب صدای آمریکا:
+https://www.youtube.com/live/HfXyTFL1jp0?si=lqz_3OrZzIfbFpXb
+</div>
+
+## Hranews — post 113430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامیاران؛ کژال رحمانی و دانیال رحمانی توسط نیروهای امنیتی بازداشت شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز، کژال رحمانی و برادرش دانیال رحمانی، شهروندان ساکن کامیاران، توسط نیروهای امنیتی در این شهرستان بازداشت و به مکان‌های نامعلومی منتقل شدند.
+
+ادامه مطلب
+
+#کژال_رحمانی #دانیال_رحمانی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125612
+
+<div align="center">
+  <a href="telegram/content/alonews_125612_1780767861.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیدار وزرای کشور ایران و پاکستان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125611
+
+<div align="center">
+  <a href="telegram/content/alonews_125611_1780767862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بمباران سنگین منطقه وادی برغاز در جنوب لبنان توسط جنگنده‌های اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 21:03
 ---
 
