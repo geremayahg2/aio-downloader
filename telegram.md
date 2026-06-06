@@ -7,6 +7,201 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 22:44
+---
+
+## VahidOOnLine — post 243994
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243994_1780773251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایسنا نوشت که محسن نقوی، وزیر کشور پاکستان، در جریان سفر به تهران حامل پیام ویژه‌ای از عاصم منیر، رییس ستاد کل ارتش پاکستان، به مجتبی خامنه‌ای است.
+
+محسن نقوی، شنبه وارد تهران شد و رسانه‌های ایران اعلام کردند او قرار است با برخی مقام‌ها از جمله عباس عراقچی دیدار کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13644
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://www.instagram.com/reel/DZQWuJ8xbfy/?igsh=eW9zZ3MxeTk3bWc=
+
+پست جدید اینستاگرام ، کیا منتظر شب‌حمله هستن ؟!
+</div>
+
+## WithYashar — post 13643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز: اسرائیل مکالمات مربوط به مذاکرات آمریکا با جمهوری اسلامی رو شنود کرده.
+
+اسرائیل تلاش‌های خود برای شنود مقام‌های ارشد آمریکایی از جمله ویتکاف و البریج کولبی، معاون وزیر جنگ آمریکا، رو افزایش داده.
+@withyashar
+</div>
+
+## pm_afshaa — post 92406
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92406_1780773251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل: در طول آخر هفته حدود 150 زیرساخت حزب‌الله رو در جنوب لبنان مورد حمله قرار دادیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92405
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92405_1780773252.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخوند احمد خاتمی:
+پای مجتبی خامنه‌ای روز اول جنگ آسیب دید و احتمال قطع شدنش مطرح بود ولی با تلاش کادر درمان الان رو به بهبودی قرار داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5406
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5406_1780773252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 رقصی برای زندگی و انتقام؛
+
+*پژمان گلچین، پژوهشگر فلسفه
+
+#دی۱۴۰۴ #رقص_سوگ
+@DEJradio
+</div>
+
+## DEJradio — post 5405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+شنبه ۱۶ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## IranIntlTV — post 340871
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340871_1780773255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایسنا نوشت که محسن نقوی، وزیر کشور پاکستان، در جریان سفر به تهران حامل پیام ویژه‌ای از عاصم منیر، رییس ستاد کل ارتش پاکستان، به مجتبی خامنه‌ای است.
+
+محسن نقوی، شنبه وارد تهران شد و رسانه‌های ایران اعلام کردند او قرار است با برخی مقام‌ها از جمله عباس عراقچی دیدار کند.
+https://iranintl.com/202606060795
+</div>
+
+## FarsiVOA — post 219801
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219801_1780773255.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اینترنت برگشت؛ تصاویر تازه، خشونت جمهوری اسلامی را عریان‌تر کرد
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125586
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125586_1780773256.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ایران به همسایگان هشدار داد خاک خود را در اختیار آمریکا نگذارند
+
+ایران بار دیگر به کشورهای منطقه هشدار داد که اجازه ندهند از قلمرو یا امکانات آنها برای عملیات نظامی آمریکا علیه جمهوری اسلامی استفاده شود.
+
+وزارت خارجه ایران روز شنبه ۱۶ خرداد (۶ ژوئن) در بیانیه‌ای اعلام کرد کشورهای منطقه باید به اصل "حسن همجواری" پایبند باشند و از استفاده از خاک خود برای اقدامات "تجاوزکارانه" علیه ایران جلوگیری کنند.
+
+این هشدار پس از حملات بامداد شنبه آمریکا به تاسیسات راداری در منطقه سیریک و جزیره قشم مطرح شده است. تهران این حملات را "نقض آشکار آتش‌بس" برقرارشده در آوریل ۲۰۲۶ و "تجاوز نظامی علیه تمامیت ارضی ایران" توصیف کرده است.
+
+وزارت خارجه ایران همچنین از شورای امنیت سازمان ملل خواست نسبت به آنچه "نقض آشکار آتش‌بس" و "اقدامات غیرقانونی آمریکا" خوانده، واکنش نشان دهد.
+
+این بیانیه در حالی منتشر شده که تنش‌ها میان تهران و واشنگتن با وجود آتش‌بس برقرارشده از ۸ آوریل همچنان ادامه دارد.
+*عکس آرشیوی از انفجار در فرودگاه بین‌المللی کویت پس از حمله پهپادی
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 391158
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391158_1780773257.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیو وایرال شده از دعوای چندتا پسر جوگیر که تو این درگیری یکیش به قتل رسیده
+تو حرکت اخر راحت گردنش شکست😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391157
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391157_1780773258.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلیل مهلت ۶۰ روزه ترامپ مشخص شد:
+
+خوش به حالتون عقل ندارید راحتید🤦🏻‍♂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125635
+
+<div align="center">
+  <a href="telegram/content/alonews_125635_1780773260.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شاه چارلز سوم به همراه جمعی از اعضای ارشد خانواده سلطنتی بریتانیا، روز شنبه ۱۶ خردادماه در مراسم ازدواج شاهزاده پیتر فیلیپس، نوه ارشد ملکه الیزابت دوم، در جنوب غربی انگلستان شرکت کردند.
+
+
+این مراسم خصوصی در کلیسای «All Saints» در منطقه کمبل برگزار شد و در آن، شاهدخت آن، مادر داماد، به همراه همسرش تیموتی لارنس حضور داشتند. همچنین  ویلیام وهسرش کیت شاهزاده و شاهزاده خانم ولز، ملکه کامیلا و دیگر اعضای خانواده سلطنتی از جمله شاهدان این مراسم بودند.
+
+شاهزاده پیتر فیلیپس، که در حال حاضر در رتبه نوزدهم خط جانشینی تاج‌وتخت بریتانیا قرار دارد، در حوزه مدیریت ورزشی فعالیت می‌کند و نقشی رسمی در ساختار سلطنتی ندارد. همسر او، هریت اسپرلینگ، پرستار کودکان است. این ازدواج پس از پایان ازدواج قبلی فیلیپس در سال ۲۰۲۱ صورت گرفته است.
+
+﻿
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125634
+
+<div align="center">
+  <a href="telegram/content/alonews_125634_1780773260.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک‌تایمز: اسرائیل مکالمات مربوط به مذاکرات آمریکا با جمهوری اسلامی رو شنود کرده.
+
+
+🔴اسرائیل تلاش‌های خود برای شنود مقام‌های ارشد آمریکایی از جمله استیو ویتکاف و البریج کولبی، معاون وزیر جنگ آمریکا، رو افزایش داده.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 22:34
 ---
 
