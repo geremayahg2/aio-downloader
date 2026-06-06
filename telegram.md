@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 01:32
+---
+
+## VahidOOnLine — post 244008
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244008_1780783376.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تالاب پریشان، به عنوان یکی از بزرگ‌ترین تالاب‌های آب شیرین ایران، در حالی شانزدهمین سال خشکی مداوم خود را سپری می‌کند که به گفته لاهیجان‌زاده، معاون سازمان حفاظت محیط‌زیست، برداشت بی‌رویه آب توسط ۴۹۰ چاه غیرمجاز و همچنین فراتر از ظرفیت چاه‌های مجاز منطقه، رمقی برای احیای آن باقی نگذاشته است. بحرانی که مسئولان مربوطه تاکید دارند تا زمان تعیین‌تکلیف نهایی این چاه‌ها و توقف دزدی آب از حق‌آبه محیط‌زیستی، هرگونه تلاش برای احیای این تالاب بین‌المللی عملا ناممکن خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رومن گافمن، رئیس موساد، معاون اول خود را برکنار کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقدر همه ی اخبار شبیه قبل موج دوم جنگه
+</div>
+
+## pm_afshaa — post 92419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=141.95.135.243&port=443&secret=ddfb2ebf06b1c708b06f46137a4faed9be
+
+پروکسی مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهدید رسمی سپاه به کشورهای خلیج فارس: اجازه ندهید آمریکا در کشور شما پایگاه تأسیس کند چون روزی آن‌ها خواهند رفت و شما و ما باقی خواهیم ماند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340890
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340890_1780783377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی از همان روزهای نخست شکل‌گیری با خشونت و سرکوب همراه بود و این خشونت‌ها بخش مهمی از هویت سیاسی آن است. از آتش زدن سینما رکس آبادان تا اعدام‌های اوایل انقلاب، سپس کشتار زندانیان در سال ۶۷ و کشتارهای اخیر خیابانی، همگی نشانگر وجود عنصر قوی جنایت در ساختار نظام سیاسی جمهوری اسلامی است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340889
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340889_1780783380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حاشیه تجمع اعتراضی ایرانیان در واشینگتن، سیامک آرام، برگزارکننده، به اردوان روزبه، خبرنگار ایران‌اینترنشنال، گفت: «مبارزه یک امر مستمر است و باید ادامه پیدا کند. بخش مهمی از این مبارزه، آگاهی‌رسانی است. اگر می‌خواهیم همراهی مردم کشورهای مختلف، افکار عمومی، رسانه‌ها و سیاستمداران را داشته باشیم، باید آن‌ها را نسبت به اهمیت این موضوع آگاه کنیم.»
+@iranintltv
+</div>
+
+## alonews — post 125663
+
+<div align="center">
+  <a href="telegram/content/alonews_125663_1780783383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران:
+پیش‌نویس یادداشت تفاهم ایران و آمریکا در اختیار نهادی در تهران قرار دارد تا در آن بررسی شود.
+
+
+🔴این پیش‌نویس برای اینکه بدون مشکل به سمت اعلام توافق پیش برود، به آرای اکثریت مطلق نیاز دارد.
+
+
+🔴ممکن است در اواسط هفته شاهد تحولاتی استثنایی باشیم؛ البته به شرطی که دولت آمریکا مانند دو هفته پیش که تشریفات اعلام توافق آماده بود، در لحظه آخر نظرش را تغییر ندهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 01:22
 ---
 
