@@ -7,6 +7,74 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 05:02
+---
+
+## VahidOOnLine — post 243895
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243895_1780709573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه در گفتگوی اختصاصی با شبکه «ان‌بی‌سی نیوز» اعلام کرد که ایران به دلیل «قوی و مغرور بودن»، هنوز توافقی را با ایالات متحده برای پایان دادن به جنگ کنونی که وارد چهارمین ماه خود شده است، امضا نکرده است. ترامپ با اشاره به روند مذاکرات جاری میان واشنگتن و تهران تاکید کرد: «آنها مغرور و قوی هستند و اکنون مجبورند کارهایی را انجام دهند که هرگز فکرش را هم نمی‌کردند. آنها عملا چاره دیگری ندارند و نهایتا باید توافق کنند، اما این فرآیند کمی زمان می‌برد.» رئیس‌جمهوری آمریکا با انتقاد از کسانی که خواستار دستیابی فوری به یک توافق با ایران هستند، سرعت اقدامات خود را با جنگ ۱۹ ساله ویتنام مقایسه کرد و افزود با وجود اینکه تنها حدود ۲۱ تا ۲۲ درصد از کل موشک‌های اولیه ایران باقی مانده و بخش اعظم توان نظامی و کارخانه‌های پهپادی آن‌ها نابود شده است، پذیرش این شرایط سخت برای مقامات تهران زمان‌بر خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92360
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92360_1780709574.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رد موشک‌های شلیک شده از فارس و بوشهر به سمت کویت و بحرین :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله آمریکا به قشم و جنوب کشور و حمله ایران به کویت و بحرین هم عادی شده و هر دو سه شب یبار تکرار میشه اخرم هر دو طرف میگن اقدام دفاعی کردیم و اتش بس برقراره
+</div>
+
+## pm_afshaa — post 92358
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92358_1780709575.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت کشور بحرین: آژیرهای خطر به صدا درآمده و از شهروندان و ساکنان میخوایم که به نزدیکترین مکان امن برن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به بحرین هم موشک زدن
+</div>
+
+## FarsiVOA — post 219725
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219725_1780709575.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحیدآنلاین تصویری از آنچه شلیک موشک از ایران توصیف شده در ساعات اولیه روز شنبه به وقت ایران منتشر کرد. این در حالی است که کویت دقایقی قبل از مقابله با حملات موشکی خصمانه خبر داد.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 04:52
 ---
 
