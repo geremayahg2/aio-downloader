@@ -7,6 +7,137 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 17:04
+---
+
+## VahidOOnLine — post 243955
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243955_1780752869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، ستاد فرماندهی مرکزی آمریکا، تصاویری از ناو تریپولی و یک بالگرد سی‌هاوک منتشر کرد و در توضیح آن نوشت ملوانان و تفنگداران دریایی آمریکا در عرشه ناو یواس‌اس تریپولی هنگام حرکت این ناو در دریای عرب، از یک بالگرد سی‌هاوک پایین می‌آیند.
+
+سنتکام در توضیحات خود مشخص نکرد این اقدام بخشی از یک عملیات نظامی بوده یا در چارچوب یک تمرین نظامی انجام شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92384
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92384_1780752869.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خارجه جمهوری اسلامی حمله آمریکا به تأسیسات راداری و ساحلی در سیریک و قشم رو نقض آتش‌بس دونست و هشدار داد مسئولیت هرگونه تشدید تنش و پیامدهای اون بر عهده واشینگتن خواهد بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DW_Farsi — post 125571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶از استابیله تا امباپه؛ گلزنان برتر جام‌های جهانی فوتبال
+
+یکی از عنوان‌هایی که ستارگان بزرگ تیم‌های شرکت‌کننده در جام جهانی فوتبال در پی شکار آن هستند، عنوان "آقای گل" رقابت‌هاست. بهترین گلزن مسابقات جام جهانی ۲۰۲۲ کیلیان امباپه، مهاجم فرانسه بود که هشت گل به ثمر رساند.
+
+📌 برای دسترسی کامل به آلبوم به وبسایت دویچه‌وله فارسی مراجعه کنید.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15817
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15817_1780752870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️بیانیه منتشر شده توسط وزارت امور خارجه جمهوری اسلامی ایران .
+
+موضوع:نقض آتش‌بس توسط آمریکا
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 در ۱۰ روز نخست پس از بازگشت اینترنت بعد از ۸۸ روز، مردم ایران در گوگل نه به‌دنبال قیمت کالاها بودن، نه اخبار جنگ و سیاست و نه محتوای جنسی؛ بلکه دنبال ابتدایی‌ترین چیزها، یعنی آهنگ، فیلم و سرگرمی بودن! @IranianMinds
+</div>
+
+## IranianMinds — post 21503
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21503_1780752871.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 در ۱۰ روز نخست پس از بازگشت اینترنت بعد از ۸۸ روز، مردم ایران در گوگل نه به‌دنبال قیمت کالاها بودن، نه اخبار جنگ و سیاست و نه محتوای جنسی؛ بلکه دنبال ابتدایی‌ترین چیزها، یعنی آهنگ، فیلم و سرگرمی بودن!
+
+@IranianMinds
+</div>
+
+## alonews — post 125567
+
+<div align="center">
+  <a href="telegram/content/alonews_125567_1780752872.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترکیه در حال توسعه یک شبکه دفاع هوایی چندلایه موسوم به «گنبد فولادی» است که در آن رادار، جنگ الکترونیک و سلاح لیزری به‌صورت هماهنگ برای مقابله با پهپادها عمل می‌کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125566
+
+<div align="center">
+  <a href="telegram/content/alonews_125566_1780752872.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جهانبخش: آنطور که من شنیده‌ام کارتل‌های مواد مخدر مکزیک، ایرانی‌ها رو دوست دارند و گفته اند مشکلی با آنها نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125565
+
+<div align="center">
+  <a href="telegram/content/alonews_125565_1780752872.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امورخارجه برای بار هزارم، نقض آتش بس توسط آمریکا را به شدت محکوم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125564
+
+<div align="center">
+  <a href="telegram/content/alonews_125564_1780752873.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفع بزرگ اقتصادی چین از جنگ ایران
+
+
+🔴جنگ ایران و بستن تنگه هرمز، به صادرات تکنولوژی‌های پاک چین مانند باتری، خودروی برقی و ... منجر شده و به ماهی ۲۰ میلیارد دلار رسیده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 16:53
 ---
 
