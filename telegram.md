@@ -7,6 +7,32 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 05:12
+---
+
+## VahidOOnLine — post 243896
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243896_1780710169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت کشور بحرین، بامداد شنبه، ۱۶ خردادماه، با انتشار دو بیانیه «فوری» در اکس اعلام کرد که آژیرهای خطر و هشدار در این کشور به صدا درآمده‌اند. مقامات امنیتی بحرین با اعلام وضعیت اضطراری، از تمامی مردم این کشور خواسته‌اند ضمن حفظ آرامش کامل، فورا به نزدیک‌ترین مکان امن و پناهگاه بروند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FarsiVOA — post 219726
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219726_1780710170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحیدآنلاین تصویری از آنچه شلیک موشک از ایران توصیف شده در ساعات اولیه روز شنبه به وقت ایران منتشر کرد. این در حالی است که کویت دقایقی قبل از مقابله با حملات موشکی خصمانه خبر داد.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 05:02
 ---
 
