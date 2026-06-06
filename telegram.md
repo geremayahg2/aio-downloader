@@ -7,6 +7,80 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 00:12
+---
+
+## mwarmonitor — post 10232
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10232_1780778579.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حدود ۸۰ قایق تندرو نیروی دریایی سپاه پاسداران انقلاب اسلامی بر اساس تصاویر ماهواره‌ای Sentinel-2 در حال گشت‌زنی در تنگه هرمز مشاهده شده‌اند (06/06/2026).
+
+📌مختصات: 26.73572, 56.77468
+
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92414
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92414_1780778580.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدجواد لاریجانی: مردم بدونن که به هیچ وجه برنامه هسته‌ای رو رها نمی‌کنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92413
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92413_1780778580.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محسن نقوی، وزیر کشور پاکستان وارد تهران شد و پس از ورود با اسکندر مومنی، وزیر کشور دیدار کرد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 219808
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مراسم هشتادودومین سالگرد عملیات نورماندی
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157985
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157985" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۷ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## alonews — post 125657
+
+<div align="center">
+  <a href="telegram/content/alonews_125657_1780778582.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید ترامپ در تروث سوشال
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 00:02
 ---
 
@@ -126,8 +200,6 @@ https://bbc.in/4uTPCvX
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
