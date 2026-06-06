@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 11:52
+---
+
+## DW_Farsi — post 125554
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125554_1780734173.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 عکس روز: آرامش پیش از طوفان
+
+صدها تن از شهروندان شیکاگو در نخستین ساعات بامداد جمعه پنجم ژوئن (۱۵ خرداد) روز خود را با یک جلسه یوگای دسته‌جمعی در ساحل معروف اوک استریت در کنار دریاچه میشیگان آغاز کردند.این تمرین هم‌زمان با شمارش معکوس برای آغاز بزرگ‌ترین رویداد فوتبالی جهان برگزار شد. بیست‌وسومین دوره مسابقات جام جهانی فوتبال از پنج‌شنبه ۱۱ ژوئن ۲۰۲۶ (۲۱ خرداد ۱۴۰۵) به میزبانی مشترک سه کشور آمریکا، کانادا و مکزیک آغاز می‌شود.
+
+@dw_farsi
+</div>
+
+## alonews — post 125467
+
+<div align="center">
+  <a href="telegram/content/alonews_125467_1780734174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر بهداشت: بخاطر قطعی اینترنت یک رتبه علمی در جهان نزول کردیم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125466
+
+<div align="center">
+  <a href="telegram/content/alonews_125466_1780734174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اینترنت مردم پاکستان داره قطع میشه بدلیل اعتراضات مردمی!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125465
+
+<div align="center">
+  <a href="telegram/content/alonews_125465_1780734174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مشاور امنیت ملی عراق تاکید کرد که ایران پیشتر اعلام کرده که عراق از محدودیت‌های عبور از تنگه هرمز مستثنی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 11:43
 ---
 
