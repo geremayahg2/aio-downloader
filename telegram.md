@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 18:43
+---
+
+## VahidOOnLine — post 243970
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243970_1780758825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه در جریان اعتراض دانش‌آموزان یزد در مقابل اداره‌کل آموزش و پرورش این استان تنش صورت گرفت و برخی دانش‌آموزان زخمی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام و عرض ادب پستی که ترامپ منتشر کرد ،پرچم شیر و خورشید داخلش بود . پس این یعنی یه امید بزرگ 🥹🎊
+</div>
+
+## WithYashar — post 13628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام و عرض ادب
+پستی که ترامپ منتشر کرد ،پرچم شیر و خورشید داخلش بود .
+پس این یعنی یه امید بزرگ 🥹🎊
+</div>
+
+## WithYashar — post 13627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه:
+ترامپ به میانجی‌ها اطلاع داد که مذاکرات با ایران بیش از 60 روز ادامه نخواهد داشت که این مهلت در روز های آینده به پایان می‌رسد و ایران باید به‌سرعت پاسخ دهد.
+« این خبر فیکه که پخش شده »
+@withyashar
+</div>
+
+## pm_afshaa — post 92391
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92391_1780758827.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیکزاد، نایب‌رییس مجلس: همه آرزوشون اینه که برن دست مجتبی خامنه‌ای رو ببوسن، اما الان اگه دشمن بخواد از رفتن ما پیش اون سو استفاده کنه، نباید این کار رو بکنیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92390
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92390_1780758827.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نورالدین الدغیر خبرنگار الجزیره در تهران:
+درگیری‌های ایران و آمریکا در خلیج فارس بیانگر وضعیت «نه جنگ و نه صلح» است.
+
+طرفین آمریکایی و ایرانی در حال مذاکره برای یافتن راه‌حلی برای پایان دادن به جنگ هستن، اما آیا میشه گفت که این وضعیت به همین منوال ادامه خواهد داشت؟ قطعاً خیر.
+
+هرگونه نقص یا اختلال در مذاکرات میتونه این درگیری‌ها رو به جنگی تمام‌عیار بین ایران و آمریکا تبدیل کنه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آمریکا با فروش نزدیک به دو میلیارد دلار سامانه ضدپهپادی به کویت موافقت کرد
+
+وزارت امور خارجۀ آمریکا با فروش سامانه‌های ضدپهپادی به ارزش یک میلیارد و ۹۸۰ میلیون دلار به کویت موافقت کرد.
+واشینگتن اعلام کرد این تجهیزات توان کویت را برای مقابله با تهدیدهای پهپادی افزایش می‌دهد.
+درخواست خرید این سامانه‌ها در شرایطی مطرح شده که جمهوری اسلامی در هفته‌های اخیر حملات به کشورهای منطقه، از جمله کویت را ازسر گرفته است.
+وزارت امور خارجۀ آمریکا گفت این معامله در راستای تقویت امنیت یکی از متحدان اصلی آمریکا خارج از ناتو انجام می‌شود.
+
+#خبر #دژ #خاورمیانه
+@DEJradio
+</div>
+
+## IranIntlTV — post 340838
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340838_1780758828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جاویدنام مسعود ذات‌پرور، قهرمان بدنسازی، روز پنج شنبه ۱۸ دی ۱۴۰۴ در جریان انقلاب ملی ایرانیان بر اثر اصابت گلوله جنگی ماموران سرکوب جمهوری اسلامی در شهر رشت جان باخت.
+
+🔹او پیش از حضور در اعتراضات دی‌ماه، نوشته بود: «ایستاده‌ام، بهایش هرچه باشد می‌دهم، نه ترسی دارم، نه نگرانی، حقم را می‌خواهم.»
+
+🔹فربد سروندی، عضو تحریریه ایران اینترنشنال گزارش می‌دهد
+
+@iranintltvsport
+</div>
+
+## alonews — post 125583
+
+<div align="center">
+  <a href="telegram/content/alonews_125583_1780758829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک روحانی:
+مذاکرات کصشره و آمریکا قصد داره سنگین حمله کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 18:34
 ---
 
