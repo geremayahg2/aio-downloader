@@ -7,6 +7,55 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 04:52
+---
+
+## VahidOnline — post 75961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'رد موشک‌های شلیک شده از ایران'
+تصاویر دریافتی از استان‌های فارس و بوشهر
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75960
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75960_1780708978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک دیگری از ایران همزمان با صدور هشدر دیگری در کویت
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 01:14:57 UTC
+
+Sirens activated. Citizens and residents are urged to remain calm, proceed to the nearest safe location, and follow official news channels.
+#Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2063067028001317008
+
+فارسی
+
+آژیرهای خطر فعال شدند. از شهروندان و ساکنان درخواست می‌شود آرامش خود را حفظ کرده، به نزدیک‌ترین مکان امن بروند و کانال‌های خبری رسمی را دنبال کنند.
+#Bahrain 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2063067028001317008
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 04:42
 ---
 
