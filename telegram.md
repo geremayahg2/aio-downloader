@@ -7,6 +7,67 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 05:22
+---
+
+## VahidOOnLine — post 243897
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243897_1780710766.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درپی موج دوم حمله‌های موشکی و پهپادی به کویت، آژیرهای خطر در این کشور فعال شدند و ارتش کویت از فعال شدن پدافند هوایی برای رهگیری این حمله‌ها خبر داد. دقایقی قبل نیز ارتش کویت از تلاش برای رهگیری موج دیگری حمله‌های موشکی و پهپادی خبر داده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342671
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342671_1780710767.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump returns from Wisconsin.
+
+POTUS stepped off Air Force One, gave a fist bump toward the press, and made his way across the tarmac.
+
+He then boarded Marine One.
+</div>
+
+## IranIntlTV — post 340752
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340752_1780710768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درپی موج دوم حمله‌های موشکی و پهپادی به کویت، آژیرهای خطر در این کشور فعال شدند و ارتش کویت از فعال شدن پدافند هوایی برای رهگیری این حمله‌ها خبر داد. دقایقی قبل نیز ارتش کویت از تلاش برای رهگیری موج دیگری حمله‌های موشکی و پهپادی خبر داده بود.
+https://iranintl.com/202606069640
+</div>
+
+## FarsiVOA — post 219728
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219728_1780710769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا، جمعه شب با انتشار این ویدیو در تروت‌سوشال به وضعیت نیروی دریایی جمهوری اسلامی در پی عملیات نظامی مشترک آمریکا و اسرائيل طعنه زد. آقای ترامپ در سخنان خود گفته است که کشتی‌های نیروی دریایی جمهوری اسلامی «کف دریا به خط هستند.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219727
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219727_1780710769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین نیز دقایقی قبل از به صدا در آمدن آژیر خطر خبر داد و از مردم خواست به اماکن امن بروند. این در حالی است که کویت نیز از مقابله با حملات موشکی و پهپادی خصمانه خبر داده است.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 05:12
 ---
 
