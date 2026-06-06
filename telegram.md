@@ -7,6 +7,175 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 01:52
+---
+
+## VahidOOnLine — post 244009
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244009_1780784573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️چند روز پس از گزارش اختصاصی ایندیپندنت فارسی درباره صدور نوعی مجوز ورود بسیار محدود و کوتاه‌مدت برای تیم ملی فوتبال ایران، خبرگزاری فرانسه گزارش داد، ابوالفضل پسندیده، سفیر جمهوری اسلامی در مکزیک به خبرنگاران گفته است بر اساس شروط تعیین‌شده برای ویزای اعضای تیم ملی، بازیکنان و کادر فنی تنها در روز برگزاری مسابقات خود اجازه ورود به خاک ایالات متحده را دارند و باید بلافاصله پس از پایان بازی، این کشور را ترک کنند. این محدودیت سخت‌گیرانه در شرایطی ابلاغ شده است که کاروان تیم ملی ایران روز شنبه، تحت سایه یک بحران دیپلماتیک شدید میان تهران و واشنگتن، اردوی تمرینی خود در ترکیه را به مقصد مقر جدید خود در شهر تیخوانای مکزیک ترک کرد. براساس این گزارش، با توجه به اینکه هر سه بازی مرحله گروهی ایران قرار است در خاک آمریکا برگزار شود، این اولین بار در تاریخ جام جهانی است که یک کشور میزبان، پذیرای تیم ملی کشوری می‌شود که با آن در وضعیت جنگی قرار دارد.
+این دستورالعمل جدید واشنگتن در تضاد کامل با اظهارات قبلی امیرمهدی علوی، سخنگوی تیم ملی قرار دارد که پیش‌تر مدعی شده بود ویزاها «چندبار ورود» هستند و تیم یک یا دو روز پیش از مسابقات به محل بازی‌ها خواهد رسید. پیش از این نیز ایالات متحده از صدور ویزا برای ۱۵ نفر از همراهان و کادر مدیریتی تیم خودداری کرد و سفارت ایران در ترکیه با «تبعیض‌آمیز» خواندن این رفتار، از فیفا خواسته است تا آمریکا را به دلیل نقض صریح قوانین جام جهانی، که شامل ضرورت حضور سرمربی در کنفرانس مطبوعاتی یک روز پیش از بازی است، پاسخگو کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13658
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13658_1780784574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : خدای‌دریا
+@withyashar
+</div>
+
+## WithYashar — post 13657
+
+
+
+
+## IranIntlTV — post 340891
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340891_1780784577.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های حکومتی در ایران گزارش دادند وزیر کشور پاکستان برای تحویل نامه‌ای ویژه از سوی رییس ستاد کل ارتش و نخست‌وزیر این کشور به مجتبی خامنه‌ای به تهران رفته است.
+
+جزییات بیشتر با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15827
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15827_1780784580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گاردین در گزارشی با اشاره به وضعیت شکننده ایران پس از جنگ، نوشت جمهوری اسلامی خود را برای دوره‌ای از «صلحِ پرتنش» آماده می‌کند؛ دوره‌ای که به‌گفته تحلیلگران می‌تواند با بحران‌های هم‌زمان اقتصادی، ساختاری و اجتماعی همراه باشد. در این گزارش تأکید شده که حتی در صورت رسیدن به توافق یا کاهش تنش‌ها، مشکلاتی مانند ابرتورم، قطعی‌های مکرر برق، رکود اقتصادی و نارضایتی‌های عمومی همچنان پابرجا خواهند ماند و فشار بیشتری بر جامعه وارد خواهند کرد.
+
+به‌نوشته گاردین، شرایط امروز ایران از جهات مختلف از فضای پیش از جنگ هم دشوارتر شده و همین موضوع نگرانی‌ها درباره بروز ناآرامی‌های تازه را افزایش داده است. این روزنامه همچنین گزارش داده که در سطوحی از ساختار قدرت، بحث‌هایی درباره آینده کشور در جریان است و حاکمان ایران به‌خوبی می‌دانند که مسئله اصلی فقط عبور از جنگ نیست، بلکه حفظ ثبات و کنترل در دوران پس از آن است.
+
+جمله محوری گزارش این است که ایران، حتی اگر از مرحله درگیری مستقیم عبور کند، همچنان با مجموعه‌ای از بحران‌های درهم‌تنیده روبه‌رو خواهد بود؛ بحران‌هایی که می‌توانند نارضایتی اجتماعی را عمیق‌تر و چشم‌انداز سیاسی کشور را پیچیده‌تر کنند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 391185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A16 
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391184
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391184_1780784581.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A16
+
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391183
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391183_1780784582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391182
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391182_1780784582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مدرسه دیگر در کنار پایگاه نظامی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏پاکستان برا چی اعتراض میکنن؟ حموم اجباری شده؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینکارا خوب نیست ادامه بدید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391178
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391178_1780784582.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لعنت بهت فکر کردم لاکپشته🐢
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391177
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391177_1780784585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیده شده در تجمعات شبانه عرزشی‌ها
+سرباز صفرم هست امشب قراره صفر0شو آزاد کنن درجه بگیره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391176
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391176_1780784585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من 12 ساله وقتی خودمو به خواب میزدم که بابام از ماشین تا اتاقم بغلم کنه:
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 01:42
 ---
 
