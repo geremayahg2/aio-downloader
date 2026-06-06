@@ -7,6 +7,29 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 03:32
+---
+
+## WithYashar — post 13608
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13608_1780704178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همکنون جت‌های جنگنده آمریکایی در حال پرواز بر فراز استان بصره عراق نزدیک مرز ایران هستند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Xavier Becerra advances to the general election for California governor. The AP made the call Friday night.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 03:24
 ---
 
