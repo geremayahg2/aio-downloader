@@ -7,6 +7,64 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 14:13
+---
+
+## mwarmonitor — post 10210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خبرنگار الجزیره: حمله هوایی اسرائیل به کفر تبنیّت در شهرستان النبطیه.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 340796
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340796_1780742629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای شنبه ۱۶ خرداد
+@iranintltv
+</div>
+
+## IranianMinds — post 21472
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21472_1780742631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برنامه زنده دیشب خیابان انقلاب به علت این حرف‌ها لغو شد.
+
+@IranianMinds
+</div>
+
+## alonews — post 125506
+
+<div align="center">
+  <a href="telegram/content/alonews_125506_1780742634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: مرکز ناوگان پنجم دریای آمریکا مورد اصابت موشک قرار گرفت؛ نه ببخشید اشتباه شد؛ صدای انفجار در جزیره خارک شنیده شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125505
+
+<div align="center">
+  <a href="telegram/content/alonews_125505_1780742636.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چند روز پیش گروهی از اتحادیه معلمان مکزیک، ساختمان آموزش پرورش در مکزیکوسیتی را تصرف کردن و خواهان افزایش حقوق شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 14:03
 ---
 
