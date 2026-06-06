@@ -7,6 +7,54 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 05:33
+---
+
+## VahidOOnLine — post 243898
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243898_1780711386.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روابط عمومی سپاه، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرد: «به دنبال حملات ارتش آمریکا به سیریک و جزیره قشم، پایگاه‌های دشمن در منطقه مورد اصابت موشک‌های هوافضا قرار گرفتند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOnline — post 75964
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75964_1780711387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی سپاه، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرد: «به دنبال حملات ارتش آمریکا به سیریک و جزیره قشم، پایگاه‌های دشمن در منطقه مورد اصابت موشک‌های هوافضا قرار گرفتند».
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 219730
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219730_1780711388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاربران شبکه‌های اجتماعی ویدیوهایی را منتشر کرده‌اند که می‌گویند رهگیری موشک‌های شلیک‌شده در بامداد شنبه به سمت بحرین و در آسمان این کشور را نشان می‌دهد. کویت نیز از مقابله با حملات خصمانه پهپادی و موشکی خبر داده است. هر دو کشور پیشتر هدف حملات جمهوری اسلامی قرار گرفته‌‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219729
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219729_1780711388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین نیز دقایقی قبل از به صدا در آمدن آژیر خطر خبر داد و از مردم خواست به اماکن امن بروند. این در حالی است که کویت نیز از مقابله با حملات موشکی و پهپادی خصمانه خبر داده است.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 05:22
 ---
 
