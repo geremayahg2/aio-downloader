@@ -7,6 +7,199 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 21:54
+---
+
+## VahidOOnLine — post 243991
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243991_1780770272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد خاتمی، عضو مجلس خبرگان، در دیدار با اعضای شورای اداری شهرستان سیرجان با اشاره به وضعیت جسمانی مجتبی خامنه‌ای، گفت: «در جریان حمله روز نخست جنگ، او از ناحیه پا دچار آسیب‌دیدگی شد؛ به‌گونه‌ای که احتمال قطع پا نیز مطرح بوده، اما این اتفاق رخ نداد و او هم‌اکنون در سلامت به سر می‌برد.»
+
+این در حالی است که از روز ۹ اسفند سال ۱۴۰۴ و حمله به دفتر علی خامنه‌ای، هیچ تصویر یا فایل صوتی از مجتبی خامنه‌ای منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥شنیده شدن صدای انفجار در اطراف جزیره خارک
+</div>
+
+## pm_afshaa — post 92400
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92400_1780770273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محسن نقوی، وزیر کشور پاکستان وارد تهران شد و پس از ورود با اسکندر مومنی، وزیر کشور دیدار کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92399
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92399_1780770274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: دقایقی پیش ساکنان جزیره خارک صدای یک انفجار نسبتا شدید شنیدن.
+
+هنوز محل دقیق و منشا این انفجار مشخص نیست اما بررسی‌ها نشون میده این انفجار خارج از جزیره رخ داده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340868
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340868" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: دور جدید درگیری؛ آمریکا رادارهای سپاه را زد، سپاه کویت و بحرین را هدف گرفت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340867
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340867_1780770276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد خاتمی، عضو مجلس خبرگان، در دیدار با اعضای شورای اداری شهرستان سیرجان با اشاره به وضعیت جسمانی مجتبی خامنه‌ای، گفت: «در جریان حمله روز نخست جنگ، او از ناحیه پا دچار آسیب‌دیدگی شد؛ به‌گونه‌ای که احتمال قطع پا نیز مطرح بوده، اما این اتفاق رخ نداد و او هم‌اکنون در سلامت به سر می‌برد.»
+
+این در حالی است که از روز ۹ اسفند سال ۱۴۰۴ و حمله به دفتر علی خامنه‌ای، هیچ تصویر یا فایل صوتی از مجتبی خامنه‌ای منتشر نشده است.
+https://iranintl.com/202606065653
+</div>
+
+## Shin_Persian — post 6586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 18:18:21 UTC
+
+State-owned Mehr news claims the explosion in/near Kharg was due to EOD.
+
+فارسی
+
+خبرگزاری دولتی مهر ادعا می‌کند که انفجار در یا نزدیکی خارک به دلیل خنثی‌سازی مهمات (EOD) بوده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 18:17:17 UTC
+
+IRGC-owned Fars: "Explosion near Kharg island", Bushehr Province, #Iran
+
+فارسی
+
+خبرگزاری فارس متعلق به سپاه پاسداران: «انفجار در نزدیکی جزیره خارگ»، استان بوشهر، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219793
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219793_1780770277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری فارس، وابسته به سپاه پاسداران، از شنیده شدن صدای انفجار در نزدیکی جزیره خارک خبر داد. در همین حال، سایت تسنیم مدعی شد که این صدای انفجارها مربوط به انفجار «کنترل شده» مهمات است.
+</div>
+
+## DW_Farsi — post 125584
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125584_1780770277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 بحرین و کویت حملات موشکی ایران را محکوم کردند
+
+بحرین و کویت روز شنبه ۶ ژوئن (۱۶ خرداد) حملات موشکی ایران به خاک خود را محکوم کردند و آن را نقض حاکمیت ملی و تشدید تنش در منطقه خواندند.
+
+وزارت خارجه بحرین در بیانیه‌ای اعلام کرد حملات جدید ایران به بحرین و کویت "تجاوزی آشکار" و "نقض فاحش حاکمیت دو کشور" محسوب می‌شود. این وزارتخانه افزود بحرین و کویت موفق شده‌اند هفت موشک شلیک‌شده از سوی ایران را رهگیری کنند.
+
+همزمان، وزارت خارجه کویت نیز این حملات را "تهدیدی مستقیم علیه جان شهروندان و ساکنان" این کشور توصیف کرد و گفت این اقدام "نقض آشکار حاکمیت کویت" و "تشدیدی خطرناک" در تنش‌های منطقه‌ای است.
+
+این واکنش‌ها در حالی مطرح می‌شود که تنش‌های نظامی میان ایران و آمریکا در روزهای اخیر بار دیگر افزایش یافته است.
+*تصویر آرشیوی است
+@dw_farsi
+</div>
+
+## IranianMinds — post 21518
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21518_1780770278.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلیل مهلت ۶۰ روزه ترامپ هم مشخص شد.
+
+@IranianMinds
+</div>
+
+## Hranews — post 113432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازداشت و بی خبری از وضعیت ۳ شهروند در آسمان آباد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– علیرضا قاسم‌نژاد، آرمین اسدیان و احمدرضا کوه‌زادیانی، شهروندان اهل آسمان آباد، ۳۱ اردیبهشت ماه توسط نیروهای امنیتی در این شهر بازداشت شده‌اند و تاکنون از وضعیت و محل نگهداری آنها اطلاعی حاصل نشده است
+
+ادامه مطلب
+
+#علیرضا_قاسم‌نژاد #آرمین_اسدیان #احمدرضا_کوه‌زادیانی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125621
+
+<div align="center">
+  <a href="telegram/content/alonews_125621_1780770281.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: لحظاتی پیش صدای انفجار در جزیره خارگ شنیده شد. این صداها مربوط به خنثی سازی مهمات در منطقه نفتی بهرگان است که در جزیره شنیده شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125620
+
+<div align="center">
+  <a href="telegram/content/alonews_125620_1780770282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کرملین: نتیجه عملیات نظامی در اوکراین برای واشنگتن روشن شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 21:43
 ---
 
