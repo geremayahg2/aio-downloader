@@ -7,6 +7,131 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 14:43
+---
+
+## DEJradio — post 5388
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5388_1780744426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 بن‌بست در مذاکرات اتمی؛
+
+گفت‌وگو با منشه امیر، تحللیگر سیاسی
+
+#چالش #مذاکرات
+@DEJradio
+</div>
+
+## Shin_Persian — post 6565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Faytuks Network ✓ @FaytuksNetwork
+Sat, 06 Jun 2026 10:54:23 UTC
+
+Saudi Arabia condemns “Iranian aggressions” against Kuwait and Bahrain
+
+فارسی
+
+عربستان سعودی «تجاوزات ایران» علیه کویت و بحرین را محکوم کرد
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219753
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219753_1780744428.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجلاس رهبران شرکت‌های هواپیمایی جهان روز شنبه در میانه بحران انرژی و تورم ناشی از انسداد تنگه هرمز توسط جمهوری اسلامی آغاز شد.
+
+اجلاس مجمع بین‌المللی حمل و نقل هوایی که ۳۷۰ شرکت هواپیمایی با سهمی ۸۵ درصدی در ترافیک هوایی جهان عضو آن هستند، در حالی برگزار می‌شود که این نهاد بین‌المللی قبل از جنگ خاورمیانه سود خالص ۴۱ میلیارد دلاری برای صنعت هوایی در سال جاری پیش‌بینی کرده بود.
+
+با این حال جهش چشمگیر قیمت سوخت هواپیما،به همراه افزایش هزینه‌های نگهداری و تعمیر هواپیماها به سود شرکتها سایه انداخته است. حتی در آمریکا که صادرکننده خالص نفت و محصولات نفتی است، قیمت بلیت هواپیما اخیراً بیش از یک سوم نسبت به پارسال جهش داشته است.
+
+هرچند شرکت‌های هواپیمایی می‌توانند بخشی از افزایش هزینه سوخت را از طریق افزایش نرخ بلیت جبران کنند، اما این اقدام ممکن است مسافران با بودجه محدودتر را از پرواز هوایی منصرف کند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15797
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15797_1780744429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدون شرح 😶
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15796
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15796_1780744431.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گزارشگر صداوسیما: مرکز ناوگان پنجم دریای آمریکا مورد اصابت موشک قرار گرفت؛ نه ببخشید اشتباه شد؛ صدای انفجار در جزیره خارک شنیده شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157964
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157964_1780744433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در واکنش به عدم صدور ویزا برای عده‌ای از اعضای فرعی تیم ملی، فدراسیون فوتبال ایران در بیانیه‌ای که روز شنبه،‌ ۱۶ خردادماه، منتشر شد دولت آمریکا را به «رفتار کینه‌توزانه» و «کاملا سیاسی» متهم کرد.
+
+🔸روزنامه نیویورک‌ تایمز روز جمعه به نقل از چهار مقام ارشد در دولت آمریکا خبر داد که درخواست همهٔ ۲۶ بازیکن ایران پذیرفته شده، اما بیش از ده نفر از اعضای کادر پشتیبانی و مسئولان فدراسیون که قرار بود تیم را همراهی کنند، اجازه ورود به آمریکا نگرفته‌اند.
+
+🔸در بیانیه فدراسیون فوتبال آمده است:‌ «دولت هنجارشکن و قانون‌ستیز آمریکا با تسری رفتارهای کینه‌توزانه خود علیه ملت ایران به عرصه ورزش، در عمل امکان برخورداری از شرایط برابر و امکان رقابت بدون تبعیض را از تیم ملی ایران دریغ کرد.»
+
+🔸به گفته فدراسیون فوتبال،‌ فیفا «وظیفه دارد ویزای کادر مدیریتی، اجرایی، فنی و پشتیبانی تیم ملی ایران را که هم‌اکنون در اردو حضور داشته و تیم ملی به آنها نیاز مبرم دارد، تا حصول نتیجه نهایی پیگیری کند».
+
+
+@RadioFarda
+</div>
+
+## alonews — post 125521
+
+<div align="center">
+  <a href="telegram/content/alonews_125521_1780744434.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع رسانه‌ای و وزارت دفاع بحرین از وقوع چند انفجار درپی حملات موشکی و پهپادی به این کشور خبر دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125520
+
+<div align="center">
+  <a href="telegram/content/alonews_125520_1780744434.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اینترنت دیتاسنترها همچنان قطع است
+کسب‌وکارهای اینترنتی کماکان با مشکل مواجه‌اند
+
+مدیرعامل شرکت آسیاتک در گفت‌وگو با سیتنا:
+
+🔴برخلاف برخی اظهارنظرها مبنی بر بازگشت وضعیت اینترنت بین‌الملل به شرایط پیش از دی‌ماه سال گذشته، دسترسی مشتریان مراکز داده (دیتاسنترها) همچنان برقرار نشده و کسب‌وکارهای اینترنتی کماکان با چالش مواجه‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 14:33
 ---
 
