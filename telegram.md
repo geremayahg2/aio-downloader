@@ -7,6 +7,65 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 13:53
+---
+
+## mwarmonitor — post 10209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک منبع پاکستانی به الجزیره: وزیر کشور که امروز به ایران سفر می‌کند، پیامی از سوی پاکستان برای رهبر ایران حمل خواهد کرد.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5386
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5386_1780741407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 اقدام نظامی علیه متحد منطقه‌ای؛
+
+روح‌الله رحیم‌پور، تحلیلگر سیاسی
+
+#عمان #جنگ
+@DEJradio
+</div>
+
+## BBCPersian — post 282976
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282976_1780741410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻پس از تبادل آتش‌جدید ایران و آمریکا در خلیج فارس، سپاه پاسداران تهدید کرد که آمریکا درصورت «تکرار شرارت‌هایش» مسئول عواقب «بسته‌شدن کامل تنگۀ هرمز روی خروج نفت‌ و گاز» خواهد بود. ارتش آمریکا می‌گوید در واکنش به شلیک پهپادهای ایران به سمت تنگه هرمز، رادارهای نظارت ساحلی در گوروک و قشم را هدف قرار داده است. سپاه در واکنش از شیلک موشک به پایگاه‌های آمریکا در بحرین و کویت خبر داد. سنتکام می‌گوید این موشک‌ها رهگیری شدند یا به هدف نرسیدند.
+
+وزارت خارجه بحرین حملات ایران به «قلمرو» خود و کویت را «به‌شدت» محکوم کرد.
+
+در بیانیه این وزراتخانه آمده است که «حملات تازه ایران» به بحرین و کویت «خصومت آشکار» و «نقض فاحش» حاکمیت این دو کشور است.
+
+متن کامل خبر در لینک زیر:
+https://bbc.in/4uOBOTn
+📷NurPhoto via Getty Images
+
+@BBCPersian
+</div>
+
+## alonews — post 125501
+
+<div align="center">
+  <a href="telegram/content/alonews_125501_1780741411.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: دادن پول به ایران برای ترامپ خیلی سخت است
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 13:43
 ---
 
