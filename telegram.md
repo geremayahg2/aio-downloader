@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 18:34
+---
+
+## VahidOOnLine — post 243969
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243969_1780758244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «ما در حال تثبیت یک معادله ایرانی در منطقه هستیم که طی آن، جمهوری اسلامی دیگر در برابر هیچ شرارت و بی‌نظمی خویشتن‌داری نمی‌کند.»
+
+او اضافه کرد: «مقداری برای آمریکایی‌ها درد و خرج دارد اما عادت خواهند کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92389
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92389_1780758245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیکزاد، نایب‌رییس مجلس:
+همه آرزوشون اینه که برن دست مجتبی خامنه‌ای رو ببوسن، اما الان اگه دشمن بخواد از رفتن ما پیش اون سو استفاده کنه، نباید این کار رو بکنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92387
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92387_1780758245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عارف، معاون اول پزشکیان:
+در جنگ‌های اخیر شاهد مهاجرت معکوس نخبگان بودیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340837
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340837_1780758246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد روز شنبه در جریان اعتراض دانش‌آموزان یزد در مقابل اداره‌کل آموزش و پرورش این استان تنش صورت گرفت و برخی دانش‌آموزان زخمی شدند.
+</div>
+
+## IranIntlTV — post 340836
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340836_1780758247.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت: «ما در حال تثبیت یک معادله ایرانی در منطقه هستیم که طی آن، جمهوری اسلامی دیگر در برابر هیچ شرارت و بی‌نظمی خویشتن‌داری نمی‌کند.»
+
+او اضافه کرد: «مقداری برای آمریکایی‌ها درد و خرج دارد اما عادت خواهند کرد.»
+https://iranintl.com/202606065851
+</div>
+
+## FarsiVOA — post 219772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در مراسم گرامی‌داشت هشتاد و دومین سالگرد «نبرد نرماندی» در فرانسه، از کهنه‌سربازان آمریکایی که در جنگ جهانی دوم خدمت کرده‌اند، قدردانی کرد.
+
+او خطاب به این کهنه‌سربازان گفت: «ما شما را دوست داریم و قدردان شما هستیم.»
+
+هگست همچنین گفت ملت آمریکا خدمت و شجاعت تاریخی این سربازان را ارج می‌نهد و افزود که ششم ژوئن ۱۹۴۴ «مسیر تاریخ را تغییر داد.»
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125578
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125578_1780758248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 هشدار عون به ایران در توقف مداخله در امور لبنان و اصرار عراقچی بر درگیر کردن لبنان در جنگ اخیر
+
+پس از هشدار جوزف عون، رئیس‌جمهور لبنان به ایران در پایان دادن به دخالت در امور داخلی لبنان، عباس عراقچی در مصاحبه‌ای با ال‌میادین، لبنان را بخش جدایی‌ناپذیری از جنگ اخیر بین ایران، اسرائیل و ایالات متحده دانست.
+@dw_farsi
+</div>
+
+## IranianMinds — post 21513
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21513_1780758250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قیمت نفت برنت:
+
+93.09
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیکزاد، نایب‌رییس مجلس:
+همه آرزوشون اینه که برن دست مجتبی خامنه‌ای رو ببوسن، اما الان اگه دشمن بخواد از رفتن ما پیش اون سو استفاده کنه، نباید این کار رو بکنیم.
+
+@IranianMinds
+</div>
+
+## alonews — post 125582
+
+<div align="center">
+  <a href="telegram/content/alonews_125582_1780758251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیکزاد، نایب‌رئیس مجلس: همه آرزو دارند بروند دست رهبری را ببوسند ولی چون ممکن است دشمن در این حین بخواهد اقدامی بکند، نباید این کار را بکنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 18:23
 ---
 
