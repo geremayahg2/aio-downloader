@@ -7,6 +7,247 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 16:53
+---
+
+## VahidOOnLine — post 243954
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243954_1780752220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه جمهوری اسلامی در بیانیه‌ای، با اشاره به حمله بامداد ۱۶ خرداد ارتش آمریکا به تاسیسات راداری و ساحلی در سیریک و جزیره قشم، اعلام کرد نقض مکرر آتش‌بس از سوی آمریکا بار، دیگر اثبات می‌کند که این کشور نه‌تنها اراده‌ای برای کاهش تنش و بازگشت به مسیر ثبات ندارد، بلکه با «اقدامات ماجراجویانه» خود امنیت منطقه را با مخاطرات جدی مواجه می‌کند و مسئولیت کلیه آثار و تبعات ناشی از این اقدامات غیرقانونی و نیز هرگونه تشدید تنش احتمالی، بر عهده دولت آمریکا خواهد بود.
+
+در بخشی از این بیانیه آمده است: «جمهوری اسلامی با تمام توان و با استفاده از همه ظرفیت‌های خود از حاکمیت، امنیت و منافع ملی کشور دفاع خواهد کرد.»
+
+وزارت خارجه جمهوری اسلامی همچنین از دبیرکل سازمان ملل متحد، شورای امنیت و سایر نهادهای مسئول بین‌المللی خواسته نسبت به تداوم «نقض آتش‌بس» از سوی آمریکا واکنش نشان دهند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243953
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243953_1780752221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع کویت در بیانیه‌ای اعلام کرد نیروهای مسلح این کشور بامداد شنبه ۱۶ خرداد هفت موشک بالستیک متخاصم را در حریم هوایی کویت رهگیری کردند که در پی آن برخی ترکش‌ها در مناطق مسکونی سقوط کرد.
+
+این وزارتخانه افزود در پی حمله جمهوری اسلامی خساراتی مادی وارد شده است اما گزارشی از تلفات انسانی منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342673
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342673_1780752222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+U.S. forces shot down Iranian missiles and drones aimed toward Gulf allies and the Strait of Hormuz.
+
+CENTCOM says six of seven ballistic missiles were intercepted, a seventh missed its target, and four one-way attack drones were taken down before threatening maritime traffic.
+
+U.S. forces then struck Iranian coastal radar sites to prevent further attacks. No U.S. personnel were harmed.
+</div>
+
+## pm_afshaa — post 92383
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92383_1780752223.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه 14 اسرائیل: همه امیدوار بودن که آتش‌بس دووم بیاره اما ظاهراً قواعد بازی داره کاملا عوض میشه. خودتون رو برای آخر هفته‌ای داغ تو خاورمیانه آماده کنید، چون ایران و آمریکا درحال گذار از حملات پراکنده و شبانه به رویارویی‌های گسترده در روشنایی روز هستند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340820
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340820_1780752224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، ستاد فرماندهی مرکزی آمریکا، تصاویری از ناو تریپولی و یک بالگرد سی‌هاوک منتشر کرد و در توضیح آن نوشت ملوانان و تفنگداران دریایی آمریکا در عرشه ناو یواس‌اس تریپولی هنگام حرکت این ناو در دریای عرب، از یک بالگرد سی‌هاوک پایین می‌آیند.
+
+سنتکام در توضیحات خود مشخص نکرد این اقدام بخشی از یک عملیات نظامی بوده یا در چارچوب یک تمرین نظامی انجام شده است.
+https://iranintl.com/202606062143
+</div>
+
+## IranIntlTV — post 340819
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340819_1780752225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی هجوم ریزگردها و آلودگی شدید هوا در برخی مناطق استان کرمان، ادارات در شهرهای زرند و رفسنجان تعطیل شدند، اما در شهر کرمان با وجود رسیدن شاخص آلودگی هوا به ۵۰۰، هیچ اطلاعیه‌ای درباره تعطیلی ادارات صادر نشد. فعالیت برخی ادارات در نقاطی از استان از صبح شنبه ۱۶ خرداد با تأخیر آغاز شد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340818
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340818_1780752225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه جمهوری اسلامی در بیانیه‌ای، با اشاره به حمله بامداد ۱۶ خرداد ارتش آمریکا به تاسیسات راداری و ساحلی در سیریک و جزیره قشم، اعلام کرد نقض مکرر آتش‌بس از سوی آمریکا بار، دیگر اثبات می‌کند که این کشور نه‌تنها اراده‌ای برای کاهش تنش و بازگشت به مسیر ثبات ندارد، بلکه با «اقدامات ماجراجویانه» خود امنیت منطقه را با مخاطرات جدی مواجه می‌کند و مسئولیت کلیه آثار و تبعات ناشی از این اقدامات غیرقانونی و نیز هرگونه تشدید تنش احتمالی، بر عهده دولت آمریکا خواهد بود.
+
+در بخشی از این بیانیه آمده است: «جمهوری اسلامی با تمام توان و با استفاده از همه ظرفیت‌های خود از حاکمیت، امنیت و منافع ملی کشور دفاع خواهد کرد.»
+
+وزارت خارجه جمهوری اسلامی همچنین از دبیرکل سازمان ملل متحد، شورای امنیت و سایر نهادهای مسئول بین‌المللی خواسته نسبت به تداوم «نقض آتش‌بس» از سوی آمریکا واکنش نشان دهند.
+https://iranintl.com/202606068627
+</div>
+
+## IranIntlTV — post 340817
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340817_1780752226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع کویت در بیانیه‌ای اعلام کرد نیروهای مسلح این کشور بامداد شنبه ۱۶ خرداد هفت موشک بالستیک متخاصم را در حریم هوایی کویت رهگیری کردند که در پی آن برخی ترکش‌ها در مناطق مسکونی سقوط کرد.
+
+این وزارتخانه افزود در پی حمله جمهوری اسلامی خساراتی مادی وارد شده است اما گزارشی از تلفات انسانی منتشر نشده است.
+https://iranintl.com/202606066803
+</div>
+
+## IranIntlTV — post 340816
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340816_1780752227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن بریتانیا برای ششمین ماه متوالی، در ادامه تجمع‌های اعتراضی خود، مقابل دفتر نخست‌وزیری این کشور تجمع اعتراضی برگزار کردند. معترضان با انتقاد از رویکرد آمریکا در مذاکره با جمهوری اسلامی، خواستار توقف مذاکرات و حمایت از مطالبات مردم ایران شدند.
+
+گزارش تاج‌الدین سروش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219763
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، تصاویری از تمرین نیروهای دریایی و تفنگداران دریایی آمریکا در دریای عرب منتشر کرد.
+
+در این تصاویر، نیروهای آمریکایی از یک بالگرد «سی‌هاوک ام‌اچ-۶۰اس» بر فراز ناو «یواس‌اس تریپولی» فرود می‌آیند.
+
+سنتکام اعلام کرد این تمرین در حالی انجام شده که ناو «یواس‌اس تریپولی» در دریای عرب در حال حرکت بوده است.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15816
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15816_1780752228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بیانیه وزارت امور خارجه جمهوری اسلامی در خصوص نقض آتش‌بس توسط آمریکا:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15815
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15815_1780752229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بلومبرگ: پیش‌تر هشدار داده می‌شد که بسته شدن تنگه هرمز یک فاجعه تمام‌عیار برای اقتصاد جهانی خواهد بود؛ اما اکنون مجموعه‌ای از راهکارهای جایگزین توانسته اثرات این بحران را خنثی کرده و مانع از عبور قیمت نفت خام از مرز ۱۰۰ دلار در هر بشکه شود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21501
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21501_1780752229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ با آهنگ دونالد ترامپ.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21500
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21500_1780752231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه وزارت امور خارجه جمهوری اسلامی ایران در خصوص نقض مستمر آتش‌بس توسط آمریکا
+
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391128
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391128_1780752232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت آدم و حوا که دختر و پسرا مشخصاتشون رو توش ثبت میکردن تا پارتنر پیدا کنن، اعلام کرده بزودی قراره زیر نظر وزارت فرهنگ یه قسمت راه بندازه تا داخلش به صورت ویدیویی پوزیشن های جنسی رو آموزش بدن!
+
+مدیر سایت اعلام کرده که پوزیشن های اسلامی و مورد تایید رو آموزش میدن و چون سکس افتضاح ایرانیا باعث طلاق شده قراره اینکارو کنن.
+رسما فیلم سوپر اسلامی هم نشون ملت میدن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113421
+
+<div align="center">
+  <img src="telegram/content/Hranews_113421_1780752233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرار بازداشت فلورا صمدانی، شهروند بهائی تمدید شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– قرار بازداشت فلورا صمدانی، شهروند بهائی ساکن یزد، به مدت یک ماه دیگر تمدید شد. وی ۳۵ روز است که بازداشت شده و به صورت بلاتکلیف در زندان یزد نگهداری می‌شود.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، فلورا صمدانی، شهروند بهائی کماکان در بازداشت بسر می‌برد.
+
+بر اساس اطلاعات دریافتی هرانا، امروز شنبه ۱۶ خردادماه، قرار بازداشت خانم صمدانی، توسط دادسرای یزد به مدت یک ماه دیگر تمدید شده است. علیرغم گذشت ۳۵ روز از زمان بازداشت، وی کماکان بصورت بلاتکلیف در زندان یزد نگهداری می‌شود.
+
+ادامه مطلب
+
+#فلورا_صمدانی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125563
+
+<div align="center">
+  <a href="telegram/content/alonews_125563_1780752233.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیدار وزیر کشور پاکستان با شهباز شریف پیش از عزیمت به ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 16:44
 ---
 
