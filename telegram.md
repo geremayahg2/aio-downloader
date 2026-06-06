@@ -7,6 +7,163 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 14:53
+---
+
+## VahidOOnLine — post 243942
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243942_1780745038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان شیروان در استان خراسان شمالی همزمان با سایر استان‌ها به اعتراضات سراسری دانش‌آموزی علیه سیاست‌های کنکوری و آموزشی حکومت در زمینه تاثیر معدل و شیوه برگزاری امتحانات پیوستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨منابع العربیه می‌گویند گفت‌وگوها درباره پرونده هسته‌ای وارد مرحله‌ای پیشرفته شده و ایران خواستار سه ماه مذاکره درباره جزئیات این پرونده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایالات متحده با فروش ۱.۵ میلیارد دلاری پنج فروند بالگرد دریایی سی‌هاوک (Seahawk) به نیوزیلند موافقت کرد. نیوزیلند که متعهد شده است هزینه‌های نظامی خود را تقریباً دو برابر کند، این اقدام را در راستای تقویت توانمندی‌های دفاعی خود انجام می‌دهد. — به نقل از رویترز
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 340803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر روزنامه‌های ایران، شنبه ۱۶ خرداد، با مجتبی هاشمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 340802
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340802_1780745041.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان شیروان در استان خراسان شمالی همزمان با سایر استان‌ها به اعتراضات سراسری دانش‌آموزی علیه سیاست‌های کنکوری و آموزشی حکومت در زمینه تاثیر معدل و شیوه برگزاری امتحانات پیوستند.
+</div>
+
+## Shin_Persian — post 6566
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6566_1780745043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 11:22:13 UTC
+
+Feb 28, 2026 (First day of the war)
+12:00 local time (0830Z)
+Tomahawk heading east towards Tehran
+Camera Coords: 35.68082, 51.24632
+Tehran Province, #Iran
+
+فارسی
+
+۲۸ فوریه ۲۰۲۶ (روز اول جنگ)
+ساعت ۱۲:۰۰ به وقت محلی (۰۸۳۰Z (۱۲:۰۰ به وقت تهران))
+تاماهاوک در حال حرکت به سمت شرق به سوی تهران
+مختصات دوربین: 35.68082, 51.24632
+استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125559
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125559_1780745045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 گزارش پولیتیکو از احتمال لغو توافق موشکی آمریکا و آلمان به دلیل جنگ با ایران
+
+جنگ ایران پیامدهای نظامی برای آلمان به همراه داشته است. ایالات متحده به دلیل کاهش ذخایر موشکی و کمبود مهمات در جنگ با ایران، "توافق ارسال موشک تاماهوک به آلمان" را لغو کرده است.
+
+پایگاه خبری "پولیتیکو" روز شنبه ۱۶ خرداد (۶ ژوئن) خبر داد دونالد ترامپ، رئيس‌جمهور آمریکا قصد دارد ارسال برنامه‌ریزی‌شده موشک‌های کروز "تاماهاوک" به آلمان را متوقف کند.
+
+الکسوس گرینکویچ، ژنرال نیروی هوایی ایالات متحده هم پیش‌تر اعلام کرده بود که ایالات متحده درصدد است ارسال نیروهای خود را در اروپا کاهش دهد و در مناطق دیگر بازآرایی کند.
+
+عدم استقرار موشک‌های تاماهوک در آلمان در تضاد با توافقی است که اولاف شولتس، صدراعظم سابق آلمان، با جو بایدن، رئیس‌جمهور وقت آمریکا، در سال ۲۰۲۴ امضا کرده بود.
+
+این توافق مقرر می‌کرد که از سال ۲۰۲۶ ایالات متحده دوباره موشک‌های میان‌برد با کلاهک متعارف را در آلمان مستقر کند؛ موشک‌هایی که قادرند اهدافی را در عمق خاک روسیه هدف قرار دهند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15799
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15799_1780745046.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فلاحت‌پیشه: برخی ترجیح می‌دهند ایران «غزه» شود تا توافقی با آمریکا امضا نشود.
+
+حشمت‌الله فلاحت‌پیشه، رئیس پیشین کمیسیون امنیت ملی مجلس، با انتقاد از جریان‌های مخالف مذاکره با آمریکا گفت افرادی مانند امیرحسین ثابتی حاضرند ایران با شرایطی مشابه غزه مواجه شود، اما توافقی میان تهران و واشنگتن شکل نگیرد.
+
+این اظهارات بازتابی از شکاف‌های موجود در فضای سیاسی ایران بر سر نحوه مواجهه با آمریکا و پرونده هسته‌ای است؛ اختلافی که با تشدید تنش‌های منطقه‌ای و فشارهای خارجی، بیش از گذشته به سطح عمومی کشیده شده است.
+
+👺Phantom
+
+📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدون شرح 😶 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21474
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21474_1780745048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استوری امیرحسین قیاسی
+قضاوت با خودتون
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبع پاکستانی به الجزیره:
+
+وزیر کشور پاکستان، حامل پیامی برای رهبر ایران است
+
++ پاکستان خفه شو
+
+@IranianMinds
+</div>
+
+## alonews — post 125522
+
+<div align="center">
+  <a href="telegram/content/alonews_125522_1780745049.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سرتیپ ویسام صبرا در حمله‌ای که صبح امروز در جاده خُردلی رخ داد، همراه با تعدادی از نیروهای نظامی کشته شد. 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 14:43
 ---
 
