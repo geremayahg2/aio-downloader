@@ -7,6 +7,145 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 15:34
+---
+
+## FoxNewsTwitter — post 342672
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342672_1780747453.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+HONORING OUR HEROES: Today marks the 82nd anniversary of the D-Day landings — a pivotal moment in World War II, when tens of thousands of Allied soldiers stormed the French coastline to liberate an imprisoned Europe.
+
+“Thousands of brave Americans advanced into chaos to save civilization,” said U.S. Ambassador to NATO Matthew Whitaker in a message honoring those brave Americans. “We stand forever grateful for these heroes.”
+</div>
+
+## pm_afshaa — post 92381
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92381_1780747453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه: گفت‌وگوها درباره پرونده هسته‌ای وارد مرحله‌ای پیشرفته شده و ایران خواستار سه ماه مذاکره درباره جزئیات این پرونده‌ست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92380
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92380_1780747454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث به نقل از منابع ارشد پاکستانی:
+وزیر کشور پاکستان پس از دیدار با نخست‌وزیر شهباز شریف و مقامات ارشد، امروز عازم تهران خواهد شد
+
+نخست‌وزیر پاکستان دستورات ویژه‌ای به وزیر کشور خود درباره مذاکرات بین ایران و آمریکا داده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6568
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6568_1780747455.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 12:01:57 UTC
+
+Kuwait Ministry of Defence spokesperson reports armed forces intercepted 7 hostile ballistic missiles over residential areas at dawn.
+
+Falling debris reported.
+
+#Kuwait 🇰🇼
+
+Source: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2063229863570321552
+
+فارسی
+
+سخنگوی وزارت دفاع کویت گزارش داد که نیروهای مسلح این کشور سحرگاه امروز ۷ موشک بالستیک متخاصم را برفراز مناطق مسکونی رهگیری کرده‌اند.
+
+سقوط قطعات موشک گزارش شده است.
+
+#Kuwait 🇰🇼
+
+منبع: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2063229863570321552
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219755
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219755_1780747456.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانش‌آموزان معترض در یاسوج: «دانش‌آموز می‌میرد، ذلت نمی‌پذیرد»
+
+در ادامه اعتراضات سراسری دانش‌آموزان، صدها دانش‌آموز روز ‌شنبه ۱۶ خرداد با تجمع مقابل ساختمان آموزش و پرورش به تغییر قوانین کنکور، افزایش تأثیر معدل و پیامدهای جنگ بر آمادگی برای آزمون سراسری اعتراض کردند.
+</div>
+
+## Dirty_Kids — post 391125
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391125_1780747459.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا رفتی چرا من بی‌قرارم....
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391124
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391124_1780747461.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یارو کلی پول جمع کرده بره حج! تو‌ برگشتن٫ از چمدونش کلی نوشیدنیهای دزدی از هتلش رو ‌‌پیدا میکنن! خدایا خار خ‌رت رو گ اییدم که تو یه اشتباه کلیدی٫ مسلمون آفریدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125531
+
+<div align="center">
+  <a href="telegram/content/alonews_125531_1780747464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / الجزیره به نقل از یک منبع پاکستانی: وزیر کشور پاکستان در سفر به تهران حامل نامه‌ای درمورد پیشنهادهایی برای بحث منابع ارزی مسدودشده ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125530
+
+<div align="center">
+  <a href="telegram/content/alonews_125530_1780747464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان اورژانس : روزی حدود ۶۰۰ تا تماس مزاحم داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 15:23
 ---
 
