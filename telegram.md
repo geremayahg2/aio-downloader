@@ -7,6 +7,120 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 18:23
+---
+
+## VahidOOnLine — post 243968
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243968_1780757633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، لیندزی فورمن و کریگ فورمن، زوج بریتانیایی زندانی در اوین که ۱۷ ماه است در ایران زندانی‌اند، همچنان در اعتراض به محرومیت از تماس تلفنی، ملاقات با یکدیگر و دسترسی به وکیل، در اعتصاب غذا به‌سر می‌برند.
+
+کریگ فورمن از یک ماه پیش و لیندزی فورمن از ۲۰ روز پیش دست به اعتصاب غذا زده‌اند.
+
+یک منبع آگاه از وضعیت این زندانیان به ایران‌اینترنشنال گفت مسئولان زندان طی هفته‌های گذشته فشارهای متعددی بر این دو زندانی وارد کرده‌اند تا اعتصاب غذای خود را بشکنند.
+
+به گفته این منبع، هر دو زندانی به‌شدت وزن از دست داده‌اند و در این مدت تنها یک بار معاون زندان برای دیدار با آنان به بندهای محل نگهداری‌شان مراجعه کرده است.
+
+این منبع افزود لیندزی فورمن پس از حدود سه هفته اعتصاب غذا، به‌سختی قادر به راه رفتن است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342674
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342674_1780757634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SatAmericaFNC: 🚨EXCLUSIVE: Director Kash Patel tells @KayleighMcEnany the FBI is taking the fight against fraud worldwide.
+
+“We’ve arrested and charged hundreds of individuals for $8 billion just overseas.”
+
+@FBIDirectorKash says overseas scam compounds targeted American seniors and that the FBI is now dismantling those networks from Southeast Asia to the Middle East.
+</div>
+
+## pm_afshaa — post 92386
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92386_1780757635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اعتراضات دانش آموزا بی نتیجه موند و خسرو پناه رسما اعلام کرد تأثیر معدل یازدهم مثبت نمیشه و قطعی میمونه.
+
+خسروپناه: اکثر دانش آموزا به من میگن ما کلی زحمت کشیدیم و یازدهم درس خوندیم، یعنی چی تأثیر معدل نباید قطعی باشه. اینایی هم که میان اعتراض میکنن یه تعداد خیلی کم هستن.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5393
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5393_1780757636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 تهران؛ اعتراض دانش‌آموزان به تأثیر قطعی معدل بر کنکور
+
+ده‌ها دانش‌آموز در تهران روز شنبه ۱۶ خرداد در اعتراض به تأثیر قطعی معدل بر کنکور در مقابل شورای‌عالی انقلاب فرهنگی تجمع کردند.
+
+#کنکور #تهران
+@DEJradio
+</div>
+
+## FarsiVOA — post 219771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺محکومیت گسترده حملات تازه جمهوری اسلامی به کویت و بحرین؛ همه موشک‌ها در آسمان رهگیری شد
+
+▪️دو کشور کویت و بحرین در روز شنبه ۱۶ خرداد اعلام کردند که هدف حملات مجدد موشکی جمهوری اسلامی قرار گرفتند، اما هیچکدام از این موشک‌ها به اهداف خود اصابت نکرد و در آسمان رهگیری و از بین رفتند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/kuwait-bahrain-iranian-regime-attack-war/8157977.html/?nocach=1
+</div>
+
+## RadioFarda — post 157973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت خارجه ایران حملهٔ آمریکا به تأسیسات راداری و نظارت ساحلی در سیریک و جزیره قشم را «نقض آشکار آتش‌بس» و «تجاوز نظامی علیه حاکمیت ملی و تمامیت ارضی ایران» توصیف و آن را به‌شدت محکوم کرد. 🔸وزارت خارجه جمهوری اسلامی روز شنبه ۱۶ خرداد در بیانیه‌ای همچنین…
+</div>
+
+## RadioFarda — post 157972
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157972_1780757637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت خارجه ایران حملهٔ آمریکا به تأسیسات راداری و نظارت ساحلی در سیریک و جزیره قشم را «نقض آشکار آتش‌بس» و «تجاوز نظامی علیه حاکمیت ملی و تمامیت ارضی ایران» توصیف و آن را به‌شدت محکوم کرد.
+
+🔸وزارت خارجه جمهوری اسلامی روز شنبه ۱۶ خرداد در بیانیه‌ای همچنین گفت نیروهای مسلح ایران در چارچوب «حق دفاع مشروع» به این اقدام پاسخ داده‌اند. در این بیانیه به حملات موشکی سپاه به کویت و بحرین در پاسخ به این حمله اشاره نشده است.
+
+@RadioFarda
+</div>
+
+## alonews — post 125581
+
+<div align="center">
+  <a href="telegram/content/alonews_125581_1780757638.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه:
+ترامپ به میانجی‌ها اطلاع داد که مذاکرات با ایران بیش از 60 روز ادامه نخواهد داشت که این مهلت در روز های آینده به پایان می‌رسد و ایران باید به‌سرعت پاسخ دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 18:14
 ---
 
