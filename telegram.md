@@ -7,6 +7,275 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 19:03
+---
+
+## VahidOOnLine — post 244127
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244127_1780846400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حساب کاربری فلات ایران با انتشار تصاویر تازه ای از «هلیا» یوزپلنگ ماده‌ در پناهگاه حیات‌وحش میاندشت در خراسان شمالی خبر داد که او صاحب ۵ فرزند شده است. و این یوزهای کوچک در یک سال گذشته بارها همراه مادرشان مشاهده شده‌اند.
+
+فلات ایران نوشته است که در تازه‌ترین رصد که در اردیبهشت‌ماه در منطقه «یوزکنام» انجام شد، این خانواده پنج‌نفره دیده شدند. با این حال، در مشاهده اخیر در صبح سیزدهم خردادماه در نواحی جنوبی این منطقه، تنها سه توله همراه هلیا بودند.
+
+«فلات ایران» به نقل اکارشناسان نوشته است که «حضور یوزهای ماده در این منطقه، نشان‌دهنده اهمیت «یوزکنام» به‌عنوان یکی از زیستگاه‌های کلیدی یوز آسیایی و ضرورت تقویت اقدامات حفاظتی در این محدوده است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244126
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244126_1780846401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در واکنش به حملات یکشنبه اسرائیل به ضاحیه در جنوب بیروت، در شبکه اجتماعی ایکس نوشت که به حمله اسرائیل به ضاحیه پاسخ قاطع و دردآور خواهیم داد؛ امشب آسمان اسرائیل را ببینید.
+
+رضایی پیش‌تر به خبرگزاری دانشجو گفته بود: هر دو جنگ قبلی که بر ما تحمیل شد، دقیقا در دوره مذاکره بود. بنابراین اکنون داریم مذاکره می‌کنیم و شاید این مذاکره چراغ خطری باشد که ممکن است همزمان با آن جنگ دیگری روی دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا ۷۲ ساعت دیگه احتمالا لش خامنه ای خاک بکنن از کل دنیا سران کشورها رو مخفیانه دعوت کردن ایران @withyashar از منابع خودم جویا شدم گفتن اره مراسم چهارشنبه تا دوشنبه هست
+</div>
+
+## WithYashar — post 13711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صابرین نیوز به نقل از منابع آگاه
+ایران قاطعانه به نقض آتش بس پاسخ خواهد داد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342695
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342695_1780846402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+War Secretary Pete Hegseth says President Trump is committed to securing a deal that ensures Iran never obtains a nuclear weapon, adding the U.S. is prepared to act if negotiations fail.
+</div>
+
+## pm_afshaa — post 92504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع محلی لبنان:صد ها بمب در سراسر لبنان در حال رها شدن است،بمباران های دیوانه کننده در سراسر لبنان در حال وقوع است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: اسرائیل از ترس واکنش احتمالی ایران به حمله به ضاحیه در حالت آماده باش قرار گرفته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92502
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92502_1780846404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس، به نقل از مقامات اسرائیلی:
+حمله هوایی به حومه جنوبی، پاسخی به حمله موشکی اخیر حزب‌الله بود و اسرائیل پیش از حمله دولت ترامپ رو در جریان گذاشته بود.
+
+اسرائیل به دولت ترامپ اطلاع داده که ادامه حملات حزب‌الله به اسرائیل، به اونا حق حمله به بیروت رو میده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 یک کشته و دست‌کم پنج زخمی در تیراندازی مرگبار در اسرائیل؛ دو مهاجم کشته شدند
+
+ارتش اسرائیل اعلام کرد دو مهاجم حمله تیراندازی روز یکشنبه در مرکز اسرائیل، پس از عملیات نیروهای امنیتی کشته شدند؛ حمله‌ای که به گفته امدادگران، یک کشته و دست‌کم پنج زخمی برجای گذاشت.
+
+
+📝 اسرائیل به محله «ضاحیه» بیروت حمله کرد
+
+
+📝 الحدث: پس از حمله اسرائیل به ضاحیه، اعضای حزب‌الله دچار شوک شدند
+
+الحدث به نقل از منابع آگاه نوشت پس از حمله به ضاحیه، اعضای حزب‌الله دچار شوک شدند زیرا جمهوری اسلامی پیش‌تر گفته بود این منطقه هدف قرار نمی‌گیرد.
+الحدث همچنین از بن‌بست مذاکرات حماس و اسرائیل در قاهره به‌دلیل شروط اسرائیل و درخواست میانجی‌ها برای تحویل همه سلاح‌های حماس خبر داد.
+
+@mamlekate
+</div>
+
+## kianmeli1 — post 87690
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87690_1780846405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مرندی خطاب به اسراییل
+
+متجاوزان و قاتلان کودکان مجازات خواهند شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87689
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87689_1780846406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پهپاد نظارتی MQ-4C Triton نیروی دریایی ایالات متحده در خاورمیانه فعال است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341008
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341008_1780846407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۹ روز مانده به نخستین بازی تیم فوتبال ایران در جام جهانی، کارزارهای ایرانیان خارج از کشور در اعتراض به ممنوعیت نمایش پرچم شیر و خورشید در ورزشگاه‌های میزبان ادامه دارد.همزمان، گروهی از فعالان فناوری از سامانه «ایران‌سینک» رونمایی کردند؛ پلت‌فرمی که با کنار هم قرار گرفتن تلفن‌های همراه، پرچم شیر و خورشید یا پیام‌های جمعی را به یک تصویر واحد تبدیل می‌کند.
+
+جزییات بیشتر در گفت‌وگو با سالار غلامی، کاپیتان پیشین تیم ملی بوکس
+@iranintltv
+</div>
+
+## IranIntlTV — post 341007
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341007_1780846410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در واکنش به حملات یکشنبه اسرائیل به ضاحیه در جنوب بیروت، در شبکه اجتماعی ایکس نوشت که به حمله اسرائیل به ضاحیه پاسخ قاطع و دردآور خواهیم داد؛ امشب آسمان اسرائیل را ببینید.
+
+رضایی پیش‌تر به خبرگزاری دانشجو گفته بود: هر دو جنگ قبلی که بر ما تحمیل شد، دقیقا در دوره مذاکره بود. بنابراین اکنون داریم مذاکره می‌کنیم و شاید این مذاکره چراغ خطری باشد که ممکن است همزمان با آن جنگ دیگری روی دهد.
+https://iranintl.com/202606078627
+</div>
+
+## Shin_Persian — post 6602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 15:28:57 UTC
+
+Jet activity over Rif Damishq
+Damscus, #Syria 🇸🇾
+
+فارسی
+
+فعالیت جت‌ها بر فراز ریف دمشق
+دمشق، #Syria 🇸🇾
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6601
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6601_1780846410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 15:27:30 UTC
+
+AAR over Persian Gulf.
+(AE0627 | 62-3512)
+#USAF 🇺🇸
+
+فارسی
+
+سوخت‌رسانی هوایی بر فراز خلیج فارس.
+(AE0627 | 62-3512)
+#USAF 🇺🇸
+
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 125832
+
+<div align="center">
+  <a href="telegram/content/alonews_125832_1780846412.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ با مجری دعواش شد و خیلی منطقی وسط مصاحبه ول کرد رفت
+
+مجری: شما هیچ مدرکی برای تقلب در انتخابات ندارین.
+ترامپ: من ۹۴ صفحه در مورد این موضوع ارائه کردم، ولی شما رسانه ها همیشه دروغ میگین، خسته شدم دیگه، من میرم.
+مجری: ترو خدا نه، کلی راه بخاطر شما اومدم.
+ترامپ: به تخمم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125831
+
+<div align="center">
+  <a href="telegram/content/alonews_125831_1780846414.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری معتبر تسنیم: اسرائیل از ترس واکنش احتمالی ایران به حمله به ضاحیه در حالت آماده باش قرار گرفته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125830
+
+<div align="center">
+  <a href="telegram/content/alonews_125830_1780846414.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پیش‌نویس در مرز اتمام؟
+
+احمد زیدآبادی در تلگرامش نوشت:
+
+🔴ظاهراً پیش‌نویس تفاهم‌نامهٔ موقت بین ایران و آمریکا به مرز اتمام رسیده است. اگر اینطور نبود نتانیاهو دستور حمله به ضاحیهٔ بیروت را صادر نمی‌کرد!
+
+
+🔴نسبت نتانیاهو با صلح و آرامش در خاورمیانه مثل حس گربه به آب است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125829
+
+<div align="center">
+  <a href="telegram/content/alonews_125829_1780846414.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران:
+من این جنگ‌های بی‌پایان را دوست ندارم، و این جنگ بی‌پایان نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 18:53
 ---
 
