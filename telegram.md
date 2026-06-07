@@ -7,6 +7,773 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 23:42
+---
+
+## VahidOOnLine — post 244175
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244175_1780863170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی یکشنبه‌شب، همزمان با آغاز حملات موشکی ایران به اسرائیل تصویری از پرچم جمهوری اسلامی در کنار لبنان منتشر کرد. ایران در پاسخ به حملات اسرائیل به ضاحیه بیروت، به سمت این کشور موشک شلیک کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244174
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244174_1780863170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روابط عمومی سازمان هواپیمایی کشوری، یکشنبه‌شب، همزمان با آغاز حملات جمهوری اسلامی ایران به اسرائیل، از بسته شدن آسمان غرب ایران خبر داد. مجید اخوان، سخنگوی سازمان هواپیمایی کشوری، گفت: «با توجه به ارزیابی‌های ایمنی و امنیتی صورت گرفته و با صدور اطلاعیه هوانوردی (نوتام) بخش غربی فضای پروازی کشور تا اطلاع ثانوی بسته اعلام شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244173
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244173_1780863170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران پس از حملات موشکی به اسرائیل در بیانیه‌ای اعلام کرد عملیات شامگاه یک‌شنبه صرفا یک اعلام اخطار بود و در صورت تکرار حملات، پاسخ‌ها گسترده‌تر خواهد بود و تمام اهداف آمریکایی-اسرائیلی را در منطقه در بر خواهد گرفت.
+
+در این بیانیه آمده است: پذیرش آتش‌بس از سوی ما در ۱۹ فروردین ماه مشروط به توقف آتش در تمام جبهه‌ها بود اما مثل همیشه آمریکا و اسرائیل به تعهد خود پایبند نبودند، هم حملات را در لبنان ادامه دادند و هم با تعرض مکرر به سواحل و شناورهای ایرانی در تنگه هرمز، دریای عمان و اقیانوس هند آتش‌بس را نقض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13783
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13783_1780863171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## WithYashar — post 13782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش انفجار‌ در‌فرودگاه تبریز
+@withyashar
+</div>
+
+## WithYashar — post 13781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده های اسرائیلی به پرواز در امدند
+ 
+منابع اسرائیلی مدعی‌اند حملات فعلی به اهدافی در ایران توسط پهپادهای از پیش مستقرشده انجام می‌شود و جنگنده‌های اسرائیلی هنوز به منطقه عملیات نرسیده‌اند.
+
+به گفته این منابع، حملات کنونی عمدتان مراکز پرتاب را هدف قرار داده و مرحله اصلی عملیات تلافی جویانه هوایی و بمباران توسط جنگنده‌ها همچنان در راه است.
+@withyashar
+  
+</div>
+
+## WithYashar — post 13780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز: مقامات ایرانی معتقدند که ترامپ تمایلی به ورود به یک درگیری گسترده‌تر ندارد و مصمم است جنگ را تقریباً به هر قیمتی به پایان برساند
+@withyashar
+</div>
+
+## WithYashar — post 13779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ ان‌ ان به نقل از دو منبع اسرائیلی: ما به پرتاب موشک‌ های بالستیک ایران با قدرت پاسخ خواهیم داد
+@withyashar
+</div>
+
+## WithYashar — post 13778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به زودی تصمیم نهایی خود را خواهد گرفت
+@withyashar
+</div>
+
+## WithYashar — post 13777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار/رعد برق در تهران گزارش شده
+@withyashar
+</div>
+
+## WithYashar — post 13776
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس نیوز :
+
+حمله ای که اسرائیل امروز کرد به بیروت کاملا بدون هماهنگی من بود و از این موضوع خوشحال نیستم
+@withyashar
+</div>
+
+## WithYashar — post 13775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان هواپیمایی کشوری ایران:
+
+حریم هوایی غرب کشور تا اطلاع ثانوی بسته خواهد بود.
+@withyashar
+</div>
+
+## mwarmonitor — post 10300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«بله جان، بعدازظهر بخیر. ایران در پاسخ به حملات اوایل امروزِ ارتش اسرائیل (IDF) به بیروت، پایتخت لبنان، حداقل چهار موج موشکی به سمت اسرائیل شلیک کرده است. من همین الآن مکالمه تلفنی‌ام را با رئیس‌جمهور ترامپ تمام کردم؛ کسی که در حال رصد اوضاع رو به گسترش در…
+</div>
+
+## mwarmonitor — post 10299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به آکسیوس گفته است که همین حالا با نتانیاهو تماس خواهد گرفت و به او خواهد گفت که در پاسخ به این موضوع به ایران حمله نکند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«بله جان، بعدازظهر بخیر. ایران در پاسخ به حملات اوایل امروزِ ارتش اسرائیل (IDF) به بیروت، پایتخت لبنان، حداقل چهار موج موشکی به سمت اسرائیل شلیک کرده است.
+من همین الآن مکالمه تلفنی‌ام را با رئیس‌جمهور ترامپ تمام کردم؛ کسی که در حال رصد اوضاع رو به گسترش در سراسر منطقه است. او به من گفت:
+"پیشنهاد من به ایران این است: شما موشک‌هایتان را شلیک کردید، دیگر کافی است. به میز مذاکره برگردید و توافق کنید."
+رئیس‌جمهور یک بار دیگر خواستار یک حل‌وفصل مذاکره‌محور شد. او همچنین درباره مذاکرات جاری با ایران صحبت کرد و گفت: "ما خیلی نزدیک هستیم؛ من می‌گویم توافق در روزهای دوشنبه، سه‌شنبه یا چهارشنبه هفته پیش‌رو امضا می‌شد و حالا این اتفاق (حمله موشکی) رخ داده است."
+بنابراین، قرار است گزارش آخرین وضعیت به رئیس‌جمهور داده شود؛ یعنی همین حمله موشکی بالستیک جاری ایران علیه اسرائیل. اما من از او درباره آن حملات اولیه ارتش اسرائیل که اوایل امروز رخ داد پرسیدم؛ او به من گفت که آن حملات با ایالات متحده هماهنگ نشده بودند. وقتی از او درباره واکنشش به حملات اسرائیل علیه حزب‌الله در بیروت پرسیدم، پرزیدنت ترامپ گفت: "من از این بابت خوشحال نیستم."
+اکنون در ابعادی گسترده‌تر، او گفت که شلیک موشکی جاری ایران به سمت اسرائیل در این لحظه قطعاً به مذاکرات کمکی نخواهد کرد، اما باز هم او از ایرانی‌ها می‌خواهد که شلیک این موشکی‌ها را متوقف کنند و به میز مذاکره برگردند تا در نهایت به یک توافق دست یابند.
+رئیس‌جمهور درباره قدرت ارتش ایالات متحده و همچنین قدرت محاصره دریایی جاری بنادر ایران توسط آمریکا صحبت کرد. جان، این محاصره در حال حاضر اقتصاد ایران را فلج کرده است. آن‌ها هر روز صدها میلیون دلار از دست می‌دهند و این بخشی از دلیلی است که پرزیدنت ترامپ توانسته این "صبر استراتژیک" را در سراسر خاورمیانه حفظ کند؛ با این درک که در حالی که ایالات متحده در منطقه در حالت آماده‌باش قرار دارد، آن‌ها صرفاً باید این محاصره را حفظ کنند و این کار ایرانی‌ها را به میز مذاکره خواهد کشاند، چرا که با قرار داشتن اقتصادشان تحت چنین فشار شدیدی، گزینه‌هایشان رو به اتمام است.
+ما می‌دانیم که صادرات ایران ۹۰ درصد کاهش یافته است. در حال حاضر به دلیل این محاصره دریایی آمریکا، آن‌ها نفت خام را با نرخ ۵۰ درصد استخراج می‌کنند و مقامات منطقه به فاکس نیوز می‌گویند که اوضاع فقط بدتر خواهد شد.
+اما در مورد وضعیت فعلی در سراسر منطقه، ما می‌دانیم که مردم در بخش شمالی اسرائیل در این ساعت در پناهگاه‌ها باقی مانده‌اند. این نگرانی وجود دارد که ایرانی‌ها ممکن است به این حمله موشکی بالستیک علیه اسرائیل ادامه دهند. ما تعداد دقیق موشک‌های استفاده شده را نمی‌دانیم. در موج اول، چهار موشک بالستیک ایرانی وجود داشت و سپس سه موج دیگر نیز رخ داد که باز هم در پاسخ به حملات ارتش اسرائیل بود که اوایل امروز علیه حزب‌الله در بیروت انجام شد.
+دوباره تکرار می‌کنم، پرزیدنت ترامپ به فاکس نیوز گفت که از آن حملات اسرائیل خوشحال نیست و اشاره کرد که توافق با ایران تنها چند روز فاصله داشت. در این لحظه احتمالاً گزارش وضعیت به او ارائه می‌شود، اما باز هم رئیس‌جمهور به ایران پیشنهاد می‌کند، نقل‌قول می‌کنم:
+"شما موشک‌هایتان را شلیک کردید، دیگر کافی است. به میز برگردید و توافق کنید."
+دوباره تکرار می‌کنم، پرزیدنت ترامپ به دنبال یک حل‌وفصل مذاکره‌محور است، اما او به فاکس نیوز اشاره کرد که ارتش ایالات متحده قدرتمندترین ارتش در جهان است و در حالت آماده‌باش باقی می‌ماند؛ و پیشنهاد کرد که ایرانی‌ها توافق کنند تا او مجبور به استفاده از ارتش نشود.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10297
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10297_1780863171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 10296
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نقل از یک رسانه عراقی وابسته به عربستان: سقوط یک هواپیمای مسافربری در صحرای کربلا. @mwarmonitor
+</div>
+
+## mwarmonitor — post 10295
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌یک منبع در فرودگاه بغداد به الجزیره: حریم هوایی عراق به روی پروازها بسته شد. @mwarmonitor
+</div>
+
+## pm_afshaa — post 92664
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92664_1780863173.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منی که میدونستم جنگ میشه امروز🗿
+</div>
+
+## pm_afshaa — post 92663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من الان با نتانیاهو تماس میگیرم و بهش میگم به ایران حمله نکنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس صداوسیما: خونه نتانیاهو رو زدیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من الان با نتانیاهو تماس میگیرم و بهش میگم به ایران حمله نکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک هواپیمای مسافربری در صحرای کربلا سقوط کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:اتش بس هنوز پابرجاست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92658
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92658_1780863174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: از حملات اسرائیل به لبنان راضی نیستم؛ این حملات با آمریکا هماهنگ نشده بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حریم هوایی سوریه هم کلییر شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92656
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92656_1780863174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها سروراتونو میتونین از اینجا تهیه کنینو متصل بمونین
+👇
+👇
+
+@Lex_server
+@Lex_server
+</div>
+
+## pm_afshaa — post 92655
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92655_1780863175.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری CNN: اسرائیل برای حملات بسیار قدرتمند به ایران اماده میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92654
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92654_1780863175.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: قرار بود دوشنبه یا سه‌شنبه توافق صلح رو امضا کنیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 جی‌پی‌اس و اینترنت هم باز مختل شده
+
+@mamlekate
+</div>
+
+## mamlekate — post 103628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ارتش اسرائيل از حمله موشکی جمهوری اسلامی خبر داد
+
+سخنگوی ارتش اسرائیل اواخر روز یکشنبه به وقت محلی گفت که این نیرو اندکی پیش، شلیک موشک‌هایی از ایران به سمت خاک اسرائیل را شناسایی کرد و سیستم‌های دفاعی برای رهگیری این تهدید در حال فعالیت هستند.
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76001
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76001_1780863176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+mohsenreyhani01
+سپاه پاسداران پس از حملات موشکی به اسرائیل در بیانیه‌ای اعلام کرد عملیات شامگاه یک‌شنبه صرفا یک اعلام اخطار بود و در صورت تکرار حملات، پاسخ‌ها گسترده‌تر خواهد بود و تمام اهداف آمریکایی-اسرائیلی را در منطقه در بر خواهد گرفت.
+
+در این بیانیه آمده است: پذیرش آتش‌بس از سوی ما در ۱۹ فروردین ماه مشروط به توقف آتش در تمام جبهه‌ها بود اما مثل همیشه آمریکا و اسرائیل به تعهد خود پایبند نبودند، هم حملات را در لبنان ادامه دادند و هم با تعرض مکرر به سواحل و شناورهای ایرانی در تنگه هرمز، دریای عمان و اقیانوس هند آتش‌بس را نقض کردند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87742
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87742_1780863176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-رئیس حزب اسرائیل بیتنو، نماینده کنست آویگدور لیبرمن: «تحمل کافیست، باید فوراً واکنش نشان داد و به زیرساخت‌های استراتژیک ایران ضربه زد»
+</div>
+
+## kianmeli1 — post 87741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فعالیت جنگنده‌های ارتش بر فراز آسمان تهران
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری -ترامپ:
+
+به نتانیاهو خواهم گفت به ایران حمله نکند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+حساب منتسب به مجتبی خامنه‌ای : نفس رژیم لرزان صهیونیستی به شماره افتاده است.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+هلال احمر ایران به حالت آماده باش در آمد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+سی‌ان‌ان به نقل از دو منبع اسرائیلی: ما به پرتاب موشک‌های بالستیک ایران با قدرت پاسخ خواهیم داد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341052
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341052_1780863177.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از حملات موشکی جمهوری اسلامی به اسرائیل، کابینه امنیتی این کشور به ریاست بنیامین نتانیاهو تشکیل جلسه داده است.
+
+انتظار می‌رود این کابینه در ساعات آینده درباره نحوه پاسخ به این حملات تصمیم‌گیری کند.
+
+گزارش بابک اسحاقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341051
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341051_1780863178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران پس از حملات موشکی به اسرائیل در بیانیه‌ای اعلام کرد عملیات شامگاه یک‌شنبه صرفا یک اعلام اخطار بود و در صورت تکرار حملات، پاسخ‌ها گسترده‌تر خواهد بود و تمام اهداف آمریکایی-اسرائیلی را در منطقه در بر خواهد گرفت.
+
+در این بیانیه آمده است: پذیرش آتش‌بس از سوی ما در ۱۹ فروردین ماه مشروط به توقف آتش در تمام جبهه‌ها بود اما مثل همیشه آمریکا و اسرائیل به تعهد خود پایبند نبودند، هم حملات را در لبنان ادامه دادند و هم با تعرض مکرر به سواحل و شناورهای ایرانی در تنگه هرمز، دریای عمان و اقیانوس هند آتش‌بس را نقض کردند.
+https://iranintl.com/202606072673
+</div>
+
+## Shin_Persian — post 6653
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6653_1780863179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 20:10:34 UTC
+
+Earlier @ 1926Z
+Southwestern Tehran, #Tehran Province, #Iran
+
+فارسی
+
+پیش‌تر در ۱۹۲۶ زولو (۲۲:۵۶ به وقت تهران)
+جنوب غربی تهران، استان #تهران، #ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 20:08:27 UTC
+
+GPS jamming in Iran.
+
+فارسی
+
+اختلال در جی‌پی‌اس (GPS) در ایران.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 20:06:55 UTC
+
+Iraqi FIR will REMAIN closed for 72 hours.
+#Iraq 🇮🇶
+
+فارسی
+
+منطقه اطلاعات پروازی (FIR) عراق به مدت ۷۲ ساعت بسته باقی خواهد ماند.
+#Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6650
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6650_1780863179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 20:05:39 UTC
+
+Iraqi FIR is closed at the moment.
+
+فارسی
+
+حریم هوایی عراق (FIR) در حال حاضر بسته است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 20:04:29 UTC
+
+IRIB: Airspace over Western Iran has been closed.
+
+فارسی
+
+صدا و سیما (IRIB): حریم هوایی بر فراز غرب ایران بسته شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219928
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219928_1780863180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرنگار فاکس‌نیوز، تری یینگست، می‌گوید با رئیس جمهوری آمریکا، دونالد ترامپ صحبت کرده است و آقای ترامپ به فاکس نیوز گفت: «آنچه به [جمهوری اسلامی] ایران پیشنهاد می‌کنم این است که شما موشک‌هایتان را شلیک کرده‌اید، دیگر کافی است. به میز مذاکره برگردید و توافق کنید.»
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خبرگزاری CNN:
+
+اسرائیل برای حملات بسیار سنگین به ایران آماده می‌شود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158014
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158014_1780863180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سخنگوی سازمان هواپیمایی ایران از بسته شدن بخش غربی فضای پروازی این کشور تا اطلاع ثانوی خبر داد.
+
+🔸همچنین بر اساس گزارش‌ها در پی حملات ایران به اسرائیل، آسمان عراق نیز بسته شده است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158013
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158013_1780863180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، دقایقی بعد از حملات موشکی ایران به اسرائیل خواستار توقف این حملات و بازگشت تهران به میز مذاکره شد.
+
+🔸او شامگاه یکشنبه به شبکه خبری فاکس نیوز گفت: «پیشنهادی که به ایران دارم این است: موشک‌های خود را شلیک کرده‌اید؛ همین کافی است. به میز مذاکره بازگردید و توافقی حاصل کنید.»
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+مذاکرات رو ادامه میدیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حریم هوایی عراق کاملا بسته شد. @IranianMinds
+</div>
+
+## IranianMinds — post 21660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی:
+
+ایران ۱۰ موشک به سوی اسرائیل شلیک کرد و همشون رهگیری و منهدم شدن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ترامپ به باراک راوید:
+
+الان با نتانیاهو تماس می‌گیرم و به او می‌گویم که در پاسخ، به ایران حمله نکند!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21658
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21658_1780863181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فاکس نیوز:
+
+«من فکر می‌کردم که یک توافق در روز دوشنبه، سه‌شنبه یا چهارشنبه هفته پیشِ رو امضا خواهد شد، اما حالا این اتفاق ( حمله جمهوری اسلامی به اسرائیل ) رخ داده است.»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری CNN:
+
+اسرائیل برای حملات بسیار سنگین به ایران آماده می‌شود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حریم هوایی عراق کاملا بسته شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط بودن توی خاورمیانست که با شنیدن صدای رعد و برق سوتون بدنتونو میلرزونه👍🏽
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ترامپ خطاب به ایران: موشک‌هایتان را شلیک کرده‌اید. دیگر بس است. به میز مذاکره برگردید
+
+دونالد ترامپ، رئیس جمهور آمریکا، پس از شلیک موشک‌های ایران به شمال اسرائیل، از ایران خواست تا به میز مذاکره بازگردد.
+
+دونالد ترامپ در گفتگو با شبکه تلویزیونی آمریکایی فاکس نیوز، پیامی را برای ایران به اشتراک گذاشت: «شما موشک‌هایتان را شلیک کرده‌اید. دیگر بس است. به میز مذاکره برگردید و توافق کنید.»
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## BBCPersian — post 283091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل می‌گوید تمام موشک‌های شلیک شده از ایران را رهگیری کرده است
+
+نیروی هوایی اسرائیل می‌گوید «تاکنون تمام موشک‌های شلیک شده از ایران» را رهگیری کرده است.
+
+نیروی هوایی اسرائیل همچنین گفته است که «به طور مداوم در حال شناسایی و رهگیری تهدیدها» است.
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391269
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391269_1780863182.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نقض نخواهد شد
+اتفاقی نخواهد افتاد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125977
+
+<div align="center">
+  <a href="telegram/content/alonews_125977_1780863183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فعالیت جنگنده‌های ارتش بر فراز آسمان تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125976
+
+<div align="center">
+  <a href="telegram/content/alonews_125976_1780863183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووری/ ترامپ به کانال۱۲: به نتانیاهو خواهم گفت به ایران حمله نکند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125975
+
+<div align="center">
+  <a href="telegram/content/alonews_125975_1780863183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز به نقل از یک منبع ارشد ایرانی:
+تمام پایگاه‌های آمریکایی در منطقه در صورت انجام حملات از سوی اسرائیل، اهداف مشروعی برای تهران خواهند بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125974
+
+<div align="center">
+  <a href="telegram/content/alonews_125974_1780863183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صدا و سیما: خونه نتانیاهو رو زدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125973
+
+<div align="center">
+  <a href="telegram/content/alonews_125973_1780863184.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز: مقامات ایرانی معتقدند که ترامپ تمایلی به ورود به یک درگیری گسترده‌تر ندارد و مصمم است جنگ را تقریباً به هر قیمتی به پایان برساند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125972
+
+<div align="center">
+  <a href="telegram/content/alonews_125972_1780863184.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز: حمله ایران قطعاً به مذاکرات کمکی نخواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 23:33
 ---
 
