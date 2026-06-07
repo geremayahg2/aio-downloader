@@ -7,6 +7,322 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 21:53
+---
+
+## VahidOOnLine — post 244151
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244151_1780856610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت که «هر گونه تصرف، انتقال یا تخصیص اموال ایران» برای پرداخت به هم‌پیمانان آمریکا «موجب مسئولیت آمریکا، بویژه در شرایطی که ادعای مذاکره و تفاهم می‌کند، و همچنین پاسخ متناسب ایران می‌شود.»
+
+پیشتر رویترز به نقل از یک منبع آگاه گزارش داد دولت آمریکا در حال بررسی استفاده از دارایی‌های جمهوری اسلامی برای تامین هزینه بازسازی و جبران خسارت‌هایی است که در جریان جنگ به کشورهای متحد واشینگتن در خلیج فارس وارد شده است.
+
+اقدامی که به نوشته رسانه‌ها می‌تواند به یکی از محورهای اختلاف در مذاکرات جاری میان تهران و واشینگتن تبدیل شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم: احتمال حملات موشکی ایران تا ساعاتی دیگر وجود داره.
+براوردهای امنیتی حاکی از آن است که اگر ایران امشب با هدف قرار دادن شمال اسرائیل پاسخ بده، ممکنه مواضع شبه‌نظامیان (نیروهای مسلح وابسته به اسرائیل) داخل خط زرد (مناطق تحت کنترل تشکیلات خودگردان یا مناطق حائل) در غزه رو هم هدف قرار بده.
+@withyashar
+</div>
+
+## WithYashar — post 13735
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13735_1780856610.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریم برای اتاق جنگ 💥
+</div>
+
+## WithYashar — post 13734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨🚨🚨
+به هواپیماهای که از تهران بلند شده اند دستور داده شده به باند فرود برگردند
+@withyashar
+</div>
+
+## WithYashar — post 13733
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران ایر، ایرباس A300B4-605R به جای پرواز به جده، عربستان سعودی، به فرودگاه ایران تغییر مسیر داد
+@withyashar
+</div>
+
+## pm_afshaa — post 92537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم: احتمال حملات موشکی ایران تا ساعاتی دیگر وجود داره.
+
+براوردهای امنیتی حاکی از آن است که اگر ایران امشب با هدف قرار دادن شمال اسرائیل پاسخ بده، ممکنه مواضع شبه‌نظامیان (نیروهای مسلح وابسته به اسرائیل) داخل خط زرد (مناطق تحت کنترل تشکیلات خودگردان یا مناطق حائل) در غزه رو هم هدف قرار بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2661
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2661_1780856611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مدیرعامل آسیاتک: اینترنت دیتاسنترها هنوز وصل نشده است!
+
+محمدعلی یوسفی‌زاده اعلام کرد اینترنت کاربران وصل است اما مراکز داده دسترسی کامل ندارند و شبکه به وضعیت عادی برنگشته است.
+
+فقدان پاسخگویی: پیگیری‌های زیادی انجام شده، اما مسئولان هیچ دلیل یا پاسخی برای این قطع بودن ارائه نمی‌دهند.
+
+⚠️ مشکل اصلی چیست؟
+اینترنت کاربران با اینترنت دیتاسنترها مسیر متفاوتی دارد. در حال حاضر کاربران به سایت‌های داخلی دسترسی دارند، اما سرورِ خود این سایت‌ها در دیتاسنترها به اینترنت جهانی وصل نیستند.
+
+— نتیجه این اختلال:
+قطع شدن اتصال سرورها به ابزارهای حیاتی خارجی مثل گوگل، کلادفلر و گیت‌هاب (APIها).
+
+— عدم امکان آپدیت، دسترسی به ریپازیتوری‌ها و سرویس‌های ابری (CDN).
+
+📌 نتیجه: اینترنت دیتاسنترها قطع است؛ یعنی پلتفرم‌های ایرانی از پشت صحنه به جهان متصل نیستند و زیرساخت فنی آن‌ها عملاً فلج شده است.
+
+پ.ن: البته از وضعیت دیتاسنترهای دیگه اطلاعات زیادی در دسترس نیست.
+
+🆔 @iAghapour
+</div>
+
+## kianmeli1 — post 87701
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87701_1780856612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پرواز تهران به استانبول به دلیل حملات احتمالی ٫ مجبور به بازگشت اضطراری به تهران شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341032
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341032_1780856613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت که «هر گونه تصرف، انتقال یا تخصیص اموال ایران» برای پرداخت به هم‌پیمانان آمریکا «موجب مسئولیت آمریکا، بویژه در شرایطی که ادعای مذاکره و تفاهم می‌کند، و همچنین پاسخ متناسب ایران می‌شود.»
+
+پیشتر رویترز به نقل از یک منبع آگاه گزارش داد دولت آمریکا در حال بررسی استفاده از دارایی‌های جمهوری اسلامی برای تامین هزینه بازسازی و جبران خسارت‌هایی است که در جریان جنگ به کشورهای متحد واشینگتن در خلیج فارس وارد شده است.
+
+اقدامی که به نوشته رسانه‌ها می‌تواند به یکی از محورهای اختلاف در مذاکرات جاری میان تهران و واشینگتن تبدیل شود.
+https://iranintl.com/202606073971
+</div>
+
+## Shin_Persian — post 6617
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6617_1780856614.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 18:19:14 UTC
+
+.@Vahid:
+
+English
+
+Please provide the text you would like me to translate. You only included a username or handle (`.@Vahid:`), but no content to translate.
+
+فارسی
+
+@Vahid:
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4442
+
+<div align="center">
+  <img src="telegram/content/Iliaen_4442_1780856615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز تهران به استانبول که حدود نیم ساعت قبل از فرودگاه امام بلند شد، در میانه‌ی راه به دلایل نامشخص به سمت تهران بازگشت و با تغییر مسیر، چند مرتبه تلاش به فرود اضطراری (ارتفاع پایین) در فرودگاه مهرآباد کرد.
+
+برخی از مردم صدای پرواز این هواپیما را، به عنوان صدای جنگنده گزارش کردند.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 219900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم فوتبال جمهوری اسلامی پس از هفته‌ها حاشیه به تیخوانا در مکزیک رسید. شرایط موجود تیم و داشتن «ویزای ساعتی» اعتراض برخی رسانه‌های حکومتی را به دنبال داشت.
+</div>
+
+## FarsiVOA — post 219899
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219899_1780856616.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارتش اسرائیل از فعالیت نیروهای لشکر ۳۶ در منطقه بوفور جنوب لبنان؛
+
+ارتش اسرائیل پیشتر با انتشار تصاویری از کشف شبکه‌ای از تونل‌های زیرزمینی متعلق به سازمان تروریستی حزب‌الله خبر داد و اعلام کرد این شبکه از مسیرهای زیرزمینی با طراحی و تامین مالی جمهوری اسلامی در ارتفاعات بوفور ساخته شده است.
+
+نیروهای تیم‌های رزمی تیپ گولانی، مگلان و یگان مهندسی ویژه تحت فرماندهی لشکر ۳۶ و با هدایت معاونت اطلاعات ارتش اسرائیل و فرماندهی شمال، هدایت عملیات برای شناسایی شبکه تونل‌ها به‌منظور دستیابی به کنترل عملیاتی بر ارتفاعات بوفور را بر عهده داشتند.
+
+بنابر بیانیه سخنگوی ارتش اسرائیل این شبکه تونلی، در یک منطقه غیرنظامی در مجاورت فعالیت ارتش لبنان ساخته شده و در موقعیتی قرار دارد که امکان تسلط عملیاتی بر منطقه الجلیل را فراهم می‌کند. شبکه در فاصله‌ای شش کیلومتری از متولا واقع شده و به‌عنوان مقر سازمان تروریستی حزب‌الله در این منطقه استفاده می‌شد.
+</div>
+
+## Persian_Trend_Official — post 15912
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15912_1780856618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری سنتکام در کل خاورمیانه به حالت آماده باش جنگی در اومد
+</div>
+
+## Persian_Trend_Official — post 15911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری
+
+سنتکام در کل خاورمیانه به حالت آماده باش جنگی در اومد
+</div>
+
+## Persian_Trend_Official — post 15910
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15910_1780856620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسمان ایران همیشه شبها کلیر هست. اما اسمان کشور های منطقه فعلا عادی هست
+</div>
+
+## Persian_Trend_Official — post 15909
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا لانچر ها دارن جابه جا میشن برای حفاظت از اون ها بلند شدن
+</div>
+
+## Hranews — post 113455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرگ و مصدومیت ۲ کارگر در سایه فقدان ایمنی کار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– در سایه فقدان ایمنی محیط و شرایط نامناسب کار، روز گذشته دو کارگر در قائمشهر و بانه حین انجام کار دچار حادثه شدند. طی این حوادث، یک #کارگر جان باخت و یک تن دیگر مصدوم شد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125873
+
+<div align="center">
+  <a href="telegram/content/alonews_125873_1780856621.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقام آمریکایی: ما از نظر نظامی آماده‌ایم تا در صورت عملی شدن تهدیدات و حمله ایران، با آن مقابله کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125872
+
+<div align="center">
+  <a href="telegram/content/alonews_125872_1780856621.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 اسرائیل هیوم: برآوردهای امنیتی حاکی از آن است که اگر ایران امشب با هدف قرار دادن شمال اسرائیل پاسخ دهد، ممکن است مواضع شبه‌نظامیان (نیروهای مسلح وابسته به اسرائیل) داخل خط زرد (مناطق تحت کنترل تشکیلات خودگردان یا مناطق حائل) در غزه را نیز هدف قرار دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125871
+
+<div align="center">
+  <a href="telegram/content/alonews_125871_1780856621.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه مقام دفاعی آمریکا به آکسیوس :
+- اگه ایران تهدیدهاش رو عملی کنه و حمله جدیدی انجام بده، نیروهای آمریکایی تو خاورمیانه کاملاً آماده‌ان تا از خودشون دفاع کنن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅با سابقه ۵ سال فعالیت مداوم 
+🛡حتی بدون قطعی تو دوران جنگ 
+🌐 با ما همراه شو و در زمان قطعی وصل بمون 
+😎 بقیه هنوز VPN حجمی میفروشن اونم با قیمتای نجومی 
+🚀 
+✅ از ما با کمترین قیمت ، بهترین سرویس رو بگیر 
+👀
+😍 💥بدون محدودیت حجم
+⬇️
+⬇️
+⬇️ @NetAazaadBot @NetAazaadBot
+</div>
+
+## alonews — post 125869
+
+<div align="center">
+  <img src="telegram/content/alonews_125869_1780856622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅با سابقه ۵ سال فعالیت مداوم
+
+🛡حتی بدون قطعی تو دوران جنگ
+
+
+🌐 با ما همراه شو و در زمان قطعی
+وصل بمون 
+😎
+
+بقیه هنوز VPN حجمی میفروشن
+اونم با قیمتای نجومی 
+🚀
+
+
+✅ از ما با کمترین قیمت ، بهترین سرویس رو بگیر 
+👀
+😍
+
+💥بدون محدودیت حجم
+⬇️
+⬇️
+⬇️
+@NetAazaadBot
+@NetAazaadBot
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 21:43
 ---
 
