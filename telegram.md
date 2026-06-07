@@ -7,6 +7,431 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 00:43
+---
+
+## VahidOOnLine — post 244189
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244189_1780866791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل گزارش داد بنیامین نتانیاهو و دونالد ترامپ در حال حاضر در حال گفت‌وگو هستند.
+
+همزمان نماینده اسرائیل در سازمان ملل در شبکه ایکس خطاب به ترامپ نوشت: آقای رییس‌جمهور، جمهوری اسلامی شما را فریب می‌دهد، اسرائیل به شما احترام می‌گذارد. اسرائیل باید با قدرت پاسخ دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به باراک راوید خبرنگار آکسیوس : هر کدام از آنها خوش گذراندند. اسرائیل حمله خود را داشت و ایران هم حمله خود را.
+مابه حمله دیگری نیازنداریم
+@withyashar
+</div>
+
+## WithYashar — post 13808
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل :«نتانیاهو باید حتی به قیمت رویارویی با ترامپ به بمباران ایرانی پاسخ دهد.»
+@withyashar
+</div>
+
+## WithYashar — post 13807
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز: با اینکه ترامپ به اسرائیل گفته پاسخ نده اما اسرائیل همین الان جلسه اضطراری تشکیل داده تا تصمیم بگیره آیا به حملات اخیر پاسخ می‌ده یا نه؛ و اگه پاسخ بده، چطور این کار رو انجام خواهد داد.
+@withyashar
+</div>
+
+## WithYashar — post 13806
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز: با اینکه ترامپ به اسرائیل گفته پاسخ نده اما اسرائیل همین الان جلسه اضطراری تشکیل داده تا تصمیم بگیره آیا به حملات اخیر پاسخ می‌ده یا نه؛ و اگه پاسخ بده، چطور این کار رو انجام خواهد داد.
+@withyashar
+</div>
+
+## WithYashar — post 13805
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13805_1780866791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم اطلاعیه NOTAM صادر کرده است که بخش غربی فضای هوایی تهران را تا ۸ ژوئن به روی تمام ترافیک هوایی غیرنظامی می‌بندد.
+تنها هواپیماهای نظامی، دولتی، تخلیه پزشکی و جست‌وجو و نجات مجاز به فعالیت در این منطقه محدود شده هستند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10321
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌«رسانه‌های اسرائیلی: گذرگاه‌های ورودی به نوار غزه پس از حملات موشکی ایران به اسرائیل بسته شد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10320
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10320_1780866792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 «سفارت آمریکا در قدس دستورالعمل‌هایی صادر کرده و از تمام کارکنان دولت آمریکا و اعضای خانواده‌هایشان در اسرائیل خواسته است تا اطلاع ثانوی در خانه‌های خود بمانند.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 «ترامپ و نتانیاهو در حال حاضر در تماس تلفنی هستند - به گزارش رویترز.» @mwarmonitor
+</div>
+
+## pm_afshaa — post 92706
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92706_1780866792.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری Ynet:
+آمریکا پیامی به اسرائیل فرستاده و گفته چند روز صبر کنه تا ببینه آیا میشه به توافقی دست یافت یا نه.
+
+اگر نه، ما طبق برنامه به اقدام مشترک ادامه خواهیم داد و ارزش نداره که این فرصت رو با درگیر شدن در تبادل ضربات محدود هدر بدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلمبه های سنگین اسراییل به لبنان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92704
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92704_1780866793.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران اطلاعیه نوتام صادر کرده که بخش غربی فضای هوایی تهران رو تا 8 ژوئن به روی تمام ترافیک هوایی غیرنظامی می‌بنده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92703
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92703_1780866793.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفارت آمریکا از تمامی شهروندان آمریکایی در اسرائیل خواست فورا اسرائیل رو ترک کنن یا به پناهگاه‌ها نزدیک بشن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92702
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92702_1780866794.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: براساس پیگیری‌ها، صدای شنیده شده در‌ فرودگاه تبریز تست پدافند بوده و هیچ‌گونه حمله‌ای به این فرودگاه اتفاق نیفتاده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87753
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87753_1780866794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-تمام هواپیماهای غیرنظامی تو تهران برای پیش‌بینی حملات اسرائیل جابه‌جا شدن
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری -صدای فعالیت جنگنده ها در جنوب تهران
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## Shin_Persian — post 6666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 21:07:59 UTC
+
+2 airstrikes on southern Lebanon (not the Kansas one)
+
+فارسی
+
+۲ حمله هوایی به جنوب لبنان (نه آن ایالت کانزاس)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 21:05:48 UTC
+
+Trump on a call with @netanyahu
+
+فارسی
+
+ترامپ در تماس با نتانیاهو (@netanyahu)
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219939
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219939_1780866795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رسانه‌های اسرائیلی می‌گویند که دونالد ترامپ و بنیامین نتانیاهو هم‌اکنون مشغول صحبت هستند. این گزارش‌ها در پی حمله موشکی جمهوری اسلامی به اسرائيل منتشر می‌شود.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16005
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16005_1780866795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⏳کانال ۱۴ اسرائیل در بیانیه ای تند گفته که:
+
+امشب فقط موشک‌ها و جت‌ها نیستن که بین آسمان و زمین در نوسان هستن، بلکه سرنوشت سیاسی نتانیاهو هم همین گونه‌ هستش.
+
+انتظار میره که اگه نتانیاهو فرمان حمله به ایران‌رو نده ، عملا دوران سیاسی و نخست وزیریش تموم میشه
+</div>
+
+## Persian_Trend_Official — post 16004
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16004_1780866795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش i24 نیوز، نخست‌وزیر اسرائیل نتانیاهو، وزیر دفاع کاتز و رهبری امنیتی اسرائیل قرار است در ساعت آینده جلسه اضطراری درباره ایران برگزار کنند
+</div>
+
+## Persian_Trend_Official — post 16003
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16003_1780866796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Persian_Trend_Official — post 16002
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16002_1780866796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The IDF is launching strikes against southern Lebanon. حملات مجدد ارتش اسرائیل به جنوب لبنان
+</div>
+
+## Persian_Trend_Official — post 16001
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16001_1780866797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+The IDF is launching strikes against southern Lebanon.
+
+حملات مجدد ارتش اسرائیل به جنوب لبنان
+</div>
+
+## Persian_Trend_Official — post 16000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفتالی بنت:
+
+«این لحظه‌ آشکار شدن حقیقت است: اینکه آیا اسرائیل یک کشور مستقل است که قادر به دفاع از خود است یا خیر.
+
+خویشتنداری یا واکنش نمادین به دشمنان ما نشان می‌دهد که خون شهروندان ما پایمال شده است؛ بنابراین، اسرائیل باید با قدرت و اثربخشی عمل کند.
+
+در این مورد، همه ما - همه شهروندان اسرائیل - در کنار هم ایستاده‌ایم.»
+</div>
+
+## IranianMinds — post 21687
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21687_1780866797.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیانیه سخنگوی ارتش اسرائیل
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21685
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فرودگاه مهرآباد داره تخلیه میشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21684
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نفتالی بنت، نخست‌وزیر پیشین اسرائیل:
+
+این یک آزمون است: آیا اسرائیل یک کشور مستقل است که توانایی دفاع از خود را دارد؟
+
+سیاست خویشتنداری یا یک پاسخ صرفا نمادین به دشمنان ما این پیام را می‌دهد که ریختن خون شهروندان ما مجاز است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات هوایی شدید اسرائیل به جنوب لبنان @IranianMinds
+</div>
+
+## BBCPersian — post 283093
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283093_1780866799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻همزمان با حمله موشکی ایران به شمال اسرائیل و اوج گرفتن نگرانی از آغاز درگیری نظامی گسترده میان اسرائیل و ایران، عراق از بستن مرزهای هوایی خود برای ۷۲ ساعت (سه روز آینده) خبر داد.
+
+آسمان این کشور در طول جنگ ۴۰ روزه میان آمریکا و اسرائیل با ایران، بارها محل عبور موشک های ایران یا جنگنده های اسرائیلی بود.
+
+پس از جاری شدن آتش‌بس هم گزارش شد اسرائیل برای هدایت و تقویت حملات خود به ایران در طول جنگ ۴۰ روزه، پایگاه‌های موقت صحرایی در عراق برپا کرده بوده است.
+
+📸 Getty
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391282
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391282_1780866799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیانیه سخنگوی فارسی زبان ارتش اسرائیل، سرهنگ دوم کمال پنحاسی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر آمریکا واکنش نشان نده یعنی سپاه برای شلیک موشک ها با آمریکا هماهنگ کرده آمریکا هم به اسراییل اطلاع داده و حمله نمادین هست
+خواهیم دید چه خواهد شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126036
+
+<div align="center">
+  <a href="telegram/content/alonews_126036_1780866800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ثابتی: باید حملات رو ادامه بدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126035
+
+<div align="center">
+  <a href="telegram/content/alonews_126035_1780866800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تمام هواپیماهای غیرنظامی تو تهران برای پیش‌بینی حملات اسرائیل جابه‌جا شدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126034
+
+<div align="center">
+  <a href="telegram/content/alonews_126034_1780866800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آمیکای اشتاین خبرنگار آی ۲۴:
+«در طول یک ساعت آینده، یک بحث گسترده با حضور بنیامین نتانیاهو، وزیر جنگ، و فرماندهی عالی امنیتی درباره ایران آغاز خواهد شد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126033
+
+<div align="center">
+  <a href="telegram/content/alonews_126033_1780866801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوووووووووری/پرواز شدید جنگنده‌های آمریکایی در مرز ایران 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 126032
+
+<div align="center">
+  <a href="telegram/content/alonews_126032_1780866801.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز: با اینکه ترامپ به اسرائیل گفته پاسخ نده اما اسرائیل همین الان جلسه اضطراری تشکیل داده تا تصمیم بگیره آیا به حملات اخیر پاسخ می‌ده یا نه؛ و اگه پاسخ بده، چطور این کار رو انجام خواهد داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 00:33
 ---
 
