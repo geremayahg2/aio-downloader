@@ -7,6 +7,253 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 21:33
+---
+
+## VahidOOnLine — post 244149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بازیکنان و اعضای کادر فنی تیم ملی فوتبال ایران روز یکشنبه ۱۷ خردادماه در میان تدابیر شدید امنیتی به هتل محل اقامت خود در شهر تیخوانا در مکزیک رسیدند.
+
+تیم ملی در حالی برای برگزاری جام جهانی به مکزیک رفته است که در ابتدا قرار بود در آمریکا اقامت کند. با این حال و پس از آنکه ایالات متحده در صدور ویزا برای کادر فنی و همراهان تیم تعلل کرد و در نهایت برای گروهی از همراهان به‌دلیل «سابقه عضویت در سپاه» یا «نگرانی‌های امنیتی» ویزا صادر نکرد، به‌ناچار به مکزیک رفتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244148
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244148_1780855401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با شبکه ان‌بی‌سی نیوز درباره رابطه با اسرائیل گفت: «ما رفقای بسیار خوبی هستیم و ضربه‌ای بسیار بزرگ به یک کشور مشخص وارد کردیم؛ کشوری که ۴۷ سال چیزی جز دردسر نبوده است.»
+
+او درباره لبنان افزود: «دوست دارم حمله به حزب‌الله دقیق‌تر و هدفمندتر باشد. فکر می‌کنم باید هدفمندتر انجام شود. ما می‌توانیم در این زمینه کمک کنیم یا سوریه را به‌عنوان یک گزینه پیشنهاد دهیم.»
+ترامپ همچنین گفت سوریه در حال سامان دادن به اوضاع خود است و عملکرد خوبی دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: جمعیت مردم در تجمعات شبانه نصف شده.
+@withyashar
+</div>
+
+## WithYashar — post 13727
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل: نخست‌وزیر بنیامین نتانیاهو با هیاتی از مشاوران حقوقی دولت ترامپ دیدار کرد.
+@withyashar
+</div>
+
+## WithYashar — post 13726
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر: اسرائیل میز مذاکره را به آتش کشید، به زودی پاسخ دردناکی به تل‌آویو خواهیم داد.
+@withyashar
+</div>
+
+## pm_afshaa — post 92532
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92532_1780855401.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد مخبر، مشاور خامنه‌ای:
+دشمن با بمباران لبنان در زمان حضور میانجی‌ها در ایران، میز مذاکره رو برای بار سوم به آتش کشید تا نقض آتش‌بس ر‌و فریاد بکشه؛ بهای سنگین و دردناک این تعرض رو قطعا در میدان خواهیم داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341029
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341029_1780855402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با شبکه ان‌بی‌سی نیوز درباره رابطه با اسرائیل گفت: «ما رفقای بسیار خوبی هستیم و ضربه‌ای بسیار بزرگ به یک کشور مشخص وارد کردیم؛ کشوری که ۴۷ سال چیزی جز دردسر نبوده است.»
+
+او درباره لبنان افزود: «دوست دارم حمله به حزب‌الله دقیق‌تر و هدفمندتر باشد. فکر می‌کنم باید هدفمندتر انجام شود. ما می‌توانیم در این زمینه کمک کنیم یا سوریه را به‌عنوان یک گزینه پیشنهاد دهیم.»
+ترامپ همچنین گفت سوریه در حال سامان دادن به اوضاع خود است و عملکرد خوبی دارد.
+https://iranintl.com/202606073045
+</div>
+
+## IranIntlTV — post 341028
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341028_1780855402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» درباره گزارش‌ها مبنی بر اینکه دولت ترامپ در حال بررسی تحویل دارایی‌های بلوکه‌شده ایران به کشورهای خلیج فارس است، گفت: «این اقدام به نوعی پرداخت غیرمستقیم غرامت حمله‌های جمهوری اسلامی به این کشورها است.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 17:54:56 UTC
+
+Intense jet activity over #KRI, Eastern #Iraq 🇮🇶
+
+فارسی
+
+فعالیت شدید جت‌ها بر فراز اقلیم کردستان عراق (#KRI) و شرق عراق (#Iraq) 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هفتاد و پنجمین سالگرد انتشار کتاب ۱۹۸۴؛ گفت‌وگو با امیر گنجوی پژوهشگر فلسفه سیاسی و مطالعات اجتماع
+</div>
+
+## FarsiVOA — post 219890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع دانش‌آموزان در شهرهای مختلف در اعتراض به کنکور و مسائل آموزشی در ایران؛ گفت‌وگو با سعید پیوندی، جامعه‌شناس
+</div>
+
+## Persian_Trend_Official — post 15906
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15906_1780855404.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر: دشمن با بمباران لبنان در زمان حضور میانجی‌ها در ایران، میز مذاکره رو برای بار سوم به آتش کشید تا نقض آتش‌بس ر‌و فریاد بکشد؛ بهای سنگین و دردناک این تعرض رو قطعا در میدان خواهیم داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محسن رضایی چند روز پیش در صدا و سیما:
+
+کافی بود فقط اسرائیل به سمت ضاحیه حرکت کند، کل موشک‌های ما آماده بود چند برابر جنگ ۴۰ روزه شمال اسرائیل را جهنم می‌کردند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه روزنامه‌نگار ایرانی نامزد جایزه «گزارش واقعی» امسال به دلیل «نبود امکان دریافت ویزا از سفارتخانه سوئیس در ایران» نتوانستتند برای شرکت در مراسم اعلام برندگان و اهدای جوایز شرکت کنند. حساب اینستاگرامی فستیوال گزارش واقعی ‏(True Story) در پستی تصویر سه…
+</div>
+
+## BBCPersian — post 283082
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه روزنامه‌نگار ایرانی نامزد جایزه «گزارش واقعی» امسال به دلیل «نبود امکان دریافت ویزا از سفارتخانه سوئیس در ایران» نتوانستتند برای شرکت در مراسم اعلام برندگان و اهدای جوایز شرکت کنند.
+
+حساب اینستاگرامی فستیوال گزارش واقعی ‏(True Story) در پستی تصویر سه روزنامه‌نگار ایرانی را منتشر کرد و نوشت که جای آنها خالی است. سوگل دانایی برای گزارش «بی‌حسی موضعی» که در شبکه آقتاب منتشر شده، مریم شکری برای گزارش «یک تکه زمین فقیر» در روزنامه شرق و ستاره حجتی برای گزارش «آلودگی ارس، معمایی که با هر جواب پیچیده‌تر می‌شود» در روزنامه پیام ما، نامزد جوایز امسال این جشنواره شده‌ بودند.
+
+این جشنواره نوشت: «ما عمیقا متاسفیم که سه روزنامه‌نگار از ایران نمی‌توانند به‌صورت حضوری در جشنواره در کنار ما باشند. با این حال، صدای آن‌ها، روایت‌هایشان و شجاعتشان همچنان حضور خواهد داشت. در تمام طول جشنواره به یادشان هستیم و آن‌ها در قلب ما هستند.»
+</div>
+
+## Dirty_Kids — post 391240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجا اتاق‌فکر رژیم داشت یه آزمایشی میکرد موفق نشد
+
+میخواستن یه عرزشی‌صورتی‌رو با یه دلقک‌صادراتی جفت بندازن تا مثل دنیا یه توله این پس بندازه، محصول زِنا کردنشون موفق نبود، پروژه شکست خورد جمعش کردن برگشت پیش عرزشی‌کاکولد خودش
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391239
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391239_1780855404.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی شهرداری گناباد دو نفر در حال کون کونک بازی 🏳‍🌈 بودن که مردم مچشون رو گرفتن!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیفرخواست پرونده عباس عبدی و روزنامه اعتماد صادر شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– خبرگزاری قوه قضاییه از صدور کیفرخواست پرونده عباس عبدی و روزنامه اعتماد خبر داد. این پرونده برای رسیدگی به دادگاه کیفری یک استان تهران ارسال شده است.
+
+ادامه مطلب
+
+#عباس_عبدی #روزنامه_اعتماد
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125866
+
+<div align="center">
+  <a href="telegram/content/alonews_125866_1780855405.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / گزارش ها از پرواز گسترده جت های جنگی بر فراز اقلیم کردستان، عراق.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125865
+
+<div align="center">
+  <a href="telegram/content/alonews_125865_1780855405.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی به آکسیوس:حزب‌الله باید فوراً آتش‌بس کند و اجازه دهد این توافق‌ها اجرایی شوند. شرایط پیشنهادی منصفانه است، مورد تأیید لبنان و اسرائیل قرار دارد و مسیر روشنی برای پایان دادن به درگیری‌ها فراهم می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125864
+
+<div align="center">
+  <a href="telegram/content/alonews_125864_1780855406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبویان: جای تعجب است که ایران پیشنهاد واگذاری تنگۀ هرمز را داده است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 21:23
 ---
 
@@ -179,8 +426,6 @@ Hol' up
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
