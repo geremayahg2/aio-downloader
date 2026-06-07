@@ -7,6 +7,204 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 02:33
+---
+
+## VahidOOnLine — post 244202
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244202_1780873420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس ازاینکه عباس عراقچی، عکس پرچم‌های جمهوری اسلامی و لبنان را کنار هم در شبکه اجتماعی ایکس منتشر کرد، گیدون سعار، وزیر خارجه اسرائیل، پرچم حزب‌الله لبنان را کنار پرچم جمهوری اسلامی گذاشت و عراقچی را «کلاهبردار» خطاب کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244201
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244201_1780873420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگوی تلفنی با روزنامه «فایننشال تایمز» اعلام کرد که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، چاره‌ای جز پذیرش توافق احتمالی واشنگتن با تهران ندارد، چرا که در این معادله «او تصمیم‌گیرنده نهایی و همه‌کاره است». ترامپ که پس از حملات موشکی گسترده ایران به اسرائیل، در پاسخ به بمباران حومه بیروت توسط ارتش اسرائیل، سخن می‌گفت، تأکید کرد که این پرتابه‌ها هیچ آسیبی وارد نکرده‌اند و تفاوتی در اراده او برای دستیابی به توافق ایجاد نمی‌کنند؛ هرچند برخلاف گذشته، لحن او نشان می‌داد که حصول این توافق چندان هم قریب‌الوقوع نیست. رئیس‌جمهوری آمریکا همچنین هشدار داد که اگر روند دیپلماسی شکست بخورد، گزینه‌هایی چون حمله تفنگداران دریایی یا تشدید محاصره همه‌جانبه نظامی علیه ایران را مدنظر قرار خواهد داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به کانال ۱۲ تلویزیون اسرائیل گفت: نتانیاهو به نوعی موافقت کرده است که پاسخ اسرائیل به ایران را به تعویق بیندازد.
+@withyashar
+یاشار: اسرائیل همانطور که گفتم فقط کارش قافلگیری ‌است و هیچی نشون نمیده ! هر لحظه ممکنه برنه !
+</div>
+
+## mwarmonitor — post 10354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌اکسیوس: مقامات آمریکایی اعطای «چراغ سبز» به اسرائیل برای انجام حمله به بیروت را تکذیب می‌کنند. یکی از مقامات گفت: «ما هیچ نقشی در این موضوع نداشتیم.»
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 341075
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341075_1780873421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد شبکه‌ای از تونل‌های زیرزمینی حزب‌الله را در ارتفاعات بوفور جنوب لبنان کشف کرده است؛ شبکه‌ای که به گفته این ارتش با برنامه‌ریزی و تأمین مالی جمهوری اسلامی ساخته شده بود و پهپادها، موشک‌های دوش‌پرتاب و موشک‌های ضدزره از این محل به سوی خاک اسرائیل شلیک شده بود. این شبکه تونلی در یک منطقه غیرنظامی بنا شده بود و به‌عنوان یکی از مراکز اصلی حزب‌الله در این منطقه عمل می‌کرد.
+@iranintltv
+</div>
+
+## FarsiVOA — post 219950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از هرات تا تهران؛ روایت مشترک زنان در برابر حجاب اجباری زنان و بازداشت‌ها
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283105
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283105_1780873424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت وگو با روزنامه فايننشال تايمز اعلام کرد بنيامين نتانياهو، نخست وزير اسرائيل، ناگزير خواهد بود هر توافقی را که ايالات متحده با ايران به دست آورد، بپذيرد.
+
+ترامپ در اين گفت وگوی تلفنی که عصر یکشنبه به وقت شرق آمریکا روی داد گفت: «او هيچ انتخابی نخواهد داشت. تصميم‌گيرنده من هستم. همه تصميم‌ها را من می گيرم. او [نتانياهو] تصميم‌گير نيست.»
+
+رئيس‌جمهور آمريکا پيش‌تر نيز به نشریه اکسيوس گفته بود که قصد دارد از نتانياهو بخواهد در واکنش به حملات اخير ايران دست به اقدام تلافی‌جويانه نزند تا امکان نجات توافق احتمالی ميان تهران و واشنگتن حفظ شود.
+
+آقای ترامپ همچنين به فايننشال تايمز گفت حملات اخير «هيچ تأثيری بر روند توافق نداشته است.»
+
+او افزود: «خواهيم ديد در نهايت چه اتفاقی می‌افتد. اين يکی از آن مسائلی است که بسته به اينکه چگونه حساب کنيد، سه هزار سال يا ۴۷ سال است ادامه دارد.»
+
+اين اظهارات نشان‌دهنده اطمينان آقای ترامپ به پيشرفت مذاکرات با ايران و در عين حال تلاش او برای مهار واکنش احتمالی اسرائيل به تنش‌های اخير در منطقه است.
+
+📸 Getty
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A17 
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391302
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391302_1780873424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A17
+
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391301
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391301_1780873425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391300
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391300_1780873425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏اگر ترامپ دخالت نمیکرد امشب میتونست یه شب مهم باشه ؛ یه شب شااااد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما «نه به جنگ» نیستید، شما «نه به سقوط جمهوری اسلامی» هستید؛ وگرنه برای این موشک‌پرانی‌های رژیم هم صدایتان درمی‌آمد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391298
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391298_1780873426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکم آیسان اسلامی برای تراپی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391297
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391297_1780873428.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بگردم برات بچه
+غصه اینم باید بخورم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391296
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391296_1780873428.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدونم یه خودی اینو طراحی کرده ولی نمیتونم ثابت کنم:)
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126086
+
+<div align="center">
+  <a href="telegram/content/alonews_126086_1780873429.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای یک مقام آمریکایی به کانال ۱۲:
+نتانیاهو «به نحوی» با به تأخیر انداختن پاسخ به حمله ایران موافقت کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 02:23
 ---
 
