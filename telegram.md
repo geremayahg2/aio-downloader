@@ -7,6 +7,998 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 22:53
+---
+
+## VahidOOnLine — post 244159
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244159_1780860236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل، یکشنبه‌شب، ۱۷ خردادماه، با انتشار بیانیه‌ای در اکس اعلام کرد که در پی شناسایی موشک‌های شلیک‌شده از سوی ایران به سمت خاک اسرائیل، آژیرهای خطر در چندین منطقه در سراسر این کشور به صدا درآمده‌اند. بر اساس اعلام رسمی نیروهای دفاعی اسرائیل، سیستم‌های پدافند هوایی این کشور بلافاصله پس از ردیابی این پرتابه‌ها فعال شده و در حال مقابله برای رهگیری و انهدام تهدیدهای موشکی بر فراز آسمان منطقه هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244158
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244158_1780860236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل، یکشنبه‌شب، ۱۷ خردادماه، با انتشار بیانیه‌ای اعلام کرد که رادارهای این کشور شلیک چندین موشک از سوی ایران به سمت خاک اسرائیل را شناسایی کرده‌اند. بر اساس این گزارش رسمی، در حال حاضر تمامی سیستم‌های پدافند هوایی ارتش برای رهگیری و انهدام این تهدیدها فعال شده‌اند و فرماندهی جبهه داخلی در دقیقه‌های گذشته، دستورالعمل‌های اضطراری پیش‌گیرانه‌ای را به طور مستقیم به تلفن‌های همراه ساکنان مناطق تحت خطر ارسال کرده است. مقامات نظامی اسرائیل با تاکید بر اینکه این دستورات نجات‌دهنده جان انسان‌هاست، از عموم مردم خواسته‌اند با مسئولیت‌پذیری کامل، به محض شنیدن صدای آژیر خطر فورا وارد پناهگاه‌ها و مناطق امنِ حفاظت‌شده شوند و تا زمان صدور ابلاغیه صریح و رسمی بعدی، به هیچ عنوان از پناهگاه‌های خود خارج نشوند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244157
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244157_1780860237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد که نیروهای نظامی اسرائیل می‌گویند سامانه‌های دفاعی در حال عملیات برای رهگیری تهدید هستند.
+
+بر اساس این گزارش، ارتش اسرائیل اعلام کرده است که شلیک موشک‌هایی از ایران به سمت خاک کشور اسرائیل شناسایی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند موشک از تبریز و کرمانشاه شلیک شد
+@withyashar
+</div>
+
+## WithYashar — post 13754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج دوم حملات ۳پا آغاز شد
+@withyashar
+🚨🚨🚨🚨🚨🚨
+</div>
+
+## WithYashar — post 13753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا سیما ما وارد یک مرحله زورآزمایی جدید شدیم چون ناتانیاهو خواست ما را محک بزند
+@withyashar
+</div>
+
+## WithYashar — post 13752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما حمله ایران به شمال اسرائیل در همبستگی با لبنان را تایید کرد
+@withyashar
+</div>
+
+## mwarmonitor — post 10272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو انفجار در دمشق رخ داد.
+</div>
+
+## mwarmonitor — post 10271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرمانده مقر «خاتم‌الانبیاء (ص)»:
+
+🔹 رژیم صهیونیستی متجاوز، با نقض مکرر آتش‌بس، شرارت‌های خود علیه ملت مظلوم لبنان را افزایش می‌دهد؛ با حمایت آمریکا‌ی جنایتکار و سکوت سازمان‌های بین‌المللی، و با استفاده از سلاح‌های ممنوعه از جمله بمب‌های فسفری، مرتکب جنایات جنگی می‌شود.
+
+🔹 و با وجود هشدارهای قبلی از سوی جمهوری اسلامی ایران، این رژیم کودک‌کش حومه‌های بیروت را هدف قرار داده و از همه خطوط قرمز عبور کرده و حملات خود را در جنوب لبنان تشدید کرده است.
+
+🔹 ما پیش‌تر هشدار داده بودیم که اگر جنایت به حومه‌های بیروت گسترش یابد، اهدافی را در سرزمین‌های اشغالی هدف قرار خواهیم داد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10270
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10270_1780860237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هشدار حمله موشکی شمال اسرائیل
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10269
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«بن‌گویر: باید امشب تهران بسوزد»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از ایران
+</div>
+
+## mwarmonitor — post 10267
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10267_1780860238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حیفا
+</div>
+
+## pm_afshaa — post 92587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+6 موشک از ارومیه پرتاب شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92586
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92586_1780860240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقام ارشد اسرائیلی به i24NEWS:
+پاسخی داده خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرودگاه بن گوریون در پی حملات جمهوری اسلامی تعطیل شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو دور دوم 5 موشک شلیک شده.
+تا الان 9 تا شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقامات اسرائیلی به رادیو ارتش اسرائیل گفتند که چیزی به نام «رویداد محدود شده» وجود ندارد و اسرائیل پاسخ خواهد داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از اصفهان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از تبریز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل:به زودی پاسخ بسیار گسترده در ایران خواهد آمد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92579
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92579_1780860240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بن‌گویر، وزیر امنیت داخلی اسرائیل:
+تهران امشب باید بسوزه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل:شلیک موشک از ایران به معنای اعلان جنگ از سوی رژیم جمهوری اسلامی است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب پیاپی موشک از کرمانشاه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92576
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92576_1780860241.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رادیو ارتش اسرائیل: قطعا پاسخ خواهیم داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92575
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92575_1780860242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر در اسرائیل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک مجدد موشک از ایران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92573
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92573_1780860242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اورشلیم پست: ایران در تله افتاد و به شدت ضربه خواهند خورد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فراموش نکنین جمهوری اسلامی بخاطر یه مشت تروریست لبنانی ایران رو به سومین جنگ وارد کرد
+</div>
+
+## pm_afshaa — post 92571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع اسرائیلی: واشنگتن متعهد شده است که به اسرائیل آزادی عمل در حمله به ایران را بدهد اگر با موشک هدف قرار گیرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها قطع شدین من هستم استار فعلا دارم خبرارو بزارم😁
+</div>
+
+## DEJradio — post 5438
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5438_1780860243.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ دولت اسرائیل برای شهروندان چند منطقه از این کشور هشدار حمله صادر کرد.
+
+#حملات_موشکی #اسرائیل
+@DEJradio
+</div>
+
+## DEJradio — post 5437
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5437_1780860243.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ حملات موشکی جمهوری اسلامی به سمت اسرائیل
+
+#حملات_موشکی #اسرائیل
+@DEJradio
+</div>
+
+## VahidOnline — post 75997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه: اخطار داده بودیم در صورت گسترش جنایت در بیروت، اهدافی را مورد هجوم قرار می دهیم
+
+به نقل از تسنیم، خبرگزاری وابسته به سپاه:
+
+"فرمانده قرارگاه حضرت خاتم‌الانبیا(ص):
+رژیم متجاوز صهیونیستی با نقض مکرر آتش‌بس شرارت های خود علیه مردم مظلوم لبنان با چراغ سبز و حمایت آمریکای جنایتکار و سکوت مجامع بین المللی را روز به روز افزایش داده و با استفاده از سلاح های ممنوعه از جمله بمب های فسفری مرتکب جنایات جنگی می گردد.
+
+با وجود هشدارهای قبلی جمهوری اسلامی ایران، رژیم کودک کش صهیونیستی با عبور از همه خطوط قرمز و افزایش حملات در جنوب لبنان، ضاحیه بیروت را هدف قرار داده است.
+
+قبلا اخطار داده بودیم در صورت گسترش جنایت در ضاحیه بیروت، اهدافی را در سرزمین های اشغالی مورد هجوم قرار می دهیم.
+
+ارتش صهیونیستی باید حملات خود به جنوب لبنان و ضاحیه را متوقف نماید و در صورت گسترش حملات خود به آن منطقه و یا پاسخ به اقدام ایران با ضربات کوبنده تر و پشیمان کننده روبرو و حملات ویرانگری علیه رژیم و حامیان آن آغاز خواهد شد."
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ موج بعدی شلیک موشک به سمت اسرائیل
+پیام‌های دریافتی:
+
+دوباره شلیک از کرمانشاه
+
+دوباره یکی دیگه زدن الان
+یکی بود
+
+10:44 دوباره صدای انفجار اومد کرمانشاه
+
+صدای انفجار مجدد
+
+بازم زدن
+همین الان صدا اومد از روانسر کرمانشاه
+
+22:47 شلیک موشک از تبریز
+
+آذرشهر [نزدیک تبریز] صدای موشک ۳ تا
+
+سلام وحید
+ساعت ۲۲:۴۰ ۴ تا شلیک از تبریز به فاصله هر یک دقیقه
+نور خیلییی زیادی داره و صدای زیاد
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87720
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87720_1780860244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-موشکها در راه اسراییل
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87719
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+حمله موشکی از تبریز به اسراییل
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-ارتش اسرائیل:
+
+آتش بس میان ایران و اسرائیل پایان یافت.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87717
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87717_1780860244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+حمله موشکی از اصفهان به اسراییل
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-بن گویر: تهران امشب باید بسوزد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+موج دوم حمله موشکی به اسراییل شروع شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87714
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87714_1780860246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+وضعیت خیابان کرمانشاه حین شلیک موشک به اسراییل
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341040
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341040_1780860247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز گزارش داد آمریکا پیش‌نویس قطعنامه‌ای را برای نشست شورای حکام آژانس توزیع کرده و خواستار ارائه فوری اطلاعات درباره مواد و تاسیسات هسته‌ای جمهوری اسلامی شده است.
+
+گفت‌وگو با علیرضا نامور حقیقی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 341039
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341039_1780860249.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد که نیروهای نظامی اسرائیل می‌گویند سامانه‌های دفاعی در حال عملیات برای رهگیری تهدید هستند.
+
+بر اساس این گزارش، ارتش اسرائیل اعلام کرده است که شلیک موشک‌هایی از ایران به سمت خاک کشور اسرائیل شناسایی شده است.
+https://iranintl.com/202606078136
+</div>
+
+## FarsiVOA — post 219921
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ارتش اسرائيل از حمله موشکی جمهوری اسلامی خبر داد
+
+◾️سخنگوی ارتش اسرائیل اواخر روز یکشنبه به وقت محلی گفت که این نیرو اندکی پیش، شلیک موشک‌هایی از ایران به سمت خاک اسرائیل را شناسایی کرد و سیستم‌های دفاعی برای رهگیری این تهدید در حال فعالیت هستند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/us-ready-to-defend-israel-against-irans-threats/8158252.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15949
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ شلیک موشک از ارومیه، شمال غربی ایران. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15948
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15948_1780860249.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ شلیک موشک از ارومیه، شمال غربی ایران.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15947
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15947_1780860250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ عراقچی:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15946
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15946_1780860250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡🇮🇱 هشدارهای زودهنگام در نزدیکی ناهاریا، عکا و سایر مناطق اطراف در شمال اسرائیل فعال است:
+
+• دره بیت‌شعان
+• خط مقابله
+• جولان
+• حیفا
+• هف هاکرمل
+• کاتزرین
+• کرایوت
+• گلیل پایین
+• منا‌شه
+• تاور
+• گلیل بالا
+• وادی عاره
+• یئروت هاکرمل
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15945
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15945_1780860251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در موج دوم حداقل ۵ موشک بالستیک به سمت شمال اسرائیل در حال حرکت هستند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15944
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15944_1780860251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج دوم موشک‌های بالستیک از ایران به سمت اسرائیل شلیک شد!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15942
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15942_1780860252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+More footage of interceptors over Israel
+</div>
+
+## RadioFarda — post 158011
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_158011_1780860253.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فوری- ارتش اسرائیل شامگاه یکشنبه اعلام کرد که موشک‌هایی را که از ایران به سمت خاک اسرائیل شلیک شده بودند شناسایی کرده است.
+
+⚡️در بیانیه‌ ارتش اسرائیل آمده است: «دقایقی پیش و در پی شناسایی موشک‌هایی که از ایران به سوی اسرائیل شلیک شده بودند، آژیرهای هشدار در چندین منطقه در سراسر کشور به صدا درآمد.»
+
+⚡️این نهاد نظامی افزود که سامانه‌های پدافندی در حال فعالیت برای رهگیری و مقابله با این تهدید هستند.
+
+⚡️این اتفاق چند ساعت بعد از آن رخ داد که ارتش اسرائیل منطقه ضاحیه در جنوب بیروت را هدف قرار داد و ایران تهدید کرد به این حمله پاسخ خواهد داد.
+@RadioFarda
+</div>
+
+## IranianMinds — post 21621
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شلیک مجدد موشک به سمت اسرائیل موج سوم حملات
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قرارگاه خاتم‌الانبیا :
+
+رژیم صهیونیستی آتش بس رو بارها نقض کرد و به مردم مظلوم لبنان حمله کرد ما هم جوابشو دادیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مدارس اسرائیل تا اطلاع ثانوی تعطیل شد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21618
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بن‌ گویر ، وزیر امنیت ملی اسرائیل :
+
+امشب تهران باید در آتش بسوزد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21617
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ۵ موشک از تبریز به سمت شمال اسرائیل لانچ شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21616
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21616_1780860255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 5 موشک جدید به سمت اسرائیل شلیک شد. @IranianMinds
+</div>
+
+## IranianMinds — post 21615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شلیک مجدد موشک به سمت اسرائیل @IranianMinds
+</div>
+
+## IranianMinds — post 21613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 موج دوم حملات ایران آغاز شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21612
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21612_1780860255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست عراقچی بعد از حمله :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال ۱۳ اسرائیل:
+حمله موشکی ایران اعلام جنگ است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21610
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شلیک مجدد موشک به سمت اسرائیل
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقام اسرائیلی به رادیو ارتش اسرائیل: تو اسرائیل چیزی به‌نام «حمله محدود» وجود نداره و اسرائیل به جنگ با ایران برمیگرده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اورشلیم پست: ایران در تله افتاد و به شدت ضربه خواهند خورد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21607
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21607_1780860256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خرزشیا ریختن بیرون دارن خوشحالی میکنن
+
+همینا فردا میان گریه میکنن میگن سردارمونو با نامردی کشتن 😭😭😭
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه به اسراییل موشک زد نه برای ایران به خاطر حزب‌الله
+
+مادرجنده‌هایی که ادعا میکنن طرفدار نظام نیستن اما تو جنگ پشت ملی‌گرایی جمهوری‌اسلامی در میان حرفی حدیثی؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391254
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391254_1780860258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارمندان ابرآوران هم‌اکنون:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبری نیست دوستان
+۴ تا موشک فرستادن که ابروشون نره و بگن ما پای حرفمون موندیم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضایت اولیای دم؛ ۲ زندانی از اعدام رهایی یافتند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– دو زندانی در سنندج و استان خوزستان که پیشتر از بابت اتهام قتل به #اعدام محکوم شده بودند، با گذشت اولیای دم از مجازات مرگ رهایی یافتند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125922
+
+<div align="center">
+  <a href="telegram/content/alonews_125922_1780860258.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / یک مقام ارشد اسرائیلی به i24NEWS گفت: پاسخ در راه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125921
+
+<div align="center">
+  <a href="telegram/content/alonews_125921_1780860258.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرتاب بیش از هشت موشک از اصفهان و بیش از سه موشک از تبریز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125920
+
+<div align="center">
+  <a href="telegram/content/alonews_125920_1780860259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / موج سوم حمله موشکی آغاز شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125919
+
+<div align="center">
+  <a href="telegram/content/alonews_125919_1780860259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست عباس عراقچی
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125918
+
+<div align="center">
+  <a href="telegram/content/alonews_125918_1780860259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرودگاه بن‌گوریون در اسرائیل تعطیل شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125916
+
+<div align="center">
+  <a href="telegram/content/alonews_125916_1780860259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش شلیک از تبریز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125915
+
+<div align="center">
+  <a href="telegram/content/alonews_125915_1780860259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بن گویر وزیر امنیت ملی اسرائیل:
+
+امشب تهران باید بسوزد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125914
+
+<div align="center">
+  <a href="telegram/content/alonews_125914_1780860260.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد اسرائیلی به کانال ۱۲: ایران می خواست معادله جدیدی از آتش محدود و اندازه گیری شده ایجاد کند ، اما ما اجازه نمی دهیم که این اتفاق بیفتد.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125913
+
+<div align="center">
+  <a href="telegram/content/alonews_125913_1780860260.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووودی/موج دوم حملات آغاز شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125911
+
+<div align="center">
+  <a href="telegram/content/alonews_125911_1780860260.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا ۱الی۲ موشک رهگیری شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125910
+
+<div align="center">
+  <a href="telegram/content/alonews_125910_1780860261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/یک منبع سیاسی ارشد به کانال ۱۴ اسرائیل: «همانطور که قول دادیم، پاسخ خواهیم داد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 22:43
 ---
 
