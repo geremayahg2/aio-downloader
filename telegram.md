@@ -7,6 +7,435 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 00:53
+---
+
+## VahidOOnLine — post 244190
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244190_1780867387.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، در پی حمله موشکی ایران، یکشنبه‌شب، ۱۷ خردادماه، پرتابه‌های متعددی در آسمان مناطق مرکزی اسرائیل رویت شدند. مقامات نظامی اسرائیل در اواخر وقت روز یکشنبه تایید کردند که موشک‌های شلیک‌شده از سوی ایران را شناسایی و توسط سیستم‌های پدافندی خود رهگیری کرده‌اند، هرچند هنوز جزئیاتی از خسارات احتمالی در دست نیست. هم‌زمان با این تشدید تنش، دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با آکسیوس اظهار داشت که توافق با ایران نزدیک است و او تمایلی به به خطر انداختن آن ندارد. در جبهه مقابل، محمدباقر قالیباف، رئیس مجلس و مذاکره‌کننده ارشد صلح ایران، با متهم کردن طرف مقابل به اقداماتی خصمانه از جمله «نقض توافقات پیرامون لبنان»، تاکید کرد که پایگاه‌های ایالات متحده و منافع اسرائیل اهدافی مشروع برای جمهوری اسلامی به شمار می‌روند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«رئیس ستاد ارتش اسرائیل می‌گوید ارتش به محض صدور دستور، با قاطعیت «دشمن» را هدف قرار خواهد داد.»
+@withyashar
+</div>
+
+## WithYashar — post 13812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۵ اسرائیل:
+پس از پایان گفتگوی نتانیاهو و ترامپ، نخست‌وزیر جلسه گسترده‌ای درباره موضوع ایران برگزار خواهد کرد.
+@withyashar
+</div>
+
+## WithYashar — post 13811
+
+
+
+
+## WithYashar — post 13810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری وای نت اسرائیل: آمریکا پیامی به اسرائیل فرستاده و گفته چند روز صبر کنه تا ببینه آیا میشه به توافقی دست یافت یا نه.
+
+اگر نه، ما طبق برنامه به اقدام مشترک ادامه خواهیم داد و ارزش نداره که این فرصت رو با درگیر شدن در تبادل ضربات محدود هدر بدیم.
+@withyashar
+</div>
+
+## mwarmonitor — post 10326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️«پروازها در فرودگاه بین‌المللی امام خمینی تهران تا اطلاع ثانوی به حالت تعلیق درآمده است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگو بین نتانیاهو و ترامپ به پایان رسید؛ در انتظار جزئیات هستیم.
+</div>
+
+## mwarmonitor — post 10324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨«رئیس ستاد ارتش اسرائیل می‌گوید ارتش به محض صدور دستور، با قاطعیت «دشمن» را هدف قرار خواهد داد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌یک مقام آمریکایی به آکسیوس گفت: «ما در این موضوع دخیل نیستیم.» با این حال هنوز مشخص نیست که آیا ترامپ ارسال حمایت نظامی آمریکا از یک حمله اسرائیل به ایران را مسدود خواهد کرد یا نه؛ از جمله سوخت‌رسانی هوایی و هماهنگی.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10322
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10322_1780867388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیانیۀ وزارت امور خارجه دربارۀ ضربات دفاعی ایران علیه اهداف اسرائیل
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع عبری: گفت‌و‌گوی تلفنی ترامپ و نتانیاهو آغاز شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92711
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92711_1780867389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفارت آمریکا در اورشلیم دستورالعمل‌هایی صادر کرده و از تمام کارکنان دولت آمریکا و اعضای خانواده‌هاشون در اسرائیل خواسته تا اطلاع ثانوی در خانه‌های خود بمانند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارتش اسرائیل: رئیس ستاد کل ارتش اسرائیل هم‌اکنون در حال برگزاری ارزیابی وضعیت با اعضای ستاد کل است.
+
+ارتش اسرائیل در زمان صدور دستور، دشمن رو با قدرت مورد حمله قرار خواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92709
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92709_1780867389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 15 اسرائیل: پس از پایان گفتگوی نتانیاهو و ترامپ، نخست‌وزیر جلسه گسترده‌ای درباره موضوع ایران برگزار خواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92708
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92708_1780867390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل:
+نتانیاهو باید حتی به قیمت رویارویی با ترامپ به بمباران ایران پاسخ بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92707
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92707_1780867390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پروازهای فرودگاه امام خمینی تا اطلاع ثانوی لغو شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76007
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76007_1780867391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایتامار بن گویر، وزیر امنیت ملی راست‌گرای تندرو اسرائیل، پس از حملات جدید موشکی ایران به شمال اسرائیل، خواستار واکنشی شدید شده است.
+
+او عصر یکشنبه در پیامی کوتاه به زبان عبری در شبکه اجتماعی ایکس نوشت: «امشب تهران باید بسوزد!»
+
+اظهارات ایتامار بن گویر در حالی مطرح شده که ایران ساعاتی پس از حمله اسرائیل به حومه جنوبی بیروت، موجی از موشک‌ها را به سوی اسرائیل شلیک کرد. ارتش اسرائیل اعلام کرده است که این موشک‌ها رهگیری شده‌اند و گزارشی از تلفات فوری منتشر نشده است.
+
+ایتامار بن گویر از چهره‌های تندرو کابینه بنیامین نتانیاهو به شمار می‌رود و در روزهای اخیر نیز از توافق آتش‌بس میان اسرائیل و لبنان انتقاد کرده بود.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-تهران ٫هدف است
+
+رئیس ستاد کل ارتش اسرائیل می‌گوید ارتش به محض صدور دستور، با قاطعیت به «دشمن» حمله خواهد کرد.
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## kianmeli1 — post 87755
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87755_1780867392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-سفارت ایالات متحده در اورشلیم به همه کارمندان دولت ایالات متحده و خانواده‌هایشان دستور داده است که در محل خود پناه بگیرند و آماده باشند تا در صورت اعلام وضعیت قرمز، تا اطلاع ثانوی، به پناهگاه‌های محافظت‌شده منتقل شوند.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری - پروازهای فرودگاه خمینی تا اطلاع ثانوی متوقف شد
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## Shin_Persian — post 6670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Lior.Finkelshtein.13/07/2024🔺🇮🇱✡︎📟 @Liorfink Sun, 07 Jun 2026 21:12:39 UTC @hey_itsmyturn Either bibi will loose elections immediately or Trump will cry hard a lot ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی @hey_itsmyturn…
+</div>
+
+## Shin_Persian — post 6669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Lior.Finkelshtein.13/07/2024🔺🇮🇱✡︎📟 @Liorfink
+Sun, 07 Jun 2026 21:12:39 UTC
+
+@hey_itsmyturn Either bibi will loose elections immediately or Trump will cry hard a lot
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+@hey_itsmyturn یا بیبی (بنیامین نتانیاهو) بلافاصله در انتخابات شکست خواهد خورد یا ترامپ به شدت گریه و زاری راه خواهد انداخت.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 21:14:14 UTC
+
+Iranian Civil Aviation Authority: IKA flights are canceled until further notice.
+
+فارسی
+
+سازمان هواپیمایی کشوری ایران: پروازهای فرودگاه بین‌المللی امام خمینی (IKA) تا اطلاع ثانوی لغو شد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219940
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پیام سرهنگ دوم کمال پنحاسی، سخنگوی بخش فارسی ارتش اسرائيل در پی حمله موشکی جمهوری اسلامی: آماده بودیم
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سخنگوی ارتش اسرائیل: ایران اشتباه بزرگی مرتکب شد
+
+سخنگوی ارتش اسرائیل در پی حمله موشکی بالستیک ایران به این کشور، در یک کنفرانس مطبوعاتی اعلام کرد، ایال زامیر، رئیس ستاد کل ارتش، در حال ارزیابی وضعیت و تصویب طرح‌هایی برای آینده است.
+
+افی دفرین گفت: «رژیم تروریستی ایران اشتباه بزرگی مرتکب شد.»
+
+او در ادامه افزود، "ارتش اسرائیل برای حملات موشکی احتمالی و بیشتر از سوی ایران آمادگی کامل دارد".
+@dw_farsi
+</div>
+
+## IranianMinds — post 21690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی ارتش اسرائیل:
+
+«رئیس ستاد هم‌اکنون در حال برگزاری نشست ارزیابی وضعیت با اعضای ستاد کل است.
+
+ارتش اسرائیل به محض صدور مجوز، با قدرت به دشمن ( جمهوری اسلامی ) حمله خواهد کرد.»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وای نت :
+
+آمریکا به اسرائیل گفته است بهتر است چند روز صبر کند تا مشخص شود آیا امکان رسیدن به یک توافق وجود دارد یا نه؛ و اگر نه، بر اساس طرح اقدام مشترک پیش خواهیم رفت.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283094
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283094_1780867392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ايتامار بن گوير، وزير امنيت ملی راست‌گرای تندرو اسرائيل، پس از حملات جديد موشکی ايران به شمال اسرائيل، خواستار واکنشی شديد شده است.
+
+او عصر یکشنبه در پيامی کوتاه به زبان عبری در شبکه اجتماعی ايکس نوشت: «امشب تهران بايد بسوزد!»
+
+اظهارات ایتامار بن گوير در حالی مطرح شده که ايران ساعاتی پس از حمله اسرائيل به حومه جنوبی بيروت، موجی از موشک‌ها را به سوی اسرائيل شليک کرد. ارتش اسرائيل اعلام کرده است که اين موشک‌ها رهگيری شده‌اند و گزارشی از تلفات فوری منتشر نشده است.
+
+اين موضع‌گيری با تلاش‌های دونالد ترامپ برای جلوگيری از تشديد درگيری‌ها در تضاد است. رئيس جمهور آمريکا پيش‌تر از اسرائيل خواسته بود از حملات تلافی جويانه بيشتر خودداری کند و تأکيد کرده بود که خواهان حفظ روند مذاکرات و آتش‌بس با ايران است.
+
+ایتامار بن گوير از چهره‌های تندرو کابينه بنيامين نتانياهو به شمار می‌رود و در روزهای اخير نيز از توافق آتش‌بس ميان اسرائيل و لبنان انتقاد کرده بود.
+
+📸 Getty
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## idfinfarsi — post 11811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل:
+
+رئیس ستاد کل ارتش اسرائیل هم‌اکنون در حال برگزاری ارزیابی وضعیت با اعضای ستاد کل است: «ارتش اسرائیل در زمان صدور دستور، دشمن را با قدرت مورد حمله قرار خواهد داد»
+</div>
+
+## Dirty_Kids — post 391283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی یه خواب آور قوی بریزه امشب تو چایی ترامپ بیدار نشه یه ٢ روز دوستان کارشونو بکنن
+
+نتانیاهو جان
+موبایلت را خاموش کن!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126042
+
+<div align="center">
+  <a href="telegram/content/alonews_126042_1780867393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وای نت: آمریکا به اسرائیل گفته بهتره چند روز صبر کنه ببینن آیا امکان توافق هست یا نه
+
+
+🔴اگه نه، طبق «طرح اقدام مشترک» جلو می‌رن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126041
+
+<div align="center">
+  <a href="telegram/content/alonews_126041_1780867393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری ایرنا:
+پروازهای فرودگاه امام خمینی تهران فعلاً تا اطلاع بعدی متوقف شده و هیچ پروازی انجام نمی‌شه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126040
+
+<div align="center">
+  <a href="telegram/content/alonews_126040_1780867393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد خوش چشم:
+اسرائیل و آمریکا جرات حمله رو ندارن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126039
+
+<div align="center">
+  <a href="telegram/content/alonews_126039_1780867394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جمهوری اسلامی و عرزشی های حرام زاده علنا نشان می‌دهند که ‎لبنان برایشان از جان مردم ‎ایران و کشور ایران مهم‌تر است. 
+🤔اینا با چه زبانی بگن که ایرانی نیستن؟ 
+✅@AloNews
+</div>
+
+## alonews — post 126038
+
+<div align="center">
+  <a href="telegram/content/alonews_126038_1780867394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۵ اسرائیل:
+پس از پایان گفتگوی نتانیاهو و ترامپ، نخست‌وزیر جلسه گسترده‌ای درباره موضوع ایران برگزار خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126037
+
+<div align="center">
+  <a href="telegram/content/alonews_126037_1780867394.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفارت ایالات متحده در اورشلیم به همه کارمندان دولت ایالات متحده و خانواده‌هایشان دستور داده است که در محل خود پناه بگیرند و آماده باشند تا در صورت اعلام وضعیت قرمز، تا اطلاع ثانوی، به پناهگاه‌های محافظت‌شده منتقل شوند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 00:43
 ---
 
