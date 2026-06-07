@@ -7,6 +7,192 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 21:03
+---
+
+## VahidOOnLine — post 244146
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244146_1780853583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد نیروهای این کشور عملیاتی را در ارتفاعات بوفور در جنوب لبنان آغاز کرده‌اند و در جریان آن یک شبکه گسترده از تونل‌های زیرزمینی متعلق به حزب‌الله را هدف قرار داده‌اند.
+بر اساس این گزارش، این تونل‌ها با طراحی و تامین مالی جمهوری اسلامی ساخته شده‌اند.
+
+سخنگوی ارتش اسرائیل گفت: «این تونل‌ها در عمق زمین و به‌صورت چندطبقه ساخته شده‌اند.»
+به گفته او، این مجموعه شامل مراکز فرماندهی، محل استقرار نیروها، انبارهای تسلیحات و همچنین زیرساخت‌های لجستیکی و درمانی بوده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13725
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران با صدور هشدار نوتام آسمان خود را بست🚨
+@withyashar
+</div>
+
+## WithYashar — post 13724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از ارزیابی وضعیت امنیتی، ارتش اسرائیل تصمیم گرفته فعلاً تغییری در سطح هشدار یا سایر دستورالعمل‌های دفاع غیرنظامی ایجاد نکند و همان مقررات وضعیت فوق‌العاد فعلی را تا ساعت ۸ شب فردا تمدید کند
+@withyashar
+</div>
+
+## pm_afshaa — post 92528
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در شهرداری گناباد چه میگذرد!؟ 2 تا کونی دارن با هم لواط میکنن مشاهده فیلم 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92527
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92527_1780853583.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور v2 متصل سرعت بالا vless://0cdda660-78fa-4313-922b-a9703fd6a800@wqlzpxrntcvbyjhdfskm.sd.noafra.ir:80?security=none&encryption=none&host=play.google.com&headerType=http&type=tcp#PMTV NEWS 🦁☀️ 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom…
+</div>
+
+## pm_afshaa — post 92526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور v2 متصل سرعت بالا
+
+vless://0cdda660-78fa-4313-922b-a9703fd6a800@wqlzpxrntcvbyjhdfskm.sd.noafra.ir:80?security=none&encryption=none&host=play.google.com&headerType=http&type=tcp#PMTV NEWS 🦁☀️
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87699
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87699_1780853584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دعوای لفظی ترامپ و کریستن ولکر، خبرنگار ان‌بی‌سی نیوز و ترک مصاحبه
+
+ترامپ:
+تو یا کلاهبردار هستی یا احمق... تو کلاهبردار هستی، و برنامه «ملاقات با مطبوعات» کلاهبردار است، و همچنین ای‌بی‌سی، سی‌بی‌اس و سی‌ان‌ان.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87698
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87698_1780853585.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل (IDF)ویدیویی از حمله به مرکز فرماندهی حزب‌الله در منطقه ضاحیه بیروت که امروز صبح انجام شد، منتشر کرد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87697
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87697_1780853586.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهدید پرزیدنت مسعود پزشکیان علیه صدا و سیما
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341027
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341027_1780853587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد نیروهای این کشور عملیاتی را در ارتفاعات بوفور در جنوب لبنان آغاز کرده‌اند و در جریان آن یک شبکه گسترده از تونل‌های زیرزمینی متعلق به حزب‌الله را هدف قرار داده‌اند.
+بر اساس این گزارش، این تونل‌ها با طراحی و تامین مالی جمهوری اسلامی ساخته شده‌اند.
+
+سخنگوی ارتش اسرائیل گفت: «این تونل‌ها در عمق زمین و به‌صورت چندطبقه ساخته شده‌اند.»
+به گفته او، این مجموعه شامل مراکز فرماندهی، محل استقرار نیروها، انبارهای تسلیحات و همچنین زیرساخت‌های لجستیکی و درمانی بوده است.
+
+https://iranintl.com/202606079034
+</div>
+
+## IranIntlTV — post 341026
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341026_1780853587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کتاب «انقلاب دزدیده‌شده؛ خیانت و امید در ایران مدرن» که به‌تازگی در واشینگتن رونمایی شد روایت مسیر جمهوری اسلامی از انقلاب ۵۷ تا امروز است.
+
+یگانه تربتی و بزرگمهر شرف‌الدین، نویسندگان کتاب، با تکیه بر سال‌ها تحقیق و گفت‌وگو، تصویری از تحولات جامعه ایران ارائه کرده‌اند.
+
+گفت‌وگو با بزرگمهر شرف‌الدین، رییس بخش دیجیتال ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Hranews — post 113452
+
+<div align="center">
+  <img src="telegram/content/Hranews_113452_1780853589.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امنیت ملی با اعدام و سرکوب؟/ مجید شیعه‌علی
+
+
+📡
+📡
+📡
+📡
+📡– از آغاز جنگ تاکنون نقض حقوق بشر توسط حاکمیت در ایران افزایش چشم‌گیری یافته است. در روزهای پس از آتش‌بس روزی نیست که خبر اجرای احکام اعدامی را نشنویم که در یک فرآیند قضایی پر اشکال و با جهت‌گیری‌های مشخص سیاسی صادر شده باشد. روند بازداشت کنش‌گران مدنی و سیاسی حتی در میانه‌ی بمباران‌ها قطع نشد. در حالی که برگزاری کلاس دانشگاه‌ها به حالت عادی بازنگشته است اما کمیته‌ی انضباطی برخی از دانشگاه‌ها به سرعت فعال شده و وقایع چند ماه پیش را بهانه‌ای برای صدور احکام محکومیت قرار داده‌اند. قطع اینترنت در روزگار ما، سلب دسترسی به آزادی‌هایی است که هر شهروند حق استفاده از آن‌ها را دارد. ادامه یافتن این قطعی پس از آتش‌بس علاوه بر خسارات جبران‌ناپذیر، یک محرومیت از حقوق شهروندی است که با یک تبعیض ساختاری تقویت گردیده است. حضور مستمر و تبعیض‌آمیز تنها یک نگاه سیاسی در خیابان خود تبعیضی است که هدف آن به طور آشکار سلب عملی حق اظهارنظر خیابانی سایر نگاه‌های سیاسی است. همه‌ی این پایمال کردن‌های دوچندان حقوق شهروندی ایرانیان، تلاش می‌شود با ادعای تامین امنیت ملی توجیه شود. اما سوال این‌جا است که امنیت ملی چیست؟ چطور جنایت، تبعیض و سرکوب قرار است تامینش کند؟
+
+مطالعات امنیت و مفهوم امنیت ملی به عنوان یک دانشِ جوان پس از جنگ جهانی دوم و در بحبوحه‌ی جنگ سرد مورد توجه پژوهش‌گران، متفکران سیاسی و دانشگاهیان قرار گرفت. این رشته در آغاز کار از دل روابط بین‌الملل بیرون آمد و آرام آرام به عنوان یک رشته‌ی مستقل مطرح گردید. پاسخ‌های ابتدایی به سوالات بنیادین امنیت بسیار روشن بود. هر نگاهی به امنیت در مقابل این سوال قرار می‌گیرد: امنیت چه مرجعی را باید تامین کرد و این مرجع امنیتش چطور و توسط چه عاملی تهدید می‌شود؟ در مکاتب سنتی، مرجعی که باید تامین امنیتش در دستور کار قرار می‌گرفت، دولت شناخته می‌شد و قرار بود امنیتش در برابر سایر دولت‌ها که از طریق چالش‌های نظامی تهدید می‌شد تامین گردد. این دولت‌محوری و نظامی‌گرایی در تعریف امنیت از مشخصه‌های دیدگاه‌های ابتدایی بود. دیدگاه‌هایی مانند رئالیسم و لیبرالیسم که هرچند در دوران جنگ سرد صورت‌بندی شدند اما ریشه‌های فکری هر کدام به گذشته باز می‌گشت.
+
+ادامه مطلب
+
+ادامه مطلب در وبسایت خط صلح
+
+#مجید_شیعه‌علی #حقوق_بشر
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125860
+
+<div align="center">
+  <a href="telegram/content/alonews_125860_1780853589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ آمریکا: ما به آن(حمله اسرائیل به جنوب لبنان) رسیدگی می‌کنیم، همانطور که انتظار می‌رود و ایران نباید شلیک کند
+
+
+🔴اما در نهایت، ما فکر می‌کنیم یک توافق—یک توافق عالی—احتمالاً به زودی اتفاق خواهد افتاد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125859
+
+<div align="center">
+  <a href="telegram/content/alonews_125859_1780853589.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈همه‌ی شرکت‌های کانادا پرواز‌ها به کوبا رو برای همیشه، لغو کردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 20:53
 ---
 
