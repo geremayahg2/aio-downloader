@@ -7,6 +7,199 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 12:32
+---
+
+## WithYashar — post 13668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلگراف : آمریکا در حال پرواز هلیکوپترها از سواحل عمان برای هدایت نفتکش ها به خارج از خلیج فارس از طریق تنگه هرمز است
+شناورها سواحل عمان را در آغوش می گیرند و تا حد امکان از سواحل ایران و آب های بالقوه مین گذاری شده با اتکا به راهنمایی نیروهای آمریکا دور می مانند
+@withyashar
+</div>
+
+## WithYashar — post 13667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر کشور پاکستان(سناتور سید محسن رضا نقوی)امروز به تهران می‌آید تا تلاش کند در مسئله دارایی‌های ایرانی مسدود شده، پیشرفتی حاصل شود @withyashar
+</div>
+
+## mwarmonitor — post 10241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقامات اوکراینی اعلام کردند یک پهپاد روسی به یک تأسیسات ذخیره‌سازی سوخت هسته‌ای مصرف‌شده در نزدیکی نیروگاه چرنوبیل اوکراین اصابت کرده است. به گفته این مقامات، سطح تشعشعات در محل همچنان پایدار باقی مانده است — رویترز
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴2 تا از تروریست ها خنثی شدن 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمله تروریستی در اسراییل 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمله تروریستی در اسراییل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340948
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340948_1780822956.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ تلویزیون اسرائیل به نقل از یک مقام ارشد پیشین موساد گزارش داد که طرح چند مرحله‌ای اسرائیل و موساد برای سرنگونی جمهوری اسلامی، به دلیل تصمیم آمریکا برای توقف جنگ در ماه آوریل، ناتمام مانده و به مرحله نهایی نرسیده است.
+
+اشکان صفایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340947
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340947_1780822958.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به‌ ایران‌اینترنشنال، بازداشت خشن یک شهروند را به دست ماموران مسلح در یکی از خیابان‌های فردیس استان البرز در روز ۱۴ خرداد نشان می‌دهد. به گفته این شهروند، مرد جوان در برابر تجسس بازرسی بدنی و چک کردن محتوای گوشی همراهش مقاومت کرده بود.
+</div>
+
+## Persian_Trend_Official — post 15842
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15842_1780822960.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇵🇰
+🇮🇷 نامه ویژه مقامات ارشد پاکستان به عراقچی تحویل داده شد.
+
+وزیر کشور پاکستان که به تهران سفر کرده است، صبح امروز با سید عباس عراقچی دیدار و گفت‌وگو کرد. بر اساس گزارش‌ها، نامه ویژه مقامات ارشد پاکستان که قرار بود به رهبر انقلاب منتقل شود، در این دیدار به وزیر امور خارجه ایران تحویل داده شد.
+این سفر در ادامه تلاش‌های اسلام‌آباد برای کمک به کاهش تنش‌ها و پیشبرد گفت‌وگوها میان ایران و آمریکا انجام شده است.
+
+
+
+
+پاکستان در حال ایفای نقش فعال‌تری در تحولات اخیر منطقه است. تحویل یک «پیام ویژه» در شرایطی که مذاکرات تهران و واشنگتن با ابهام مواجه شده، می‌تواند نشانه تلاش برای باز نگه داشتن کانال‌های دیپلماتیک و جلوگیری از تشدید تنش‌ها باشد.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21541
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21541_1780822961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت اسرائیل به فارسی:
+
+علت و معلول
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزیر کشور پاکستان با عراقچی دیدار کرد
+
+محسن نقوی با عباس عراقچی، وزیر خارجه ایران، در تهران دیدار کرد.
+
+وزیر کشور پاکستان شنبه شب با اسکندر مومنی، همتای ایرانی خود، دیدار کرده بود.
+
+به گزارش رسانه‌های ایران، پس از این دیدار، آقای نقوی گفت به تهران آمده است تا «نامه‌ ویژه» و پیام «مهم» فرمانده کل قوا و نخست‌وزیر پاکستان به مجتبی خامنه‌ای را تحویل دهد.
+
+https://bbc.in/4xeGwvq
+@BBCPersian
+</div>
+
+## BBCPersian — post 283055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻عضو کمیسیون امنیت ملی مجلس: با آمریکا آتش‌بس نداریم
+
+وحید احمدی، عضو کمیسیون امنیت ملی مجلس، گفت که «احتمال شروع جنگی جدید وجود دارد.»
+
+او به وبسایت خبری فرارو گفت: «این یک حقیقت است که ما با آمریکا آتش‌بس نداریم. در واقع ما مشغول توقف در درگیری‌ها هستیم. آمریکایی‌ها موفق نشده‌اند به هدفی که برای جنگ در میدان ترسیم کرده بودند برسند و حالا رو به محاصره دریایی آورده‌اند تا شاید بتوانند به لحاظ اقتصادی به ما فشار وارد کنند که اتفاقا در این بخش هم موفقیتی کسب نکرده‌اند.»
+
+آقای احمدی همچنین گفت: «احتمال شروع جنگی جدید وجود دارد و ایران امکانات جدیدی را در راه دارد.»
+
+او از کشورهای حاشیه خلیج فارس انتقاد کرد که سا‌ل‌هاست «هر چه داشتند در اختیار آمریکا گذاشتند و گدایی امنیت را از آمریکا می‌کنند. اما جنگ اخیر نشان داد امنیت این‌گونه به دست نمی‌آید.»
+
+https://bbc.in/4xeGwvq
+@BBCPersian
+</div>
+
+## alonews — post 125710
+
+<div align="center">
+  <a href="telegram/content/alonews_125710_1780822961.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وب سایت خبری «والا» ارتش اسرائیل عملیات زمینی را در حاشیه شهر النبطیه در جنوب لبنان آغاز کرده است.
+
+
+🔴النبطیه یکی از شهرهای مهم جنوب لبنان است که در گزارش‌ها گفته شده نیروهای ارتش اسرائیل در اطراف آن در حال انجام عملیات زمینی هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125709
+
+<div align="center">
+  <a href="telegram/content/alonews_125709_1780822961.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نامه‌ای که وزیر کشور پاکستان آورده بود برای مجتبی خامنه‌ای، تحویل عراقچی داده شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125708
+
+<div align="center">
+  <a href="telegram/content/alonews_125708_1780822962.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / خبرنگار الحدث: تیراندازی در ۴ نقطه اسرائیل رخ داده
+
+
+🔴تعداد زخمی ها به ۶ نفر افزایش یافته و یک نفر کشته شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 12:22
 ---
 
