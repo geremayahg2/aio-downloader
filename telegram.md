@@ -7,6 +7,563 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 00:23
+---
+
+## VahidOOnLine — post 244185
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244185_1780865583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ در گفتگوی اختصاصی با «آکسیوس» اعلام کرد که به زودی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تماس خواهد گرفت تا او را برای عدم پاسخ نظامی به حملات موشکی ایران تحت فشار بگذارد. رئیس جمهوری آمریکا، با ناچیز شمردن ابعاد حملات موشکی تهران صراحتا گفت: «من همین الان با بی‌بی تماس می‌گیرم و به او می‌گویم که تلافی نکند. هر کدام از آن‌ها بازی خودشان را کردند؛ اسرائیل حمله خودش را داشت و ایران هم حمله خودش را انجام داد، ما دیگر نیازی به یک حمله دیگر نداریم. حملات موشکی ایران به کسی آسیبی نرسانده است و امیدوارم اسرائیل دست به اقدام متقابل نزند.» این موضع‌گیری تند در شرایطی اتخاذ می‌شود که در پی حمله اسرائیل به حومه جنوبی بیروت و پاسخ موشکی و چندمرحله‌ای ایران پس از هفته‌ها پایبندی به آتش‌بس، ثبات خاورمیانه به شدت متزلزل شده است.
+به گزارش آکسیوس، دونالد ترامپ اکنون تلاش می‌کند تا مانع از آن شود که تشدید تنش‌ها، امیدهای او را برای دستیابی به یک توافق پایدار و نهایی با ایران نابود کند. ترامپ با هشدار نسبت به عواقب تداوم این چرخه نظامی تأکید کرد: «ما به یک توافق نهایی با ایران بسیار نزدیک هستیم؛ این یک توافق خوب خواهد بود و من نمی‌خواهم به خاطر اتفاقاتی که اکنون در حال رخ دادن است، این فرصت از بین برود. اگر بی‌بی دوباره به آن‌ها حمله کند، این روند دقیقا مانند ۴۷ سال گذشته، یا ۳ هزار سال گذشته، همین‌طور ادامه خواهد یافت.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13801
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13801_1780865583.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : ردبول 🪽😈
+@withyashar
+</div>
+
+## WithYashar — post 13800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عبری:ترامپ و نتانیاهو در حال حاضر در حال گفتگو هستن
+@withyashar
+</div>
+
+## WithYashar — post 13799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریم اتاق جنگ
+</div>
+
+## WithYashar — post 13798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل:با وجود مخالفت ترامپ، فشارهای داخلی بر نتانیاهو برای واکنش افزایش یافته و شماری از سیاستمداران اسرائیلی خواستار پاسخ شدید به حملات جمهوری اسلامی شدند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در تبریز
+</div>
+
+## mwarmonitor — post 10312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی ارتش اسرائیل، سرتیپ «دفرین» می‌گوید اسرائیل به حملات خود علیه حزب‌الله در لبنان ادامه خواهد داد و این را دلیل شلیک موشک‌های ایران می‌داند.
+
+📌او می‌گوید ایران تلاش داشت با حمله به اسرائیل در واکنش به اقدامات این کشور در لبنان، «معادله جدیدی را تحمیل کند»؛ و افزود: «ما اجازه چنین چیزی را نخواهیم داد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به شبکه ۱۲ گفت: «ما خیلی به امضای یک توافق نهایی با ایران نزدیک بودیم.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ می‌گوید: «امیدوارم اسرائیل در پاسخ حمله نکند. اگر نتانیاهو دستور حمله بدهد، این موضوع با یک ضدحمله ادامه خواهد یافت. ما با ایران به توافقی نزدیک هستیم که به جنگ پایان دهد و نمی‌خواهیم این توافق خراب شود. هر طرف امشب کار خودش را انجام داد. من همین حالا…
+</div>
+
+## pm_afshaa — post 92698
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92698_1780865585.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقام اسرائیلی: ما به تنهایی به ایران حمله خواهیم کرد فقط منتظر تایید نتانیاهو هستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو کانال زاپاسمون حتما جوین شین همین الان
+
+👇
+👇
+
+https://t.me/pmtvzapas
+https://t.me/pmtvzapas
+</div>
+
+## pm_afshaa — post 92695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع عبری:ترامپ و نتانیاهو در حال حاضر در حال گفتگو هستن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر سی ثانیه یه چیزی از مهراباد بلند میشه
+</div>
+
+## pm_afshaa — post 92693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در تبریز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطعا اسراییل میزنه که اینا دارن تخلیه میکنن
+</div>
+
+## pm_afshaa — post 92690
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92690_1780865585.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همینجوری از مهر اباد داره هواپیما بلند میشه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92689
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92689_1780865587.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل:
+امشب فقط موشک‌ها و جت‌ها نیستن که بین آسمان و زمین در نوسان هستن، بلکه سرنوشت سیاسی نتانیاهو هم همین گونه است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرودگاه مهر آباد در حال تخلیه شدنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5443
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5443_1780865587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚨 سرتیپ افی دفرین، سخنگوی ارتش اسرائیل، ساعتی پس از حملات موشکی سپاه پاسداران به این کشور در بیانیه‌ای اعلام کرد: "رژیم تروریستی ایران با انتخاب دوباره تروریسم، مرتکب اشتباهی بزرگ شد."
+
+#حملات_موشکی #اسرائیل #زیرنویس
+@DEJradio
+</div>
+
+## VahidOnline — post 76005
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76005_1780865589.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سخنگوی ارتش اسرائیل، افی دفرین، می‌گوید پس از حمله موشکی بالستیک جمهوری اسلامی ایران به اسرائیل، ایال زمیر، رئیس ستاد ارتش اسرائیل، در حال انجام ارزیابی و تصویب برنامه‌های آینده است. سخنگوی ارتش اسرائیل گفت: «رژیم تروریستی ایران اشتباه بزرگی مرتکب شد.»
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+ما تهرانسریم
+تو این 1ساعت اخیر که اینا اسرائیل رو زدن
+نزدیک به 8تا هواپیما مسافربری از مهرآباد بلند شد
+نهمی هم الان رفت
+انگار دارن فرودگاه رو خالی میکنن
+
+سلام از تهران داره همینجور هواپیما بلند میشه همشونم تو ارتفاع کم پرواز میکنن
+
+همین الان از بالا سر مهرآباد یه هواپیما با چراغ روشن از غرب به شرق رفت
+مسیر خیلی غیرعادی با ارتفاع خیلی کم ۰۰:۰۸
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87748
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87748_1780865589.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الان فرودگاه مهراباد رو دارن خالی میکنن
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## kianmeli1 — post 87747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+فرودگاه تهران رو دارن خالی میکنن
+پشت سر هم هواپیما بلند میشه
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## Shin_Persian — post 6662
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6662_1780865590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 20:50:21 UTC
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 20:47:34 UTC
+
+Too many birds taking off from Mehrabad airport, a bunch of them are civilians, and a number are IRIAF jets.
+
+فارسی
+
+تعداد زیادی پرنده در حال برخاستن از فرودگاه مهرآباد هستند، تعدادی از آن‌ها غیرنظامی و تعدادی دیگر جت‌های نیروی هوایی ارتش جمهوری اسلامی ایران (نهاجا) هستند.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219936
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219936_1780865591.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری کان اسرائيل گزارش داد که دونالد ترامپ، رئیس جمهوری آمریکا، عصریکشنبه به وقت واشنگتن، با این خبرگزاری مصاحبه کرد و درباره حمله جمهوری اسلامی به خاک اسرائیل گفت: «به نظر من اسرائیل به اندازه کافی پاسخ داده است، دیگر نیازی به پاسخ ندارند. ما می‌توانیم پس از ۳۰۰۰ سال به صلح دست یابیم.»
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125663
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125663_1780865591.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ پس از حملات موشکی ایران به اسرائيل: کافی است، به میز مذاکره برگردید و توافق کنید
+
+در پی حملات موشکی ایران به شمال اسرائیل که در پاسخ به حملات ارتش اسرائیل علیه حزب‌الله در بیروت انجام شد، دونالد ترامپ، رئیس‌جمهور ایالات متحده، از تهران خواست، به میز مذاکره بازگردد و با واشنگتن به توافق برسد.
+
+ترامپ در مصاحبه تلفنی با فاکس نیوز گفت: «پیشنهاد من به ایران این است: شما موشک‌هایتان را شلیک کرده‌اید، دیگر کافی است. به میز مذاکره برگردید و توافق کنید.»
+
+ترامپ همچنین تاکید کرد، حملات موشکی ایران به شمال اسرائیل به مذاکرات با تهران، که به گفته او چند روز تا رسیدن به توافق فاصله داشت، کمکی نخواهد کرد.
+
+او از حملات قبلی اسرائیل علیه اهداف حزب‌الله در بیروت که باعث حملات ایران شد، ابراز ناامیدی کرد و گفت: «ما خیلی به توافق نزدیک هستیم. به نظرم توافق دوشنبه، سه‌شنبه یا چهارشنبه هفته آینده امضا خواهد شد و حالا این اتفاق دارد می‌افتد.»
+
+رئیس‌جمهور آمریکا همچنین اعلام کرد، به زودی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تماس خواهد گرفت تا از او بخواهد، به حملات موشکی ایران به شمال اسرائیل پاسخ ندهد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15995
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15995_1780865592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هم اکنون تماس تلفنی نخست وزیر بنیامین نتانیاهو و رئیس جمهور دونالد ترامپ آغاز شده است‌.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15994
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15994_1780865592.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ با وجود تشدید تنش‌ها: کمیته قانون اساسی اعلام کرد که فردا طبق معمول در مورد قانون تشکیل کمیته تحقیقات سیاسی در مورد قتل عام ۷ اکتبر رأی‌گیری خواهد کرد - در حالی که بقیه بحث‌ها لغو خواهد شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15993
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15993_1780865593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی تو یه گروه تلگرامی: "اسرائیل گنبد آهنین داره، ملاها گنبد دونالد"
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158018
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه ایران با مقام‌های بریتانیا، ترکیه و پاکستان گفت‌وگو کرد
+
+🔸وزیر خارجه ایران می‌گوید پس از «پاسخ ایران به نقض مکرر آتش‌بس در لبنان» از سوی اسرائیل، با مقام‌هایی از بریتانیا، ترکیه و پاکستان گفت‌وگو کرده است.
+
+🔸عباس عراقچی در تلگرام نوشت که با ایوت کوپر، وزیر خارجه بریتانیا، و هاکان فیدان، وزیر خارجه ترکیه، گفت‌وگو کرده است.
+
+🔸او همچنین گفت با عاصم منیر، فرمانده ارتش پاکستان، گفت‌وگو کرده است؛ فردی که در تلاش‌های میانجی‌گرانه میان آمریکا و ایران نقشی کلیدی داشته است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158017
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158017" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۸ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ داره تلفنی با نتانیاهو صحبت میکنه الان @IranianMinds
+</div>
+
+## IranianMinds — post 21677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ داره تلفنی با نتانیاهو صحبت میکنه الان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21676
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21676_1780865593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بقایای موشک ایرانی در دشت‌های شمالی شهر تفس در جنوب سوریه سقوط کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21675
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21675_1780865595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آسمان ایران , عراق , سوریه , کویت , اردن , اسرائیل کاملا کلیره و فقط یه هوایپیمای نیرو هوایی انگلیس داره میاد سمت خاورمیانه.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان پیت هگست در واکنش به حمله ایران به اسرائیل بلند میشه ۲۰ تا دراز نشست میره
+</div>
+
+## Dirty_Kids — post 391278
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب نتانیاهو میره مجتبی رو بکشه پتو رو می‌زنه کنار می‌بینه ترامپ جاش خوابیده
+</div>
+
+## alonews — post 126020
+
+<div align="center">
+  <a href="telegram/content/alonews_126020_1780865596.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پروازها به عراق به دلیل بسته شدن حریم هوایی لغو شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126019
+
+<div align="center">
+  <a href="telegram/content/alonews_126019_1780865596.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک تایمز، به نقل از وزارت امور خارجه ایالات متحده: ۲۲ ژوئن به عنوان تاریخ دور جدید مذاکرات بین اسرائیل و لبنان تعیین شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126018
+
+<div align="center">
+  <a href="telegram/content/alonews_126018_1780865596.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع عبری:ترامپ و نتانیاهو در حال حاضر در حال گفتگو هستن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126017
+
+<div align="center">
+  <a href="telegram/content/alonews_126017_1780865596.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال 12 اسرائیل:
+مخالفان نتانیاهو در عرصه سیاسی اسرائیل از این وضعیت سوءاستفاده خواهند کرد و از سوی دیگر، نخست وزیر نمی‌تواند تنها چند ماه پیش از انتخابات به چنین وضعیتی(ترامپ مانع حمله شود) تن دهد، زیرا این امر می‌تواند برای او یک فاجعه سیاسی تلقی شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126016
+
+<div align="center">
+  <a href="telegram/content/alonews_126016_1780865596.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم‌اکنون ، وضعیت آسمان منطقه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126014
+
+<div align="center">
+  <a href="telegram/content/alonews_126014_1780865596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا هواپیماها از فرودگاه مهرآباد درحال تخلیه شدن هستن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126013
+
+<div align="center">
+  <a href="telegram/content/alonews_126013_1780865598.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴ اسرائیل: امشب فقط موشک‌ها و جت‌ها نیستند که بین آسمان و زمین در نوسان هستند، بلکه سرنوشت سیاسی نتانیاهو نیز همین گونه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126012
+
+<div align="center">
+  <a href="telegram/content/alonews_126012_1780865598.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جمهوری اسلامی و عرزشی های حرام زاده علنا نشان می‌دهند که ‎لبنان برایشان از جان مردم ‎ایران و کشور ایران مهم‌تر است.
+
+
+🤔اینا با چه زبانی بگن که ایرانی نیستن؟
+
+
+✅@AloNews
+</div>
+
+## alonews — post 126011
+
+<div align="center">
+  <a href="telegram/content/alonews_126011_1780865599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 بقایای موشک ایرانی در دشت‌های شمالی شهر تفس در جنوب سوریه سقوط کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126009
+
+<div align="center">
+  <a href="telegram/content/alonews_126009_1780865600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نت تو پاکستان قطع شد جنگ شروع شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 00:12
 ---
 
