@@ -7,6 +7,270 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 18:43
+---
+
+## VahidOOnLine — post 244125
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244125_1780845201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم رضایی سخنگوی کمیسیون امنیت ملی مجلس شورای اسلامی روز یکشنبه ۱۶ خردادماه و ساعتی پس از بمباران ضاحیه در جنوب بیروت، اسرائیل را به حمله متقابل تهدید کرد.
+
+رضایی با انتشار پیامی در اکس نوشت: «به حمله رژیم صهیونسیتی به ضاحیه پاسخ قاطع و دردآور خواهیم داد. این سگ هار را باید تادیب کرد و سر جایش نشاند. امشب آسمان سرزمین‌های اشغالی را ببینید.»
+
+همزمان، یک کارشناس صداوسیما در برنامه زنده شبکه خبر ادعا کرد که قرارگاه خاتم‌الانبیا (مرکز فرماندهی و هماهنگ جنگ جمهوری اسلامی ایران با آمریکا و اسرائیل) حمله اسرائیل به ضاحیه را بی‌پاسخ نخواهد گذاشت و برای عملیات «وعده صادق ۵» آماده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل عصر یکشنبه ۱۶ خرداد اعلام کرد با دستور مشترک بنیامین نتانیاهو، نخست وزیر و اسرائیل کاتس، وزیر دفاع این کشور، یک اتاق فرماندهی حزب‌الله در منطقه ضاحیه بیروت را هدف قرار داده است.
+
+براساس گزارش رسانه‌های محلی دست‌کم ۱۰ نفر در پی این حمله کشته و چندین نفر دیگر زخمی شدند.
+
+جمهوری اسلامی ایران هفته گذشته اعلام کرده بود در صورت حمله اسرائیل به حومه بیروت، به این حمله پاسخ قاطع خواهد داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244123
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244123_1780845202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد ایرانیان مقیم آلمان یکشنبه ۱۷ خرداد علیه جمهوری اسلامی و در اعتراض به احکام اعدام در ایران، در شهر کلن تجمع کرده و نام جاویدنامان انقلاب ملی ایران را فریاد زدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل : اسراییل در اماده باش کامل قرار گرفته
+مردم در نزدیکی پناهگاه ها بمونن
+@withyashar
+</div>
+
+## WithYashar — post 13708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرندی عضو تیم مذاکره‌کننده:
+صهیونیست‌ها مجازات خواهند شد.
+@withyashar 🤣
+</div>
+
+## pm_afshaa — post 92496
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92496_1780845205.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دارن نتا رو ضعیف میکنن توی چنل اسپانسرمون جوین بدید که قطع نشید
+👇
+👇 @Lex_Server @Lex_Server
+</div>
+
+## pm_afshaa — post 92495
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92495_1780845206.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.102&port=8443&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d سرور پر سرعت متصل 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.102&port=8443&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+سرور پر سرعت متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92493
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92493_1780845207.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مرندی عضو تیم مذاکره‌کننده:
+صهیونیست‌ها مجازات خواهند شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341005
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341005_1780845207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه دنیای اقتصاد در گزارشی هشدار داد که ایران به دلیل حکمرانی جمهوری اسلامی، پیش از دستیابی به توسعه و ثروت، در حال ورود به مرحله سالمندی و از دست دادن بزرگ‌ترین ذخیره نیروی کار خود است. در این گزارش آمده است مشکلات ساختاری از جمله تورم مزمن، بیکاری و مهاجرت گسترده نخبگان، مانع بهره‌برداری از سرمایه انسانی کشور شده است.
+
+ارزیابی آسیه امینی، تحلیل‌گر مسائل اجتماعی
+@iranintltv
+</div>
+
+## IranIntlTV — post 341004
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341004_1780845210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه کارزار همبستگی با اعتراض‌های مردمی در ایران و در اعتراض به فضای سرکوب، افزایش اعدام و بازداشت معترضان، ایرانیان ساکن تورنتو و لندن با برگزاری تجمع، خواهان حمایت کشورهای غربی از مطالبات مردم ایران شدند.
+
+گزارش مهسا مرتضوی و تاج‌الدین سروش، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341003
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341003_1780845213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد ایرانیان مقیم آلمان یکشنبه ۱۷ خرداد علیه جمهوری اسلامی و در اعتراض به احکام اعدام در ایران، در شهر کلن تجمع کرده و نام جاویدنامان انقلاب ملی ایران را فریاد زدند.
+</div>
+
+## Shin_Persian — post 6598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DPR @D_3141592_R
+Sun, 07 Jun 2026 13:16:31 UTC
+
+محل حمله امروز نیروی هوایی اسرائیل به ساختمانی در ضاحیه بیروت
+
+Location: 33.832153, 35.511196
+https://maps.app.goo.gl/rTze72Y21kL4mRmb9
+
+English
+
+The location of today's Israeli Air Force strike on a building in the Dahiyeh suburb of Beirut.
+
+Location: 33.832153, 35.511196
+https://maps.app.goo.gl/rTze72Y21kL4mRmb9
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 15:02:40 UTC
+
+Targeted assassination,
+Target was a vehicle in western Gaza, 4 dead.
+
+فارسی
+
+ترور هدفمند،
+هدف یک خودرو در غرب غزه بود، ۴ کشته.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15891
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15891_1780845216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرندی عضو تیم مذاکره کننده: متجاوزان مجازات خواهند شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283076
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283076_1780845217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ می‌گوید که در صورت حصول توافق با ایران، آمریکا به خارج‌ و نابود ذخایر اورانیوم غنی‌شده کمک خواهد کرد در غیر این صورت با نیروی نظامی این کار را انجام خواهد داد.
+
+رئیس‌جمهور آمریکا در مصاحبه‌ای با شبکه ان‌بی‌سی آمریکا که تازه منتشر شده است، گفت: «ما این کار را با یا بدون آنها انجام خواهیم داد. اما نمی‌گذاریم به ما تیراندازی کنند... اول آنها را با اقدام نظامی بسیار شدید از میان برمی‌داریم.»
+
+آقای ترامپ همچنین گفت که آمریکا اقدامت ایران را با از فضا زیر نظر دارد:
+
+«می‌دانید سراسر آنجا زیر نظر دوربین‌های ماست. راه بروید اسمی را که روی یقه شما نوشته شده می‌توانیم بخوانیم.»
+
+آقای ترامپ در عین حال گفت که ایران و آمریکا به امضای توافق «بسیار نزدیک» هستند:
+
+«یک چند نکته مد نظر داریم که شاید خیلی مهم هم به نظر نرسند...آنها پذیرفته‌اند که سلاح هسته‌ای نخواهند داشت. یک بند (در متن پیشنهادی) داشتیم که سلاح هسته‌ای نخواهند داشت. همه راضی و خوشحال بودند جز من.»
+
+رئیس‌جمهور آمریکا گفت راضی نبوده چون تضمین‌های بیشتری می‌خواهد که مطمئن شود ایران توافق را دور نمی‌زند.
+
+📷Getty Images
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391224
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391224_1780845218.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری: آیا در قالب هر توافقی، دارایی‌های مسدودشده ایران را از ابتدا آزاد می‌کنید یا تحریم‌ها را برمی‌دارید؟
+ترامپ: نه. این‌ها بعداً انجام می‌شود. اگر آن‌ها رفتارشان را درست کنند، شروع به مذاکره می‌کنیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125825
+
+<div align="center">
+  <a href="telegram/content/alonews_125825_1780845220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس به نقل از مقامات اسرائیلی: حمله هوایی به حومه جنوبی بیروت پاسخی به حمله موشکی اخیر حزب الله بود‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125824
+
+<div align="center">
+  <a href="telegram/content/alonews_125824_1780845220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مرندی عضو تیم مذاکره‌کننده:
+صهیونیست‌ها مجازات خواهند شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 18:33
 ---
 
