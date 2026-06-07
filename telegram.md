@@ -7,6 +7,360 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 16:43
+---
+
+## VahidOOnLine — post 244107
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244107_1780837991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خامنه‌ای صبح ۹ اسفند ۱۴۰۴ و در لحظات آغاز جنگ، با حمله به دفترش در قلب تهران، به همراه چندین نفر از فرماندهان ارشد نظامی، برخی مقام‌های سیاسی و اعضای دفترش کشته شد.
+
+در سال‌های اخیر و پس از گسترش حملات اسرائیل به مقام‌های حکومت ایران و فرماندهان و رهبران نیروهای نیابتی جمهوری اسلامی در منطقه، علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، نمازهای میت زیادی خوانده بود.
+
+در واقع یکی از بیشترین فعالیت‌های او همین اقامه نماز میت بر جنازه کشته‌شدگان بود، در حدی که برخی کاربران شبکه‌های اجتماعی به خامنه‌ای لقب «بلاگر نماز میت» دادند. حالا اما جنازه خود او ۱۰۰ روز شده که بر زمین مانده است.
+
+حکومت جمهوری اسلامی ۱۰۰ روز پس از واقعه، نه موفق شده تصویری از رهبر جدیدش نشان دهد و نه جنازه رهبر پیشین را دفن کند.
+
+متن کامل را در سایت ایران‌اینترنشنال را بخوانید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار (t.me/withyashar) – (IG @yashar)‎⁨منتظریم کی شب حمله فرا می‌رسد⁩
+</div>
+
+## WithYashar — post 13688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به ان‌بی‌سی نیوز می‌گوید که اصراری ندارد لبنان در توافق کوتاه‌مدت ایران گنجانده شود
+@withyashar
+</div>
+
+## WithYashar — post 13687
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری I24news: دولت ترامپ راجب حمله مطلع شده بود!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342690
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342690_1780837992.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“I thought it was an Amazon package.”
+
+A Texas homeowner got quite the surprise when he bumped into an alligator sitting on his front porch while heading out for a morning walk.
+
+Police shared video of the reptile lounging outside the home before officers stepped in and safely removed it.
+
+The gator was later released into a nearby pond as residents were reminded to leave wildlife encounters to the professionals.
+</div>
+
+## pm_afshaa — post 92469
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92469_1780837995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری: اسرائیل به بیروت حمله کرد. ارتش اسرائیل: طبق دستور نتانیاهو، در پاسخ به شلیک موشک، مقر عملیاتی حزب الله در بیروت رو بمباران کردیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92468
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92468_1780837996.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رادیو ارتش اسرائیل: ما یک ترور هدفمند با ارزش بالا انجام دادیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92467
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92467_1780837997.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری I24news: دولت ترامپ از در مورد حمله به بیروت مطلع شده بود!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92466
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92466_1780837997.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کارشناس صداوسیما: منتظر واکنش قرارگاه خاتم‌الانبیا و حزب‌الله باشید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برگزاری جلسه اضطراری شورای عالی امنیت ملی جمهوری اسلامی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5426
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5426_1780837998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢🔺 “در جنگ ۴۰ روزه چیزی از هوانیروز اصفهان باقی نموند، ارتش قربانی سـ.ـپاه شد، مثل تمام ۴۷ سال گذشته سـ.پاه شر درست کرد دامن ارتش رو گرفت، پولارم اونا هاپولی کردن
+
+پیام دریافتی
+
+#اصفهان #هوانیروز #کارگر
+@DEJradio
+</div>
+
+## DEJradio — post 5425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ادعای رسانۀ نزدیک به سپاه: دریافت پول از کشتی‌ها در تنگۀ هرمز وارد مرحلۀ اجرایی شد
+
+خبرگزاری حکومتی فارس مدعی شد طرح دریافت «هزینۀ خدمات» از کشتی‌های عبورکننده از تنگۀ هرمز وارد مرحله اجرایی شده است.
+بنا بر ادعای رسانۀ نزدیک به سپاه، نهادی با مشارکت وزارت اقتصاد و زیر نظر شورای عالی امنیت ملی نظام، برای اجرای این طرح تشکیل شد.
+بر اساس این گزارش، بخشی از پرداخت‌ها به‌صورت نقدی نیست و از طریق ارز دیجیتال تتر، تهاتر کالا و یا ارائۀ خدمات انجام می‌شود.
+محسن زنگنه، نمایندۀ مجلس شورای اسلامی، در گفت‌وگو با خبرگزاری حکومتی فارس مدعی شد از هر کشتی عبوری به‌طور متوسط بین یک‌ونیم تا دو میلیون دلار دریافت می‌شود.
+آمریکا پیش‌تر به کشتی‌های عبوری و شرکت‌ها هشدار داده که حق باج‌دهی به سپاه را ندارند.
+
+#خبر #دژ #تنگه_هرمز #عوارض
+@DEJradio
+</div>
+
+## DEJradio — post 5424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👀
+🔴 یکی از مخاطبان دژ با ارسال ویدیویی از برگزاری مراسم جشن عروسی شماری از پرسنل انتظامی در کلانتری‌ها که اغلب آنها در جنگ خریب شد، نوشت چند وقت دیگه کلانتری‌ها میشه دیسکو!
+در این ویدیو پیداست در اقدامی عجیب ماشین پلیس را گل زدند و از اموال نظامی عمومی استفاده تبلیغاتی کرده‌اند.
+
+#بستریابی #سرکوبگران #مزدوران
+@DEJradio
+</div>
+
+## IranIntlTV — post 340984
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340984_1780837999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خامنه‌ای صبح ۹ اسفند ۱۴۰۴ و در لحظات آغاز جنگ، با حمله به دفترش در قلب تهران، به همراه چندین نفر از فرماندهان ارشد نظامی، برخی مقام‌های سیاسی و اعضای دفترش کشته شد.
+
+در سال‌های اخیر و پس از گسترش حملات اسرائیل به مقام‌های حکومت ایران و فرماندهان و رهبران نیروهای نیابتی جمهوری اسلامی در منطقه، علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، نمازهای میت زیادی خوانده بود.
+
+در واقع یکی از بیشترین فعالیت‌های او همین اقامه نماز میت بر جنازه کشته‌شدگان بود، در حدی که برخی کاربران شبکه‌های اجتماعی به خامنه‌ای لقب «بلاگر نماز میت» دادند. حالا اما جنازه خود او ۱۰۰ روز شده که بر زمین مانده است.
+
+حکومت جمهوری اسلامی ۱۰۰ روز پس از واقعه، نه موفق شده تصویری از رهبر جدیدش نشان دهد و نه جنازه رهبر پیشین را دفن کند.
+
+متن کامل را در سایت ایران‌اینترنشنال بخوانید.
+https://www.iranintl.com/202606039229
+</div>
+
+## Shin_Persian — post 6589
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6589_1780837999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+acceladealer ✓ @acceladealer
+Sun, 07 Jun 2026 12:50:30 UTC
+
+Heavy damage and partial collapse of building in the Dahieh suburb of BEIRUT, Lebanon
+
+33.832316, 35.511020
+
+@GeoConfirmed @FaytuksNetwork
+
+geolocated by @acceladealer and @andynovy
+
+فارسی
+
+خسارات سنگین و فروریختن جزئی ساختمانی در حومه ضاحیه بیروت، لبنان
+
+۳۳.۸۳۲۳۱۶, ۳۵.۵۱۱۰۲۰
+
+@GeoConfirmed @FaytuksNetwork
+
+تایید جغرافیایی توسط @acceladealer و @andynovy_
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15868
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15868_1780838001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث خبر داد که اسرائیل پیش از حمله به ضاحیه بیروت آمریکا را مطلع کرده بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21560
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21560_1780838001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست وزیر نتانیاهو در آغاز جلسه دولت:
+
+ما در تمام جبهه‌ها با تروریسم مبارزه می‌کنیم.
+در نوار غزه، حماس را از همه طرف تحت فشار قرار می‌دهیم. در حال حاضر بیش از 60٪ از خاک نوار را در اختیار داریم و به زودی به 70٪ خواهیم رسید. به آن‌ها اجازه نمی‌دهیم که دوباره مسلح شوند یا به ما آسیب برسانند و همچنین فرماندهان ارشد آن‌ها را از بین می‌بریم.
+
+در لبنان، نیروهای ما تنها در هفته گذشته 350 تروریست را از بین برده‌اند. ما قلعه بوفورت را تصرف کردیم و در حال تکمیل نابودی زیرساخت‌های تروریستی مجاور مرز خود هستیم. ما به شدت به آن‌ها حمله می‌کنیم و می‌دانیم که حزب‌الله در حال فرار است. اجازه نخواهیم داد که به خاک یا شهرهای ما شلیک شود و بر این اساس عمل خواهیم کرد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آژانس: ایران باید اطلاعات دقیق و فوری از سایت‌های هسته‌ای بمباران‌شده‌اش بدهد
+
+خبرگزاری رویترز می‌گوید پیش‌نویس قطعنامه‌ای را دیده است که ایالات متحده آمریکا تهیه و برای سایر کشورهای عضو شورای حکام آژانس بین‌المللی انرژی اتمی ارسال کرده است.
+
+این قطعنامه فردا در نشست شورای حکام این آژانس در وین بررسی می‌شود.
+
+بنابر این گزارش، در متن این قطعنامه که امروز به‌دست خبرگزاری رویترز رسید، آمده است که ایران باید «اطلاعات دقیقی در مورد میزان مواد هسته‌ای و تاسیسات هسته‌ای تحت حفاظت در ایران را در اختیار آژانس قرار دهد» و «برای تایید این اطلاعات بدون تاخیر تمام دسترسی‌های لازم را آژانس بدهد».
+
+https://bbc.in/4etNXY4
+@BBCPersian
+</div>
+
+## BBCPersian — post 283070
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283070_1780838002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل از حمله به ضاحیه در حومه جنوبی بیروت خبر داده است.
+
+دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در بیانیه‌ای گفت که هدف این حمله مراکز فرماندهی حزب‌الله بوده است.
+
+بنابر این بیانیه، در «واکنش به حملات حزب‌الله به خاک اسرائیل»، به دستور بنیامین نتانیاهو و اسرائیل کاتس، وزیر دفاع، «یک مرکز فرماندهی نظامی در منطقه ضاحیه بیروت» هدف قرار گرفته است.
+
+رسانه‌های ایران می‌گویند که به ساختمانی در محله‌ای در ضاحیه حمله شده است.
+
+ضاحیه پایگاه قدرت حزب‌الله در بیروت است.
+
+هفته پیش بعد از آنکه اسرائیل از حمله قریب‌الوقوع به ضاحیه خبر داد، قرارگاه مرکزی خاتم‌الانبیا به ساکنان شمال اسرائیل هشدار ترک محل زندگی‌شان را داد.
+
+ساعتی بعد دونالد ترامپ گفت که از بنیامین نتانیاهو خواسته است دستور توقف حمله به ضاحیه را بدهد و نخست‌وزیر اسرائیل هم پذیرفته است.
+
+ایران هنوز واکنش رسمی نشان نداده است.
+
+ایران آتش‌بس در لبنان را بخشی از توافق آتش‌بس با آمریکا می‌داند.
+
+https://bbc.in/4etNXY4
+@BBCPersian
+</div>
+
+## alonews — post 125768
+
+<div align="center">
+  <a href="telegram/content/alonews_125768_1780838003.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امیرحسین ثابتی: راهکار پایان جنگ مذاکره نیست، بلکه قوی‌تر کردن متحدانمان در غزه، لبنان عراق و یمن است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125767
+
+<div align="center">
+  <a href="telegram/content/alonews_125767_1780838003.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تخفیف ویژه NETSPIRA VPN فعال شد! فقط برای 100 نفر اول ⚡️ قیمت هر گیگ فقط 11,000 تومان 🔸 5GB → 55,000 🔸 10GB → 110,000 🔸 25GB → 275,000 
+🔥 آفر محدود NETSPIRA VPN فقط برای 100 نفر اول برای ثبت سفارش از طریق بات اقدام کنید 
+🤖 @NetSpira1bot @NetSpira1bot
+</div>
+
+## alonews — post 125766
+
+<div align="center">
+  <a href="telegram/content/alonews_125766_1780838004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تخفیف ویژه NETSPIRA VPN فعال شد!
+
+فقط برای 100 نفر اول ⚡️
+قیمت هر گیگ فقط 11,000 تومان
+
+🔸 5GB → 55,000
+🔸 10GB → 110,000
+🔸 25GB → 275,000
+
+
+🔥 آفر محدود NETSPIRA VPN
+فقط برای 100 نفر اول
+
+برای ثبت سفارش از طریق بات اقدام کنید 
+🤖
+
+@NetSpira1bot
+@NetSpira1bot
+</div>
+
+## alonews — post 125765
+
+<div align="center">
+  <a href="telegram/content/alonews_125765_1780838004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یدیعوت احارونت: اتاق عملیاتی که ارتش اسرائیل در الضاحیه هدف قرار داد، خالی بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 16:33
 ---
 
