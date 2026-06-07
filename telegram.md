@@ -7,6 +7,224 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 19:43
+---
+
+## WithYashar — post 13718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خالیباف : نه به اتش بس پایبندن نه به گفتگو باور دارن و با محاصره دریایی و نقض توافق ها درباره لبنان نشون دادن فقط زبون قدرت میفهمن
+محاصره دریایی علیه ملت ما و چراغ سبز امروز امریکا به رژیم صهیونیستی ، پایگاه ها و دارایی های امریکا و اسرائیل تو منطقه رو هدف مشروع کرد
+@withyashar
+</div>
+
+## WithYashar — post 13717
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13717_1780848795.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگزت، وزیر جنگ آمریکا، می‌گوید پرزیدنت ترامپ به دستیابی به توافقی که تضمین کند ایران هرگز به سلاح هسته‌ای دست نخواهد یافت، متعهد است و افزود که ایالات متحده آماده است در صورت شکست مذاکرات، اقدام نظامی کند.
+@withyashar
+</div>
+
+## pm_afshaa — post 92510
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92510_1780848798.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو:
+
+تو نوار غزه، از همه طرف داريم حماس رو می‌زنیم و الان بیش از 60 درصد خاک غزه دست خودمونه و به‌زودی میرسه به 70 درصد. نمیزاریم دوباره خودشونو مسلح کنن و به ما آسیب بزنن، همزمان فرماندهان ارشدشون رو هم داریم یکی‌یکی از بین می‌بریم.
+
+تو لبنان فقط تو یه هفته گذشته نیروهای ما 350 تروریست رو کشتن. عملیات تو لبنان ادامه داره و الان داریم روستاهای نزدیک مرز رو یکی‌یکی نابود می‌کنیم. میدونیم که حزب‌الله داره فرار میکنه و اجازه نمیدیم حتی یه تیر به سمت خاک یا شهرهای ما شلیک بشه. هر جا لازم باشه محکم جوابشونو میدیم.
+‌
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل در آماده‌باش کامل است، زیرا ایران امشب تل‌آویو را تهدید کرد– کانال ۱۴
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87692
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87692_1780848799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قطر با صدور اطلاعیه‌ای، مسیرهای پروازی موقت جایگزین برای هواپیماهایی که از دوحه و فرودگاه‌های عربستان سعودی حرکت می‌کنند را که از ۷ تا ۱۴ ژوئن معتبر هستند، در بحبوحه تنش‌های امنیتی منطقه‌ای، اعلام کرد.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341012
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341012_1780848799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه ماه پس از معرفی مجتبی خامنه‌ای به عنوان سومین رهبر نظام، یک نماینده مجلس خبرگان، گفته اطلاعات سپاه مدیریت برگزاری جلسه مجلس خبرگان را برعهده داشت. نماینده مازندران هم گفت آرا را در حضور نمایندگان شمارش نکردند و تعداد آرای مجتبی خامنه‌ای اعلام نشد.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## Shin_Persian — post 6606
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 16:05:32 UTC
+
+Avoiding airways and waypoints closer to Iran (like P559 &amp; M677), hmmmm
+
+فارسی
+
+اجتناب از کریدورهای هوایی و نقاط مسیریابی نزدیک‌تر به ایران (مانند P559 و M677)، اومممم 🤔
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6605
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6605_1780848803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Faytuks Network ✓ @FaytuksNetwork Sun, 07 Jun 2026 15:40:50 UTC Qatar has issued a NOTAM rerouting flights through its airspace, providing alternate routes for aircraft departing Doha and Saudi airports amid ongoing regional tensions. The…
+</div>
+
+## Shin_Persian — post 6604
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Faytuks Network ✓ @FaytuksNetwork
+Sun, 07 Jun 2026 15:40:50 UTC
+
+Qatar has issued a NOTAM rerouting flights through its airspace, providing alternate routes for aircraft departing Doha and Saudi airports amid ongoing regional tensions. The notice is effective June 7–14.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+قطر یک نوتام (NOTAM - اطلاعیه هوانوردی) صادر کرده است که مسیر پروازها را از طریق حریم هوایی خود تغییر می‌دهد و مسیرهای جایگزینی را برای هواپیماهایی که از فرودگاه‌های دوحه و عربستان سعودی حرکت می‌کنند، در بحبوحه تنش‌های منطقه‌ای مداوم فراهم می‌کند. این اطلاعیه از تاریخ ۷ تا ۱۴ ژوئن اجرا می‌شود.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگو با حسین احمدی نیاز، وکیل دادگستری در آمستردام هلند، درباره شکنجه سازمان‌یافته در زندان‌های جمهوری اسلامی در ایران
+</div>
+
+## Persian_Trend_Official — post 15902
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15902_1780848804.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: آنها نه به آتش‌بس پایبندند و نه به گفتگو اعتقاد دارند و با محاصره دریایی و نقض توافقات مربوط به لبنان نشان می‌دهند که فقط زبان قدرت را می‌فهمند.
+
+محاصره دریایی علیه ملت ایران و چراغ سبز امروز آمریکا به رژیم صهیونیستی، پایگاه‌ها و دارایی‌های آمریکا و رژیم صهیونیستی در منطقه را به اهداف مشروع تبدیل می‌کند. دست نیروهای مسلح ما مثل همیشه باز است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21572
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21572_1780848804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استکهلم امروز ۱۷ خرداد.
+تظاهرات ایرانیان در همبستگی با مردم دلیر ایران و زندانیان در بند.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391229
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391229_1780848808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این آدم واقعا جذابه. کلا دیسیپلین داشتن جذابه.
+بدنش رو توی تمام سنین در بهترین حالت خودش نگه داشته. واقعا ریسپکت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391228
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391228_1780848810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏بیا بریم دخترم ما مثل اونا نیستیم،
+ما جنده ایم :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391227
+
+
+
+
+## Dirty_Kids — post 391226
+
+
+
+
+## Dirty_Kids — post 391225
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391225_1780848810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهناز تهرانی رید به قیصر
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125840
+
+<div align="center">
+  <a href="telegram/content/alonews_125840_1780848811.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف:
+آنها نه به آتش‌بس متعهدند و نه به گفتگو باور دارند، و با نشان دادن از طریق محاصره دریایی و نقض توافقات مربوط به لبنان، تنها زبان قدرت را می‌فهمند.
+
+
+🔴محاصره دریایی علیه ملت ایران و چراغ سبز امروز آمریکا به رژیم صهیونیستی، پایگاه‌ها و دارایی‌های آمریکا و رژیم در منطقه را به اهداف مشروع تبدیل می‌کند.
+
+
+🔴دست نیروهای مسلح ما، همانند همیشه، باز است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 19:32
 ---
 
