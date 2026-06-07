@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 05:42
+---
+
+## FoxNewsTwitter — post 342685
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342685_1780798340.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I was told the food was bad, so I sat in the cafeteria right along with the detainees."
+
+Border czar Tom Homan says he made a surprise lunch visit to an ICE detention facility after hearing complaints about the food. He says he had spaghetti and meat sauce, green beans, rolls and butter, and a fruit drink, but skipped the cake for dessert.
+
+"I couldn't finish it all," he said during an interview with @LaraLeaTrump.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 05:33
 ---
 
