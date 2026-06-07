@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 15:12
+---
+
+## VahidOOnLine — post 244082
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244082_1780832550.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا محسنی‌ثانی، عضو کمیسیون امنیت ملی مجلس، به خبرگزاری ایسنا گفت: «وضعیت فعلی محاصره و تنش، به هیچ وجه پایدار نخواهد بود و در پاسخ به راهزنی‌های دریایی آمریکا، ما ظرفیت‌های خود را نشان داده‌ایم و کنترل تنگه هرمز را در اختیار داریم که این یک واقعیت راهبردی است.»
+
+او اضافه کرد: «اسرائیل به دنبال آن است که کانون مقاومت در منطقه را در هر کجا که ممکن است، تضعیف کند. ما در یک تقابل جدی هستیم و هر دو طرف در حال استفاده از تمامی ظرفیت‌های خود برای رسیدن به اهدافشان هستند.»
+
+این نماینده مجلس ادامه داد: «پیش‌بینی من این است که ظرف حداکثر یک تا دو هفته آینده، وضعیت مشخص خواهد شد. در نهایت، ایالات متحده یا مجبور خواهد شد منطقه را ترک کند و یا با شکستی بسیار سنگین و بی‌سابقه روبرو خواهد شد.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342688
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342688_1780832550.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Former First Lady Jill Biden shares an update on former President Joe Biden, saying that though the 83-year-old will live with cancer for the rest of his life, he remains busy.
+
+"He keeps his schedule, but he’s slowed down," she said. "I mean, stage four cancer is — and he's 83 — so, I think the mix of everything and the medications that he's taken has made life a little more difficult these days."
+</div>
+
+## FoxNewsTwitter — post 342687
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342687_1780832551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Nancy Mace tells Fox News Digital that she believes President Trump refused to endorse her in South Carolina's gubernatorial race because of her vote in Congress to push for the release of the Epstein files.
+
+"If the price to pay for an endorsement was to not release those files, I would never pay it."
+</div>
+
+## IranIntlTV — post 340973
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340973_1780832553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا محسنی‌ثانی، عضو کمیسیون امنیت ملی مجلس، به خبرگزاری ایسنا گفت: «وضعیت فعلی محاصره و تنش، به هیچ وجه پایدار نخواهد بود و در پاسخ به راهزنی‌های دریایی آمریکا، ما ظرفیت‌های خود را نشان داده‌ایم و کنترل تنگه هرمز را در اختیار داریم که این یک واقعیت راهبردی است.»
+
+او اضافه کرد: «اسرائیل به دنبال آن است که کانون مقاومت در منطقه را در هر کجا که ممکن است، تضعیف کند. ما در یک تقابل جدی هستیم و هر دو طرف در حال استفاده از تمامی ظرفیت‌های خود برای رسیدن به اهدافشان هستند.»
+
+این نماینده مجلس ادامه داد: «پیش‌بینی من این است که ظرف حداکثر یک تا دو هفته آینده، وضعیت مشخص خواهد شد. در نهایت، ایالات متحده یا مجبور خواهد شد منطقه را ترک کند و یا با شکستی بسیار سنگین و بی‌سابقه روبرو خواهد شد.»
+iranintl.com/202606071087
+</div>
+
+## FarsiVOA — post 219845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یک نماینده مجلس به دانش‌آموزان معترض: اعتراضات فایده‌ای ندارد
+
+▪️در حالی که اعتراضات سراسری دانش‌آموزان در ایران ادامه دارد، یک نماینده مجلس و عضو کمیسیون آموزش گفت: «دانش آموزان دست از اعتراضات بردارند و اعتراضات فایده‌ای ندارد.»
+
+▪️در روزهای اخیر، شماری از دانش‌آموزان در چند شهر از جمله تهران، شیراز، خرم‌آباد، کرمانشاه، تبریز، مشهد، کرج، در اعتراض به سیاست‌های آموزشی و تأثیر قطعی معدل در کنکور تجمع کردند.
+
+▪️معترضان می‌گویند تأثیر قطعی معدل، به‌ویژه نمرات پایه یازدهم، می‌تواند سرنوشت تحصیلی آنان را تحت تأثیر قرار دهد و فرصت برابر در رقابت کنکور را کاهش دهد.
+
+▪️اما این نماینده مجلس می‌گوید: «دانش آموزان بروند درس شان را بخوانند، چون دیگر چاره‌ای نیست.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158179.html
+</div>
+
+## FarsiVOA — post 219844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌ها از مالکیت ویلای لوکس بانکدار تحریم‌شده مرتبط با مجتبی خامنه‌ای در اسپانیا
+
+▪️وب‌سایت او‌سی‌سی‌آر‌پی گزارش داد علی‌اکبر انصاری، بانکدار و تاجر ایرانی مرتبط با مجتبی خامنه‌ای که بریتانیا او را به اتهام حمایت مالی از فعالیت‌های سپاه پاسداران تحریم کرده، از طریق یک شرکت بریتانیایی مالک یک ویلای لوکس در شهر ماربیا، در جنوب اسپانیا است.
+
+▪️بر اساس این گزارش، مالکیت مستقیم ویلا به نام انصاری ثبت نشده، اما اسناد شرکتی نشان می‌دهد او با گذرنامه قبرسی خود فرد دارای کنترل مؤثر در شرکت بریتانیایی «وریتاس ریالس اینوستمنت لیمیتد» است.
+
+▪️پیشتر رسانه‌ها گزارش‌هایی را در مورد دارایی‌های مجتبی خامنه‌ای رهبر کنونی جمهوری اسلامی که به واسطه انصاری در خارج از کشور تملک شده، منتشر کرده بودند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/sanctioned-iranian-banker-owns-luxury-spanish-villa-via-uk-company/8158178.html
+</div>
+
+## RadioFarda — post 158003
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158003" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، هفدهم خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158002
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158002_1780832553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مصطفی نیلی، وکیل جعفر پناهی، خبر داد که دادگاه انقلاب در تهران حکم یک سال حبس برای این فیلمساز سرشناس را تأیید کرده است. حکم قابل تجدیدنظرخواهی است.
+
+🔸به گفته نیلی، پناهی «به اتهام فعالیت تبلیغی علیه نظام جمهوری اسلامی ایران به یک سال حبس تعزیری محکوم شده بود».
+
+🔸او ادامه داد:‌ «همچنین دو سال ممنوعیت خروج از کشور و ممنوعیت عضویت در گروه‌ها و دستجات سیاسی و اجتماعی برای او [پناهی] در نظر گرفته شده است.»
+
+🔸جعفرپناهی، نویسنده و کارگردان شناخته‌شده، روز ۹ فروردین از طریق مرز زمینی بازرگان پس از ماه‌ها سفر در خارج از کشور به ایران بازگشت.
+
+🔸او این چند ماه را همزمان با نمایش فیلم آخرش «یک تصادف ساده» در اروپا و آمریکا به سر می‌برد. داستان این فیلم مستقیما به اعتراضات مردمی چند سال اخیر در کشور مربوط است.
+
+🔸«ساخت فیلم زیرزمینی و مسئله‌دار علیه حاکمیت»‌ یکی از موارد اتهامی در پرونده پناهی بوده است.
+
+🔸جعفر پناهی که از مخالفان حکومت ایران است پیشتر گفته بود که پس از پایان کارهایش به ایران بازخواهد گشت. او پارسال پس از ۱۴ سال ممنوع‌الخروجی اجازه پیدا کرد که از کشور خارج شود.
+
+@RadioFarda
+</div>
+
+## alonews — post 125742
+
+<div align="center">
+  <a href="telegram/content/alonews_125742_1780832554.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری رویترز نوشت: اعضای اوپک پلاس در نشست امروز (یکشنبه) خود احتمالاً برای چهارمین بار در چند ماه، بر افزایش سهمیه تولید نفت توافق می‌کنند.
+
+
+🔴این بحران با خروج امارات از این سازمان صادرکننده نفت پس از ۶۰ سال عضویت در این ائتلاف نفتی، عمیق‌تر شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 15:02
 ---
 
