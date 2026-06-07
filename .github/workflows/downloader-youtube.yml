@@ -739,10 +739,24 @@ jobs:
           BUNDLE_ALL="${{ github.event.inputs.bundle_all }}"
           UPLOAD_METHOD="${{ inputs.upload_method }}"
 
-          if [ "$UPLOAD_METHOD" = "repo" ]; then
-            METHOD="split_push"
+          # Determine splitting behaviour
+          if [ "$UPLOAD_METHOD" = "drive" ]; then
+            SPLIT_ZIP=false          # Google Drive doesn't need splitting
+            SPLIT_SIZE=""            # Not used
           else
-            METHOD="release"
+            if [ "$UPLOAD_METHOD" = "repo" ]; then
+              METHOD="split_push"
+            else
+              METHOD="release"
+            fi
+            if [ "$METHOD" = "split_push" ]; then
+              SPLIT_ZIP=true
+              SPLIT_SIZE="99m"
+            else
+              # release: split only if larger than 1950m
+              SPLIT_ZIP=true
+              SPLIT_SIZE="1950m"
+            fi
           fi
 
           if [ "$BUNDLE_ALL" = "true" ]; then
@@ -764,8 +778,11 @@ jobs:
             BUNDLE_ZIP="youtube_bundle_${RAND_BUNDLE}.zip"
             echo "📦 Creating bundle ZIP: $BUNDLE_ZIP"
 
-            if [ "$METHOD" = "release" ]; then
-              # Unsplit first, split if > 1950 MB
+            if [ "$SPLIT_ZIP" = false ]; then
+              # Drive: never split
+              (cd "$BUNDLE_TMP" && zip -0 -r "../${OUTPUT_FOLDER}/${BUNDLE_ZIP}" *)
+            elif [ "$METHOD" = "release" ]; then
+              # Release method but only if not drive (SPLIT_ZIP true here)
               (cd "$BUNDLE_TMP" && zip -0 -r "../${OUTPUT_FOLDER}/${BUNDLE_ZIP}" *)
               FULLZIP="${OUTPUT_FOLDER}/${BUNDLE_ZIP}"
               SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
@@ -785,7 +802,10 @@ jobs:
               [ -f "$f" ] || continue
               fname=$(basename "$f")
               echo "🗜️ Zipping: $fname"
-              if [ "$METHOD" = "release" ]; then
+              if [ "$SPLIT_ZIP" = false ]; then
+                # Drive: never split
+                zip -0 -j "$OUTPUT_FOLDER/${fname}.zip" "$f"
+              elif [ "$METHOD" = "release" ]; then
                 zip -0 -j "$OUTPUT_FOLDER/${fname}.zip" "$f"
                 FULLZIP="${OUTPUT_FOLDER}/${fname}.zip"
                 SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
@@ -795,6 +815,7 @@ jobs:
                   zip -0 -j -s 1950m "$OUTPUT_FOLDER/${fname}.zip" "$f"
                 fi
               else
+                # split_push
                 zip -0 -j -s 99m "$OUTPUT_FOLDER/${fname}.zip" "$f"
               fi
               rm "$f"
