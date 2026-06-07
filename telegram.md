@@ -7,6 +7,183 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 18:12
+---
+
+## VahidOOnLine — post 244119
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244119_1780843372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با ان‌بی سی نیوز از پاسخ قطعی به این پرسش که آیا از محل دقیق مجتبی خامنه‌ای اطلاع دارد و آیا آن محل در داخل ایران است یا نه، خودداری کرد.
+او گفت: «نمی‌خواهم بگویم که می‌دانم او کجاست یا نه. اما احتمال زیادی وجود دارد که بدانم.»
+
+دونالد ترامپ همچنین اعلام کرد که فعلا قصد خروج نیروهای آمریکایی از منطقه را ندارد؛ حتی با وجود آتش‌بس شکننده و ارزیابی او مبنی بر اینکه توان تهاجمی و دفاعی جمهوری اسلامی به‌شدت آسیب دیده است.
+او افزود: «هزینه نگه داشتن حدود ۵۰ هزار نیروی آمریکایی در منطقه بسیار ناچیز است و ممکن است برای اعمال فشار در مذاکرات به آنها نیاز داشته باشیم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+One minute people were relaxing by the pool. The next, they were running for cover.
+
+Powerful winds from a severe thunderstorm ripped through a Brooklyn rooftop pool, tossing trash cans, furniture cushions and debris across the deck as guests rushed inside.
+
+The storm left a trail of damage across the region, disrupting train service, delaying flights and bringing down trees in New York City and New Jersey.
+</div>
+
+## VahidOnline — post 75989
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75989_1780843372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«وحید هاشمی» ۲۶ ساله و تبعه افغانستان، شامگاه ۱۸ دی‌ماه ۱۴۰۴ در خیابان ۲۰۲ فلکه تهرانپارس هدف شلیک گلوله جنگی قرار گرفت و ساعاتی بعد بر اثر شدت جراحات جان خود را از دست داد.
+
+به گفته نزدیکان، گلوله جنگی به ران پای چپ او اصابت کرده بود. وحید هاشمی حدود دو ساعت پس از تیراندازی به بیمارستان تهرانپارس منتقل شد، اما به دلیل خونریزی شدید جان باخت.
+
+خانواده وحید هاشمی پس از ناپدید شدن او به جست‌وجوی او پرداختند و سرانجام پس از شش روز موفق شدند پیکر او را پیدا کنند.
+پیکر وحید هاشمی در تاریخ ۲۴ دی‌ماه در قطعه ۹۶ بهشت زهرا به خاک سپرده شد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87688
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87688_1780843373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش
+
+رئیس کمیسیون امنیت ملی:
+
+اسرائیل باید تنبیه بشه، امشب آسمان سرزمین‌های اشغالی را نگاه کنید
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 340998
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340998_1780843373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای یکشنبه ۱۷ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340997
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340997_1780843375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با ان‌بی سی نیوز از پاسخ قطعی به این پرسش که آیا از محل دقیق مجتبی خامنه‌ای اطلاع دارد و آیا آن محل در داخل ایران است یا نه، خودداری کرد.
+او گفت: «نمی‌خواهم بگویم که می‌دانم او کجاست یا نه. اما احتمال زیادی وجود دارد که بدانم.»
+
+دونالد ترامپ همچنین اعلام کرد که فعلا قصد خروج نیروهای آمریکایی از منطقه را ندارد؛ حتی با وجود آتش‌بس شکننده و ارزیابی او مبنی بر اینکه توان تهاجمی و دفاعی جمهوری اسلامی به‌شدت آسیب دیده است.
+او افزود: «هزینه نگه داشتن حدود ۵۰ هزار نیروی آمریکایی در منطقه بسیار ناچیز است و ممکن است برای اعمال فشار در مذاکرات به آنها نیاز داشته باشیم.»
+https://iranintl.com/202606075700
+</div>
+
+## FarsiVOA — post 219863
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائیل به محله «ضاحیه» بیروت حمله کرد؛ دفتر نتانیاهو: واکنش به حملات حزب‌الله به شمال اسرائیل بود
+
+◾️ارتش اسرائیل روز یکشنبه ۱۷ خرداد، در اولین حمله به پایگاه حزب‌الله مورد حمایت جمهوری اسلامی در محله ضاحیه بیروت از زمان توافق آتش‌بس در ۱۲ فروردین گذشته، با سه موشک به دو آپارتمان در حومه جنوبی بیروت حمله کرد و این حمله را «نمادین» و «پیام بازدارندگی» اعلام کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/lebanon-israel-hezbollah-irgc-proxy/8158203.html
+</div>
+
+## Dirty_Kids — post 391221
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391221_1780843375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رضایی، سخنگوی کمیسیون امنیت ملی : امشب آسمون اسرائیل رو‌ نگاه کنید!
+
+واکنش ما به حمله اسرائیل به ضاحیه، دردآور و قاطعه؛ این سگِ هار رو باید ادب کنیم و سر جاش بشونیم...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391220
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391220_1780843376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این فیلم Virgin Territory (2007) نمیدونم چرا با اینکه حس میکنم فیلم کسشری دوست دارم برم ببینمش، امتیازم چک کردم ۴/۷ بود IMDb
+خلاصه اگه دانلود کردی کسشر بود به من ربطی نداره ولی صحنه‌های جالبی داره اگه داستانشم چرت باشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای انتقال مخفیانه ۵۰ عضو خبرگان به مسجد جمکران، گاف ضد حفاظت اطلاعات است. با نفوذ اسرائیل، پنهان کردن چنین جلسه‌ای محال بود. اگر هم درست باشد، یعنی اجازه دادند تا رهبر خیالی انتخاب شود، چون به امضای تسلیم او نیاز داشتند. به همین خاطر مرگ مجتبی را تا الان تائید نکرده‌اند.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125814
+
+<div align="center">
+  <a href="telegram/content/alonews_125814_1780843377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈همزمان با تهدید‌های ایران، ارتش اسرائیل موج سنگینی از حملات را به صور انجام داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125813
+
+<div align="center">
+  <a href="telegram/content/alonews_125813_1780843379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات بی امان اسرائیل به لبنان
+‼️
+
+
+🔴صحنه‌هایی از السکسکیه، جنوب لبنان، پس از یک حمله هوایی اسرائیل.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125812
+
+<div align="center">
+  <a href="telegram/content/alonews_125812_1780843380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوووووووووری/پرواز جنگنده‌های اسرائیلی به مقصد نامعلوم 
+🚨 @AkhbareFouri
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 18:03
 ---
 
