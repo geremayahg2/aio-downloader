@@ -7,6 +7,255 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 02:43
+---
+
+## VahidOOnLine — post 244203
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244203_1780873990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سفارت ایالات متحده در اورشلیم اعلام کرد که به دلیل «وضعیت امنیتی کنونی در اسرائیل» روز دوشنبه تعطیل خواهد بود.
+این سفارتخانه در بیانیه‌ای اعلام کرد که به تمامی کارکنان دولت آمریکا دستور داده شده است «در محل خود پناه بگیرند و برای انتقال به پناهگاه‌های امن در صورت لزوم آماده باشند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران به سمت گروه های کرد مخالف ایرانی در سلیمانیه عراق پهپاد شلیک کرده است @withyashar
+</div>
+
+## WithYashar — post 13858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه رسمی فیفا:
+دیدار ایران و مصر قطعا دیدار افتخار همجنسگرایان خواهد بود و به هیچ عنوان این رویداد لغو نخواهد شد
+@withyashar
+</div>
+
+## WithYashar — post 13857
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13857_1780873990.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar Israeli Medley (Hebrew) by Leila Forouhar
+</div>
+
+## mwarmonitor — post 10356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری | شبکه ۱۲ اسرائیل به نقل از یک مقام ارشد آمریکایی: رئیس‌جمهور ترامپ انتظار ندارد که در آینده نزدیک حمله‌ای از سوی اسرائیل انجام شود.
+
+🔴 شبکه ۱۲ اسرائیل به نقل از یک مقام آمریکایی و یک منبع اسرائیلی: ترامپ از نتانیاهو خواسته است به حمله ایران پاسخ ندهد و چند روز دیگر فرصت بدهد تا مذاکرات تکمیل شود.
+
+🔴 شبکه ۱۲ اسرائیل به نقل از یک مقام آمریکایی: ترامپ زمان بیشتری به دست آورده است، زیرا او معتقد است که ما به رسیدن به یک توافق نزدیک هستیم.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥«انفجارهای جدیدی در منطقه طاسلوجه در استان سلیمانیه در شمال عراق رخ داده است.» @mwarmonitor
+</div>
+
+## pm_afshaa — post 92741
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92741_1780873992.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل:
+ترامپ از نتانیاهو خواسته تا در پاسخ به حمله ایران بلافاصله واکنش نشون نده و فعلا چند روز صبر کنه تا مذاکرات دیپلماتیک ادامه پیدا کنه و در روند مذاکرات هم مداخله نکنه.
+
+نتانیاهو اولش مخالفت کرد، اما در نهایت به نوعی موافقت کرد تا زمانی که گفتگوها ادامه داره دست نگه داره و از پاسخگویی خودداری کنه و حمله رو به تعویق بندازه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92740
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92740_1780873993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جلسه دادگاه نتانیاهو فردا به دلیل وضعیت امنیتی و شرایط جاری در منطقه لغو شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103631
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103631_1780873993.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 سلام ساعت ۱۲:۱۴ دقیقه هر ۳ دقیقه یه هواپیما مسافری از مهرآباد بلند میشه
+
+📞 الو به‌صورت مداوم صدای هواپیما از غرب تهران میاد (و به‌نظر می‌رسه همینطوری مدام دارم هواپیماها رو از فرودگاه‌ها به‌سمت احتمالا شرق کشور تخلیه میکنن). الانم صدای یه هواپیمای (به‌نظر مسافربری) داره میاد
+
+📞 سلام، امشب از ساعت ۱۲ تا الان دوبار صدای هواپیما تو بجنورد اومده، اینجا اصلا شب پرواز نداره فرودگاه
+
+📞 ساعت۰۱:۴۰ ۱۸ خرداد اسلامشهر مدام داره صدای هواپیما میاد،مگه پرواز ها نمیگن بسته شد؟ شب های قبل اصلا اینجوری نبود
+
+📞 سلام از ساعت ۱۲ شب تهرانسر هر ده دقیقه یه ربع همینجوری صدای هواپیما میاد
+
+📞 هواپیما ها به سمت شرق میرن
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 341076
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341076" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: حمله موشکی سپاه به اسرائیل
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جمهوری اسلامی همچنان در کانون بحث‌های کنگره آمریکا؛ اشاره قانون‌گذارن به وضعیت اینترنت در ایران
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21713
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21713_1780873994.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گزارش کانال ۱۲ اسرائیل، رئیس‌جمهور ترامپ از بنیامین نتانیاهو خواسته است که به حمله موشکی بلافاصله پاسخ ندهد و چند روز صبر کند تا مذاکرات دیپلماتیک ادامه پیدا کند و در روند آن اختلال ایجاد نشود.
+
+یک مقام ارشد آمریکایی گفته است نتانیاهو در ابتدا با این درخواست مخالفت کرده، اما در نهایت «تا حدی پذیرفته» که فعلاً پاسخ را به تعویق بیندازد تا مذاکرات ادامه پیدا کند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21712
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21712_1780873995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕔 انتظارها به پایان رسید
+
+📃 از سایت وینرو رونمایی شد.
+معتبرترین سایت ایرانی
+
+🤩
+🤩
+🤩
+🤩 بونوس اضافه به ازای هر واریز 
+💰
+
+🔴فرصت تکرارنشدنی به مناسبت افتتاحیه
+🔴
+
+⚡️هر چقدر شارژ کنی، بیشتر هدیه می‌گیری
+⚡️
+
+🔴تا سقف ۳ میلیون تومان
+🔴
+
+⌛ فقط برای مدت محدود
+
+
+💣بالاترین بونوس‌ها فقط در سایت وینرو
+
+پیش بینی کن و برنده شو
+🎯
+
+
+📺 تلویزیون لایو برای پوشش بازی ها
+
+🛍بالاترین ضرایب ممکن
+و هزاران امکانات خاص دیگه
+💰
+a17
+
+🎰 همین الان وارد شو و با هر شارژ تا ۲۰۰ درصد شارژ اضافه از ما هدیه بگیر
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io
+
+📱 کانال اخبار و هدایــا 
+🌟
+
+📱 @winro_io
+</div>
+
+## BBCPersian — post 283106
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283106_1780873995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻عباس عراقچی، وزیر خارجه ایران، همزمان با حمله موشکی سپاه پاسداران به شمال اسرائیل، در تماس‌های تلفنی جداگانه با همتایان خود در منطقه و جهان درباره تحولات روز یکشنبه به ویژه حمله اسرائیل به ضاحبه در جنوب بیروت و حمله موشکی ایران به اسرائیل گفتگو کرده است.
+
+منابع عربی از گفتگوی تلفنی آقای عراقچی با فواد حسین وزیر امور خارجه عراق، خبر دادند.
+
+همچنین خبرگزاری‌های رسمی ایران از گفتگوهای تلفنی جداگانه وزیر خارجه ایران با ایوت کوپر، وزیرخارجه بریتانیا؛ بدر عبدالعاطی وزیر امور خارجه مصر؛ ژان نوئل بارو، وزیرخارجه فرانسه؛ شیخ محمد بن عبدالرحمن آل ثانی؛ وزیرخارجه قطر؛ هاکان فیدان، وزیر خارجه ترکیه و فیلد مارشال عاصم منیر، فرمانده ارتش پاکستان خبر داده‌اند.
+
+📸 EPA/Shutterstock
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## alonews — post 126087
+
+<div align="center">
+  <img src="telegram/content/alonews_126087_1780873996.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅با سابقه ۵ سال فعالیت مداوم
+
+🛡حتی بدون قطعی تو دوران جنگ
+
+
+🌐 با ما همراه شو و در زمان قطعی
+وصل بمون 
+🐸
+
+بقیه هنوز VPN حجمی میفروشن
+اونم با قیمتای نجومی 
+🚀
+
+از ما با کمترین قیمت ، بهترین سرویس رو بگیر 
+👀
+
+
+💥بدون محدودیت حجم
+⬇️
+⬇️
+⬇️
+@NetAazaadBot
+@NetAazaadBot
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 02:33
 ---
 
