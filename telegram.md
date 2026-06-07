@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 20:13
+---
+
+## VahidOOnLine — post 244141
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244141_1780850586.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ ایالات متحده روز یکشنبه ۱۶ خرداد به خبرنگاران گفت فکر می‌کند واشنگتن و تهران به زودی به یک توافق «عالی» برسند ولی اگر این اتفاق نیفتد، ارتش آمریکا برای آنچه باید انجام شود، کاملا آماده است.
+
+هگست در یکی از فرودگاه‌های پاریس درباره وضعیت آتش‌بس به خبرنگاران گفت که دونالد ترامپ بر تداوم آتش‌بس تاکید دارد و نیروهای مسلح آمریکا در منطقه به حملات ایران به کشتی‌های در حال تردد در تنگه هرمز، پاسخ می‌دهند.
+
+در هفته‌های گذشته ارتش جمهوری اسلامی ایران و سپاه پاسداران بارها با نیروهای دریایی آمریکا در خلیج فارس درگیر شده‌اند. آمریکا با محاصره دریایی ایران، کشتی‌ها و نفتکش‌های به مقصد یا از مبداء ایران را مجبور به تغییر مسیر می‌کنند و اهداف راداری یا پایگاه‌های پرتاب موشک‌ در جنوب ایران را هدف قرار می‌دهند.
+نیروهای مسلح جمهوری اسلامی هم می‌گویند در پاسخ به این حملات، مبدا شلیک در کشورهای حاشیه خلیج فارس ازجمله کویت و بحرین را هدف قرار می‌دهند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244140
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244140_1780850587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس، در ایکس نوشت: «محاصره دریایی و چراغ سبز روز یک‌شنبه آمریکا به اسرائیل، پایگاه‌ها و دارایی‌های آمریکا و اسرائیل در منطقه را به اهداف مشروع تبدیل می‌کند و دست نیروهای مسلح ما مثل همیشه باز است.»
+
+قالیباف درباره آمریکا و اسرائیل نوشت: «نه به آتش‌بس پایبندند نه به گفت‌وگو باور دارند، و با محاصره دریایی و نقض توافقات درباره لبنان نشان دادند که فقط زبان قدرت می‌فهمند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: دست نیروی مسلح ما همیشه بازه بترسید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل:ارتش اسرائیل در حال رصد و آماده شدن برای حمله ایران است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341020
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341020_1780850588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتر اول با نیوشا صارمی، یکشنبه ۱۷ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341019
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341019_1780850589.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس، در ایکس نوشت: «محاصره دریایی و چراغ سبز روز یک‌شنبه آمریکا به اسرائیل، پایگاه‌ها و دارایی‌های آمریکا و اسرائیل در منطقه را به اهداف مشروع تبدیل می‌کند و دست نیروهای مسلح ما مثل همیشه باز است.»
+
+قالیباف درباره آمریکا و اسرائیل نوشت: «نه به آتش‌بس پایبندند نه به گفت‌وگو باور دارند، و با محاصره دریایی و نقض توافقات درباره لبنان نشان دادند که فقط زبان قدرت می‌فهمند.»
+https://iranintl.com/202606074164
+</div>
+
+## IranIntlTV — post 341018
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341018_1780850590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه کارزار همبستگی با انقلاب ملی، ایرانیان ساکن لندن و وین در اعتراض به فضای سرکوب، افزایش اعدام‌ها و بازداشت معترضان تجمع کردند. شرکت‌کنندگان خواستار حمایت جامعه جهانی از مطالبات مردم ایران شدند.
+
+گزارش تاج‌الدین سروش و احمد صمدی، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219875
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن قاصد، کنشگر و همیار محیط‌زیست، تصاویری از بازگشت فلامینگوها به دریاچه ارومیه را در صفحه اینستاگرام خود منتشر کرد.
+
+همزمان با بهبود وضعیت دریاچه ارومیه، این پرندگان مهاجر به زیستگاه‌شان بازگشته‌اند.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15903
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15903_1780850591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❗️ اگر پاسخ ایران محدود باشد، انتخاب هدف اهمیت حیاتی دارد.
+
+با توجه به شرایط فعلی، فشارهای داخلی و همچنین سطح حمله امروز اسرائیل، احتمال یک رویارویی تمام‌عیار در کوتاه‌مدت چندان بالا به نظر نمی‌رسد. در چنین شرایطی، اگر تصمیم به پاسخ گرفته شود، انتخاب اهداف از خود عملیات مهم‌تر خواهد بود.
+
+
+🇱🇧حزب‌الله هم‌اکنون زیر فشار سنگین حملات هوایی اسرائیل در جنوب لبنان قرار دارد. هرگونه اقدام ایران باید به شکلی طراحی شود که علاوه بر اثبات اراده تهران برای اجرای تهدیدات خود، بخشی از فشار میدانی بر حزب‌الله را نیز کاهش دهد.
+
+در فضای فعلی، مسئله فقط انجام یک حمله نیست؛ بلکه اعتبار بازدارندگی ایران نیز مطرح است. وقتی مقامات ارشد کشور درباره تبعات حمله به لبنان هشدار می‌دهند، بی‌عمل ماندن می‌تواند بر برداشت طرف مقابل از میزان جدیت این تهدیدات تأثیر بگذارد.
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21577
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21577_1780850592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391235
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391235_1780850592.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دخترا خواهشا به حرفای خانوم دکتر توجه کنید! تا وقتی خود جنس هست نیازی به ابزار های خطرناک برای فانتزی هاتون نیست! ما پسرا همیشه درخدمت شما هستیم😔😔😔قدرمونو بدونید
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125847
+
+<div align="center">
+  <a href="telegram/content/alonews_125847_1780850594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۲ اسرائیل : نتانیاهو به خاطر تهدیدهای ایران، یه جلسه امنیتی فوری گذاشته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125846
+
+<div align="center">
+  <a href="telegram/content/alonews_125846_1780850594.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست نتانیاهو فقط همین هفته :
+- نیروهامون قلعه بوفور رو گرفتن و ۳۵۰ نفر از نیروهای دشمن رو از بین بردن. ماجرا هنوز ادامه داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 20:03
 ---
 
