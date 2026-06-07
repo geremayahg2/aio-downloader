@@ -7,6 +7,101 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 13:12
+---
+
+## VahidOOnLine — post 244064
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244064_1780825364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالوحید فیاضی، عضو کمیسیون آموزش مجلس، درباره اعتراضات سراسری دانش‌آموزان به مصوبه تاثیر معدل در کنکور و سیاست‌های آموزشی جمهوری اسلامی، گفت که دانش‌آموزان دست از اعتراضات بردارند و بروند درس‌شان را بخوانند، چون دیگر چاره‌ای نیست و اعتراضات فایده‌ای ندارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.223&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340953
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340953_1780825365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالوحید فیاضی، عضو کمیسیون آموزش مجلس، درباره اعتراضات سراسری دانش‌آموزان به مصوبه تاثیر معدل در کنکور و سیاست‌های آموزشی جمهوری اسلامی، گفت که دانش‌آموزان دست از اعتراضات بردارند و بروند درس‌شان را بخوانند، چون دیگر چاره‌ای نیست و اعتراضات فایده‌ای ندارد.
+https://iranintl.com/202606072159
+</div>
+
+## FarsiVOA — post 219836
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219836_1780825366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از تحویل پیام اسلام‌آباد برای مجتبی خامنه‌ای در جریان دیدار وزیر کشور پاکستان با وزیر خارجه جمهوری اسلامی خبر دادند.
+
+چند خبرگزاری داخلی روز یکشنبه ۱۷ خرداد با انتشار تصاویری از دیدار محسن نقوی با عباس عراقچی نوشتند «نامه ویژه پاکستان» برای رهبر جمهوری اسلامی به عراقچی تحویل داده شد.
+
+خبرگزاری دولتی ایرنا نیز نوشت: «در این دیدار دو طرف به بررسی تازه‌ترین تحولات دیپلماتیک در مسیر گفت‌وگوهای ایران و آمریکا و نیز تحولات منطقه پرداختند.»
+
+نقوی شامگاه شنبه وارد تهران شد و در جریان دیدار با اسکندر مومنی وزیر کشور جمهوری اسلامی گفت که حامل «نامه ویژه» از سوی عاصم منیر فرمانده ارتش پاکستان و شهباز شریف، نخست‌وزیر این کشور برای مجتبی خامنه‌ای است. او گفت که این نامه حاوی «پیام مهمی» است.
+
+پاکستان میانجی اصلی میان تهران و واشنگتن، در تلاش است به جنگ علیه جمهوری اسلامی پایان دهد.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21542
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21542_1780825367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی شمخانی سال ۹۶:
+هیچ تهدید امنیتی متوجه هیچ مسؤولی در جمهوری اسلامی نیست.
+آقا من مسؤول امنیتی کشورم.
+
+@IranianMinds
+</div>
+
+## alonews — post 125719
+
+<div align="center">
+  <a href="telegram/content/alonews_125719_1780825370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125718
+
+<div align="center">
+  <a href="telegram/content/alonews_125718_1780825370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر نیرو: در دوران جنگ اخیر بیش از ۷۰۰۰مگاوات نیروگاه ما دچار آسیب جدی شدند؛ البته همه آسیب‌ها و کمبود‌ها با صرفه‌جویی مردم حل می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 13:02
 ---
 
