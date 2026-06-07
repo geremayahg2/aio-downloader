@@ -7,6 +7,664 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 00:03
+---
+
+## VahidOOnLine — post 244181
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244181_1780864380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش تسنیم، خبرگزاری وابسته به سپاه، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، یکشنبه‌شب همزمان با حملات ایران به اسرائیل، در تماس‌های تلفنی جداگانه با ایوت کوپر و هاکان فیدان، وزرای امور خارجه بریتانیا و ترکیه، و نیز عاصم منیر، فرمانده ارتش پاکستان گفتگو کرد. براساس این گزارش، در این تماس‌ها طرفین درباره آخرین تحولات منطقه‌ای در پی پاسخ ایران به «نقض مکرر آتش‌بس در لبنان توسط اسرائیل» گفتگو کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244180
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244180_1780864380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در پی آغاز حملات موشکی ایران به اسرائیل، سازمان‌های هوانوردی عراق و سوریه از بسته‌شدن فوری و موقت حریم هوایی خود به دلایل امنیتی خبر دادند. مقامات هوانوردی غیرنظامی عراق در گفتگو با رویترز تایید کردند که آسمان این کشور با هدف حفظ سلامت و امنیت پروازها، به مدت ۷۲ ساعت به طور کامل بسته شده و تمامی ناوبری‌های هوایی به حالت تعلیق درآمده است. هم‌زمان، دولت سوریه نیز اعلام کرد که حریم هوایی بخش‌های جنوبی خود را به مدت ۱۲ ساعت مسدود کرده و تمامی فعالیت‌ها و عملیات‌های پروازی در فرودگاه بین‌المللی دمشق تا اطلاع ثانوی متوقف شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از‌ مهرآباد جنگنده بلند شد
+@withyashar
+</div>
+
+## WithYashar — post 13792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های داخلی: تو تبریز پهپاد زدیم
+@withyashar
+</div>
+
+## WithYashar — post 13791
+
+
+
+
+## WithYashar — post 13790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش انفجار در تبریز
+@withyashar
+</div>
+
+## WithYashar — post 13789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل تا دقایقی دیگر بیانیه ای صادر خواهد کرد
+@withyashar
+</div>
+
+## mwarmonitor — post 10308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی ارتش اسرائیل: رئیس ستاد کل در حال انجام ارزیابی وضعیت است و سامانه‌های پدافند هوایی ما در حالت آماده‌باش قرار دارند.
+
+او افزود: «رژیم تروریستی ایران مرتکب یک اشتباه جدی شد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10307
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در تبریز
+</div>
+
+## mwarmonitor — post 10306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر امور خارجه ایران، عراقچی، به‌صورت تلفنی با یِوِت کوپر، وزیر خارجه بریتانیا، هاکان فیدان، وزیر خارجه ترکیه، و فیلد مارشال عاصم منیر، فرمانده ارتش پاکستان گفت‌وگو کرده و درباره تحولات منطقه‌ای بحث کرده است - به نقل از خبرگزاری مهر.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92681
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92681_1780864380.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارتش اسرائیل در یک کنفرانس مطبوعاتی: رئیس ستاد ارتش، ایال زامیر، در حال ارزیابی وضعیت است و طرح‌هایی رو برای آینده تصویب میکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارتش اسرائیل: رژیم تروریستی ایران اشتباه بزرگی مرتکب شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92679
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92679_1780864381.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: هر دو طرف خوش گذروندن، بنظرم نیاز به دور بعدی نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش ها از انفجار در تبریز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92677
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92677_1780864381.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس: ترامپ به نتانیاهو گفت حملات جمهوری اسلامی رو تلافی نکنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل تا دقایقی دیگر بیانیه ای صادر خواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92675
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92675_1780864382.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس: ترامپ به نتانیاهو گفت حملات جمهوری اسلامی رو تلافی نکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92674
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92674_1780864382.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به شبکه کان نیوز:
+فکر میکنم اسرائیل به اندازه کافی پاسخ داده. دیگه نیازی به ادامه آن نیست. ما میتونیم پس از 3000 سال به صلح برسیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92673
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92673_1780864383.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید خبرنگار اکسیوس:
+بر اساس آنچه از مقامات آمریکایی شنیدم، آمریکا در هیچ حمله‌ای به ایران به اسرائیل کمک نخواهد کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر میکی زوهر: اسرائیل باید با قدرت به ایران حمله کند. همانطور که امروز در جلسه دولت گفتم - دوران توطئه به پایان رسیده است. باید از دفاع به حمله گذر کنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥خبرهای فوری را از پیج زیر نیز دنبال کنید
+
+https://t.me/+_a5ind9hr7sxOTE0
+https://t.me/+_a5ind9hr7sxOTE0
+</div>
+
+## IranIntlTV — post 341058
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341058_1780864383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هزینه‌های ترسناک اقدامات جنون‌آمیز سپاه برای آینده ایران
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/YNH6vxX94sk
+@iranintltv
+</div>
+
+## IranIntlTV — post 341057
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341057_1780864385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل گزارش داد ترامپ به نتانیاهو توصیه کرده به حمله موشکی جمهوری اسلامی پاسخ ندهد. با این حال، فشارهای داخلی بر نتانیاهو برای واکنش افزایش یافته و شماری از سیاستمداران اسرائیلی خواستار پاسخ شدید به این حملات شده‌اند.
+
+گزارش اشکان صفایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Sun, 07 Jun 2026 20:28:16 UTC
+
+Following Iran's ballistic missile attack on Israel, IDF Spokesman Brig. Gen. Effie Defrin in a press conference says that Chief of Staff Lt. Gen. Eyal Zamir is conducting an assessment and is "approving plans for the future."
+
+"The Iranian terror regime made a grave mistake," he says.
+
+فارسی
+
+در پی حمله موشک‌های بالستیک ایران به اسرائیل، سرتیپ افی دفرین، سخنگوی ارتش دفاعی اسرائیل (IDF) در یک کنفرانس خبری اعلام کرد که سپهبد ایال زمیر، رئیس ستاد کل ارتش، در حال انجام یک ارزیابی است و «طرح‌هایی را برای آینده تصویب می‌کند.»
+
+او می‌گوید: «رژیم تروریستی ایران مرتکب اشتباه بزرگی شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219934
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219934_1780864387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎯این برنامه از تفسیر خبر را با اجرای مهدی آقازمانی هم اکنون در یوتیوب صدای آمریکا مشاهده بفرمایید:
+👇👇👇👇👇
+https://www.youtube.com/live/kVVTjngrjWc
+🔴سابسکرایب یوتیوب صدای آمریکا را فراموش نکنید:
+https://youtube.com/@voafarsi
+
+
+این پست را با دوستانتان به اشتراک بگذارید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219933
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219933_1780864387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در ایران، سخنگوی «سازمان هواپیمایی كشوری» گفت بخش غربی فضای پروازی ایران تا اطلاع ثانوی بسته است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219932
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219932_1780864387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️به گزارش تایمز اسرائيل، یک زن ۷۹ ساله در اسرائيل که در جریان حمله موشکی شبانه جمهوری اسلامی به شمال اسرائیل، در مسیر رفتن به پناهگاه به سرش ضربه خورده، تحت درمان قرار گرفته است.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125662
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125662_1780864387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 واکنش تند اسرائیل به حملات موشکی ایران؛ نتانیاهو جلسه امنیتی تشکیل می‌دهد
+
+به گزارش رسانه‌های اسرائیلی، مقامات ارشد این کشور اعلام کرده‌اند، اسرائیل به حملات موشکی ایران "پاسخی کوبنده" خواهد داد.
+
+شبکه ۱۲ تلویزیون اسرائیل در این رابطه گزارش داد، مقامات این کشور تاکید کرده‌اند، "نمی‌توانند اجازه دهند" معادله جدیدی شکل بگیرد که در آن، ایران در پاسخ به حملات اسرائیل علیه مواضع حزب‌الله در بیروت، خاک این کشور را هدف قرار دهد.
+
+هنوز هیچ موضع‌گیری رسمی و علنی از سوی دولت اسرائیل درباره این حملات موشکی مداوم منتشر نشده است اما گزارش‌ها حاکی از آن است، بنیامین نتانیاهو، نخست‌وزیر اسرائیل، همراه مقامات ارشد نظامی و امنیتی، به زودی یک جلسه اضطراری برای ارزیابی وضعیت امنیتی برگزار خواهند کرد.
+
+در همین حال، شبکه ۱۳ تلویزیون اسرائیل گزارش داد، در جریان گفت‌و‌گوهای اولیه با نتانیاهو، ارزیابی مقامات امنیتی این است که تهران به دنبال یک جنگ فراگیر و همه‌جانبه نیست، بلکه تلاش می‌کند با این اقدام، یک پاسخ محدود برای نشان دادن حمایت خود از حزب‌الله لبنان ارسال کند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15989
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15989_1780864388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تامیر موراگ در مورد واکنش ضعیف ترامپ به شلیک ایران به سمت اسرائیل: «این مرحله‌ای است که باید به او بگوییم که به منافع اسرائیل متعهد هستیم.»
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15988
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15988_1780864390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: نیروهای آمریکایی در سراسر خاورمیانه هوشیار و آماده هستند.
+
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15987
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15987_1780864390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ کانال 14 اسرائیل:
+ترامپ در مصاحبه با شبکه خبری ۱۴: «همه چیز خوب خواهد شد - پس از ۳۰۰۰ سال صلح در خاورمیانه برقرار خواهد شد»
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15986
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15986_1780864391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از ارزیابی وضعیت، فرماندهی جبهه داخلی دستورالعمل‌هایی صادر کرد مبنی بر اینکه می‌توان منطقه حفاظت‌شده را ترک کرد، اما باید همچنان در نزدیکی مناطق حفاظت‌شده در سراسر کشور بمانید.
+
+از شما درخواست می‌شود که همچنان از دستورالعمل‌های فرماندهی جبهه داخلی پیروی کنید.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: حملات ایران به کسی آسیبی نرساند، امیدوارم اسرائیل تلافی نکند
+
+🔸درپی اعلام خبر حمله موشکی ایران به اسرائیل در شامگاه یک‌شنبه، دونالد ترامپ، رئیس‌جمهور آمریکا، در گفت‌وگویی تلفنی با خبرنگار اکسیوس گفت: «همین حالا با بی‌بی (بنیامین نتانیاهو) تماس می‌گیرم و به او می‌گویم تلافی نکند. هر دو طرف کار خودشان را کرده‌اند. اسرائیل حمله خود را انجام داد و ایران هم حمله خود را انجام داد. دیگر نیازی به حمله دیگری نیست.»
+
+🔸دونالد ترامپ در این گفت‌وگو افزود: «حملات ایران به کسی آسیبی نرساند. امیدوارم اسرائیل تلافی نکند. اگر بی‌بی (بنیامین نتانیاهو) پاسخ بدهد، این ماجرا همان‌طور که در ۴۷ سال گذشته، یا حتی در ۳۰۰۰ سال گذشته، ادامه داشته، باز هم ادامه پیدا خواهد کرد.»
+
+🔸ترامپ افزود: «ما به یک توافق نهایی با ایران بسیار نزدیک هستیم. این توافق، توافق خوبی خواهد بود. نمی‌خواهم به خاطر اتفاقاتی که اکنون در حال رخ دادن است، این روند از بین برود.»
+
+🔸این اتفاق چند ساعت بعد از آن رخ داد که ارتش اسرائیل منطقه ضاحیه در جنوب بیروت را هدف قرار داد و ایران تهدید کرد به این حمله پاسخ خواهد داد.
+
+🔸یک منبع ارشد ایرانی هم به خبرگزاری رویترز گفته است که «ایران به هر حمله اسرائیل با نیرویی شدیدتر پاسخ خواهد داد.«
+
+🔸ارتش اسرائیل اعلام کرده است همه موشک‌هایی را که تاکنون از سوی ایران شلیک شده‌اند رهگیری کرده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی ارتش اسرائیل :
+
+رژِیم ایران امشب دچار خطایی بزرگ و جدی شده است !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+ما خیلی به توافق با ایران نزدیکیم و نمیخوایم خرابش کنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقامات آمریکایی به فاکس نیوز : اگه اسرائیل امشب بخواد به ایران حمله کنه از سمت ایالات متحده هیچ حمایتی نخواهد داشت و به تنهایی باید کارشو انجام بده. @IranianMinds
+</div>
+
+## IranianMinds — post 21668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقامات آمریکایی به فاکس نیوز :
+
+اگه اسرائیل امشب بخواد به ایران حمله کنه از سمت ایالات متحده هیچ حمایتی نخواهد داشت و به تنهایی باید کارشو انجام بده.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391273
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391273_1780864391.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+فکر می‌کنم اسرائیل به اندازه کافی پاسخ داده و دیگه نیازی به ادامه دادن نیست، درست زمانی که بعد از 3 هزار سال می‌تونیم به صلح برسیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ :
+
+به زودی با همکاری سپاه به اسرائیل حمله می‌کنیم.
+</div>
+
+## alonews — post 125998
+
+<div align="center">
+  <a href="telegram/content/alonews_125998_1780864392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی ارتش اسرائیل: ما برای احتمال ادامه حملات آتش به سمت خود آماده‌ایم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125997
+
+<div align="center">
+  <a href="telegram/content/alonews_125997_1780864392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی ارتش اسرائیل در یک کنفرانس مطبوعاتی ادعا کرد که رئیس ستاد ارتش، ایال زامیر، در حال ارزیابی وضعیت است و «طرح‌هایی را برای آینده تصویب می‌کند»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125996
+
+<div align="center">
+  <a href="telegram/content/alonews_125996_1780864392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / سخنگوی ارتش اسرائیل: ایران اشتباه بزرگی مرتکب شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125995
+
+<div align="center">
+  <a href="telegram/content/alonews_125995_1780864392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تابناک: پدافند در بخش محدودی از غرب تهران فعال شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125994
+
+<div align="center">
+  <a href="telegram/content/alonews_125994_1780864392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداها در تبریز مربوط به پدافنده 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125993
+
+<div align="center">
+  <a href="telegram/content/alonews_125993_1780864392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل به زودی بیانیه ای صادر خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125992
+
+<div align="center">
+  <a href="telegram/content/alonews_125992_1780864392.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداها در تبریز مربوط به پدافنده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125991
+
+<div align="center">
+  <a href="telegram/content/alonews_125991_1780864393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به باراک راوید: هر کدام از آنها خوش گذراندند. اسرائیل حمله خود را انجام داد و ایران هم حمله خود را. ما به حمله دیگری نیاز نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125990
+
+<div align="center">
+  <a href="telegram/content/alonews_125990_1780864393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربی الجدید: رئیس سازمان هوانوردی غیرنظامی عراق سقوط یک هواپیمای مسافربری در عراق را تکذیب می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125989
+
+<div align="center">
+  <a href="telegram/content/alonews_125989_1780864393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:
+منم با اینا مشکل دارم ولی بحث بحثه وطنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125988
+
+<div align="center">
+  <a href="telegram/content/alonews_125988_1780864393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : «در حمله موشکی هیچ‌کس آسیب ندید. اگر نتانیاهو پاسخ بدهد، این روند ادامه پیدا خواهد کرد و ادامه خواهد داشت.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125987
+
+<div align="center">
+  <a href="telegram/content/alonews_125987_1780864393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تماس‌های تلفنی عراقچی با وزرای خارجه انگلیس و ترکیه و فرمانده ارتش پاکستان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125986
+
+<div align="center">
+  <a href="telegram/content/alonews_125986_1780864393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیانیه قرارگاه خاتم الانبیا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125985
+
+<div align="center">
+  <a href="telegram/content/alonews_125985_1780864395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ بزودی:
+و من نصر الی من عندالله عزیز الحکیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125984
+
+<div align="center">
+  <a href="telegram/content/alonews_125984_1780864395.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈باراک راوید خبرنگار آکسیوس هم تایید کرد، ترامپ زنگ زده به نتانیاهو که به حملات ایران پاسخ نده!!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 23:52
 ---
 
