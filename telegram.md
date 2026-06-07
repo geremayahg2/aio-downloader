@@ -7,6 +7,813 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 23:33
+---
+
+## VahidOOnLine — post 244172
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244172_1780862600.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که شامگاه یکشنبه ۱۷ خرداد به دست ایران‌اینترنشنال رسیده پرواز موشک‌های جمهوری اسلامی را از کرمانشاه به سمت اسرائیل نشان می‌دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244171
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244171_1780862602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس جمهوری ایالات متحده، یکشنبه‌شب، در واکنش به حملات موشکی جمهوری اسلامی ایران به اسرائیل، در مصاحبه با «فاکس نیوز» گفت:‌ «پیشنهاد من به ایران این است؛ شما موشک‌هایتان را شلیک کردید، دیگر کافی است. به میز مذاکره برگردید و توافق کنید».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244170
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244170_1780862602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به شبکه فاکس نیوز گفت: «پیشنهادی که به ایران دارم این است: موشک‌های خود را شلیک کرده‌اید، همین کافی است.»
+
+او افزود: «به میز مذاکره بازگردید و توافق کنید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244169
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244169_1780862603.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل، یکشنبه‌شب، اعلام کرد که نیروی هوایی این کشور تاکنون موفق شده است تمامی موشک‌های شلیک‌شده از سوی ایران را به طور کامل رهگیری و منهدم کند. با این حال، نیروهای دفاعی اسرائیل تاکید کردند که رادارهای پدافندی به تازگی موج جدیدی از شلیک‌ها و پرتابه‌های موشکی را شناسایی کرده‌اند که از خاک ایران به سمت اسرائیل هدف‌گیری شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244168
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244168_1780862603.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر، یکشنبه‌شب، ۱۷ خردادماه، تصاویری از موشک‌های شلیک شده به سمت اسرائیل را در آسمان کرمانشاه منتشر کرد. همزمان، قرارگاه خاتم‌الانبیا، با انتشار بیانیه‌ای، شلیک موشک‌های ایران به سمت مواضع اسرائیل را تحقق هشدارهای قبلی تهران خواند و اعلام کرد: «در صورت گسترش حملات اسرائیل به بیروت و یا پاسخ به اقدام ایران با ضربات کوبنده تر و پشیمان کننده روبرو و حملات ویرانگری علیه اسرائیل و حامیان آن آغاز خواهد شد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: قرار بود دوشنبه یا سه‌شنبه توافق صلح را امضا کنیم.
+@withyashar
+</div>
+
+## WithYashar — post 13773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل : در مجموع 12 موشک بالستیک شلیک شد که تمام آن رهگیری یا به منطقه‌ای باز اصابت کرد
+@withyashar
+</div>
+
+## WithYashar — post 13772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: توافق با ایران در دسترسه و بهش نزدیکیم.
+@withyashar
+</div>
+
+## WithYashar — post 13771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حوثی ها منتظر دستور بستن تنگه باب المندب هستیم
+@withyashar
+</div>
+
+## WithYashar — post 13770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس نیوز: آنچه به ایران توصیه می‌کنم: موشک‌هایتان را پرتاب کرده‌اید، همین کافی است
+
+@withyashar
+</div>
+
+## mwarmonitor — post 10294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌ترامپ می‌گوید حملات اسرائیل در لبنان با ایالات متحده هماهنگ نشده بود و او از این موضوع راضی نیست.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10293
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 «عراق به دلایل عملیاتی یک NOTAM صادر کرده و حریم هوایی خود را بسته است.» @mwarmonitor
+</div>
+
+## mwarmonitor — post 10292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | سی‌ان‌ان به نقل از دو منبع اسرائیلی: ما به شلیک موشک‌های بالستیک ایران با قدرت پاسخ خواهیم داد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نقل از یک رسانه عراقی وابسته به عربستان: سقوط یک هواپیمای مسافربری در صحرای کربلا.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10290
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10290_1780862604.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 «عراق به دلایل عملیاتی یک NOTAM صادر کرده و حریم هوایی خود را بسته است.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92653
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92653_1780862605.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: قرار بود دوشنبه یا سه‌شنبه توافق صلح رو امضا کنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از مکان های نظامی فاصله بگیرین
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+⭕️
+⭕️
+⭕️
+</div>
+
+## pm_afshaa — post 92650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 92649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رعد و برقه؟
+</div>
+
+## pm_afshaa — post 92648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان به نقل از دو منبع اسرائیلی: ما به پرتاب موشک‌های بالستیک ایران با قدرت پاسخ خواهیم داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهرانو زدن!؟
+</div>
+
+## pm_afshaa — post 92646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورود پهپادهای به غرب کشور
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92645
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92645_1780862605.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز به نقل از یک منبع ایرانی:
+اگر اسرائیل به حملات موشکی ایران پاسخ بده، ما هم قطعاً پاسخ خواهیم داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92644
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراق هم نوتام اعلام کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92643
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92643_1780862606.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل: در مجموع 12 موشک بالستیک شلیک شد که تمام آن رهگیری یا به منطقه‌ای باز اصابت کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92642
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترافیک سنگین در پمپ بنزین های تهران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز جنگنده‌ها در آسمان عراق
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92639
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 92638
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92638_1780862606.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز: توصیه من به ایران اینه که شما موشک هایتان رو شلیک کردید و کافی است و به میز مذاکره برگردید و توافق کنید. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92637
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92637_1780862607.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقام ارشد اسرائیلی: ارتش اسرائیل در حال آماده سازی برای حمله به ایرانه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداهایی که در تبریز به گوش می‌رسد مربوط به درگیری پدافند با ریز پرنده و پهپاد های احتمالی است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5441
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5441_1780862607.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 
+⭕️ براساس گزارش منابع میدانی، یکشنبه شب ۱۷ خرداد ۱۴۰۵ دستکم هشت فروند موشک بالستیک از اصفهان به سمت اسرائیل پرتاب شد.
+
+#حملات_موشکی #اسرائیل
+@DEJradio
+</div>
+
+## VahidOnline — post 76000
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76000_1780862608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به شبکه فاکس نیوز گفت: پیشنهادی که به ایران دارم این است: موشک‌های خود را شلیک کرده‌اید، همین کافی است.
+او افزود: به میز مذاکره بازگردید و توافق کنید.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87736
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87736_1780862608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+عراق حریم هوایی خود را بست
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: نیروهای نظامی آمریکا در حالت آماده‌باش هستند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+حوثی ها منتظر دستور بستن تنگه باب المندب هستیم
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341050
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341050_1780862608.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد قائدی، مدرس روابط بین‌الملل در دانشگاه جورج واشینگتن، گفت: «احتمالا اسرائیل در واکنش به حمله موشکی جمهوری اسلامی، حملات محدودی انجام دهد.» او افزود: «اسرائیل ممکن است همان مناطقی را در ایران هدف قرار دهد که این حملات از آنجا صورت گرفته است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که شامگاه یکشنبه ۱۷ خرداد به دست ایران‌اینترنشنال رسیده پرواز موشک‌های جمهوری اسلامی را از کرمانشاه به سمت اسرائیل نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 341048
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341048_1780862610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ به شبکه فاکس نیوز گفت: «پیشنهادی که به ایران دارم این است: موشک‌های خود را شلیک کرده‌اید، همین کافی است.»
+
+او افزود: «به میز مذاکره بازگردید و توافق کنید.»
+https://iranintl.com/202606075645
+</div>
+
+## Shin_Persian — post 6648
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6648_1780862611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 20:00:41 UTC
+
+AA activity, Khorzuq, #Isfahan Province, #Iran
+
+فارسی
+
+فعالیت پدافند هوایی، خورزوق، استان #اصفهان، #ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6647
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 19:54:03 UTC
+
+IRIAF CAP over Tehran
+
+فارسی
+
+گشت هوایی رزمی (CAP) نیروی هوایی ارتش جمهوری اسلامی ایران (IRIAF) بر فراز تهران
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تمنا می‌شود از اماکن نظامی فاصله بگیرید.
+
+از آنجا که تا این لحظه، موشک‌ها از سایت‌های موشکی اشتهارد، قم، اصفهان، کرمانشاه، تبریز و ارومیه شلیک شدند، احتمال حمله به سایت‌ها و مناطق نظامی در این محدوده‌ها محتمل‌تر است و باید دقت بیشتری کرد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 219927
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219927_1780862611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش اسرائيل به صدای آمریکا گفت که جمهوری اسلامی تاکنون یازده موشک به سمت اسرائيل شلیک کرده است. پیشتر نیروی هوایی اسرائيل گفته است همه موشک‌ها منهدم شده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219926
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219926_1780862611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در حالی که ارتش اسرائيل اعلام کرده تاکنون همه موشک‌های شلیک‌شده از سوی جمهوری اسلامی را منهدم کرده‌است، سپاه پاسداران مدعی شد در پاسخ به حملات اسرائيل در جنوب لبنان، مناطق صور و نبطیه، و سایر نقاط از جمله ضاحیه بیروت، «پایگاه هوایی رامات دیوید» را هدف حملات موشکی بالیستیک قرار داده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15982
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15982_1780862612.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ کاهش چشم‌گیر سرعت اینترنت در ایران!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15981
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15981_1780862612.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Persian_Trend_Official — post 15980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ: پیشنهاد من به ایران این است: موشک‌هایتان را شلیک کرده‌اید، کافی است. به میز مذاکره بازگردید و معامله‌ای انجام دهید. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ: پیشنهاد من به ایران این است: موشک‌هایتان را شلیک کرده‌اید، کافی است. به میز مذاکره بازگردید و معامله‌ای انجام دهید.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اسرائیل به فارسی:
+
+نیروی هوایی اسرائیل همه موشک‌های شلیک شده تا این لحظه را رهگیری کرد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گفته ممبرا تهران صدای انفجار اومده @IranianMinds
+</div>
+
+## IranianMinds — post 21653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گفته ممبرا
+تهران صدای انفجار اومده
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری ترامپ به فاکس نیوز: «پیشنهادی که به ایران دارم این است: موشک‌هایتان را شلیک کرده‌اید، کافی است. به میز مذاکره برگردید و یک توافق انجام دهید.» @IranianMinds
+</div>
+
+## BBCPersian — post 283090
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اطلاعیه قرارگاه خاتم‌الانبیا: اسرائیل در صورت گسترش حملات به بیروت، یا پاسخ به اقدام ایران با ضربات کوبنده‌تری روبرو خواهد شد
+
+در پی اعلام اسرائیل مبنی بر حمله موشکی ایران به شمال این کشور ، قرارگاه خاتم‌الانبیا در اطلاعیه‌ای گفته است که اسرائیل در صورت گسترش حملات به بیروت، یا پاسخ به اقدام ایران با ضربات کوبنده‌تری روبرو خواهد شد.
+
+در این اطلاعیه آمده است: قبلا اخطار داده بودیم در صورت گسترش حملات در ضاحیه بیروت، اهدافی را در اسرائیل مورد هجوم قرار می‌دهیم.
+
+بر اساس گزارش خبرگزاری های ایران فرمانده قرارگاه خاتم‌الانبیا در این اطلاعیه گفته است که اسرائیل با نقض مکرر آتش‌بس با چراغ سبز و حمایت آمریکا و سکوت مجامع بین المللی حملات خود به لبنان را افزایش داده و با استفاده از «سلاح‌های ممنوعه از جمله بمب های فسفری مرتکب جنایات جنگی شده است.»
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391268
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391268" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 برای اینکه درک کنید الان چقدر شرایط جنگیه :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوریییی، ترامپ: من به ایران میگم موشک هاتون رو شلیک کردین بسه، برگردین سر میز مذاکره و معامله کنین😐😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله‌ی ایران بیشتر به نت من آسیب زد تا اسرائیل.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125971
+
+<div align="center">
+  <a href="telegram/content/alonews_125971_1780862615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ ادعا کرد که از حملات امروز اسرائیل راضی نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125970
+
+<div align="center">
+  <a href="telegram/content/alonews_125970_1780862615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پروازها در غرب کشور متوقف شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125969
+
+<div align="center">
+  <a href="telegram/content/alonews_125969_1780862615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / عراق نوتام اعلام کرد و حریم هواییش رو بست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125968
+
+<div align="center">
+  <a href="telegram/content/alonews_125968_1780862615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / سی‌ان‌ان به نقل از دو منبع اسرائیلی: ما به پرتاب موشک‌های بالستیک ایران با قدرت پاسخ خواهیم داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125967
+
+<div align="center">
+  <img src="telegram/content/alonews_125967_1780862616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅با سابقه ۵ سال فعالیت مداوم
+
+🛡حتی بدون قطعی تو دوران جنگ
+
+
+🌐 با ما همراه شو و در زمان قطعی
+وصل بمون 
+😎
+
+بقیه هنوز VPN حجمی میفروشن
+اونم با قیمتای نجومی 
+🚀
+
+
+✅ از ما با کمترین قیمت ، بهترین سرویس رو بگیر 
+👀
+😍
+
+💥بدون محدودیت حجم
+⬇️
+⬇️
+⬇️
+@NetAazaadBot
+@NetAazaadBot
+</div>
+
+## alonews — post 125966
+
+<div align="center">
+  <a href="telegram/content/alonews_125966_1780862616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع ایرانی به رویترز: اگر اسرائیل به حملات موشکی ایران پاسخ دهد، ما نیز قطعاً پاسخ خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125965
+
+<div align="center">
+  <a href="telegram/content/alonews_125965_1780862616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ به فاکس نیوز: قرار بود بگویم که این توافق دوشنبه، سه‌شنبه یا چهارشنبه امضا می‌شود و حالا این اتفاق دارد می‌افتد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125964
+
+<div align="center">
+  <img src="telegram/content/alonews_125964_1780862616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فروشا در راه تلگرام
+
+[@AloTweet]
+</div>
+
+## alonews — post 125963
+
+<div align="center">
+  <a href="telegram/content/alonews_125963_1780862617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: نیروهای نظامی آمریکا در حالت آماده‌باش هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125962
+
+<div align="center">
+  <a href="telegram/content/alonews_125962_1780862617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل : در مجموع 12 موشک بالستیک شلیک شد که تمام آن رهگیری یا به منطقه‌ای باز اصابت کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125961
+
+<div align="center">
+  <a href="telegram/content/alonews_125961_1780862617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم: تمام موشک‌ها رهگیری شد و یک موشک به جنگل اصابت کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125960
+
+<div align="center">
+  <a href="telegram/content/alonews_125960_1780862617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز: به توافق نزدیک شده‌ایم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125959
+
+<div align="center">
+  <a href="telegram/content/alonews_125959_1780862617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ به فاکس نیوز: به میز مذاکره برگردید و توافق کنید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 23:23
 ---
 
