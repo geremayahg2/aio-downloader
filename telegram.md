@@ -7,6 +7,308 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 01:53
+---
+
+## WithYashar — post 13846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگر توافق به دلیل بندهاش فرو بپاشه، ما گزینه انجام یک حمله کماندویی به ایران رو بررسی خواهیم کرد.
+@withyashar
+</div>
+
+## WithYashar — post 13845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار آمریکا برای شهروندان خارج از کشور: احتیاط کنید , از جا به جایی بپرهیزید
+@withyashar
+</div>
+
+## WithYashar — post 13844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: نتانیاهو «چاره‌ای نخواهد داشت» جز اینکه توافق با ایران را بپذیرد.
+
+من فرمان‌ها را صادر می‌کنم. من همه فرمان‌ها را صادر می‌کنم. نتانیاهو فرمان‌ها را صادر نمی‌کند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ترامپ: حملات ایران هدف او را برای به‌سرانجام رساندن مذاکرات آمریکا و ایران تغییر نداده است. @mwarmonitor
+</div>
+
+## mwarmonitor — post 10348
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌اسرائیل به گزارش شبکه «کان» در حال بررسی این است که امشب به ایران حمله نکند، پس از مخالفت دونالد ترامپ.
+
+در عوض، یک حمله ممکن است «چند روز دیگر» انجام شود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: «نتانیاهو چاره‌ای جز پذیرش توافق با ایران نخواهد داشت.» @mwarmonitor
+</div>
+
+## pm_afshaa — post 92737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ بد منفور شد امشب
+نکنه زنشو گروگان گرفتن؟
+</div>
+
+## pm_afshaa — post 92736
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92736_1780870993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگر توافق به دلیل بندهاش فرو بپاشه، ما گزینه انجام یک حمله کماندویی به ایران رو بررسی خواهیم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92735
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92735_1780870994.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حملات ایران هیچ تأثیری بر توافق نخواهد داشت. فکر میکنم توافق در حال پیش رفتن است و خواهیم دید چه اتفاقی میفته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92734
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92734_1780870995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: نتانیاهو هیچ گزینه‌ای جز پذیرفتن توافق با ایران نخواهد داشت. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92733
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92733_1780870995.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز اسرائیل: اسرائیل در حال بررسی لغو حمله امشب به ایران به دلیل مخالفت ترامپ است و در ازای این انتظار میره حملات در روز های آینده انجام بشه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92732
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92732_1780870996.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز اسرائیل: اسرائیل در حال بررسی لغو حمله امشب به ایران به دلیل مخالفت ترامپ است و در ازای این انتظار میره حملات در روز های آینده انجام بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92731
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92731_1780870996.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: نتانیاهو هیچ گزینه‌ای جز پذیرفتن توافق با ایران نخواهد داشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341070
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341070_1780870997.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «یکی از روش‌هایی که جمهوری اسلامی برای حفظ بقای خود در پیش گرفته، استفاده از سرکوب و خشونت در داخل کشور است. منطق این رویکرد این است که هر زمان مردم دست به اعتراض یا قیام بزنند، با شدیدترین برخوردها و کشتار مواجه شوند تا هزینه اعتراض آن‌قدر بالا برود که جامعه از تکرار آن هراس داشته باشد. این روش در نهایت به جای خاموش کردن اعتراضات باعث گسترش کمی و کیفی اعتراضات شده است.»
+@iranintltv
+</div>
+
+## IranianMinds — post 21703
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فایننشنال تایمز :
+
+ترامپ گفته که اگر توافق با ایران شکست بخورد، آمریکا دو گزینه خواهد داشت:
+
+یا اقدام نظامی علیه زیرساخت‌های باقی‌مانده هسته‌ای ایران، یا ادامه فشار اقتصادی.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21702
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21702_1780870998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر کشور پاکستان از تهران رفت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فایننشال تایمز : من تصمیم‌ها رو می‌گیرم. من همه تصمیم‌ها رو می‌گیرم. نتانیاهو تصمیم‌ها رو نمی‌گیره. @IranianMinds
+</div>
+
+## IranianMinds — post 21700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فایننشال تایمز :
+
+من تصمیم‌ها رو می‌گیرم. من همه تصمیم‌ها رو می‌گیرم. نتانیاهو تصمیم‌ها رو نمی‌گیره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: نتانیاهو چاره‌ای جز پذیرش توافق با ایران نخواهد داشت.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283102
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گزارش‌ها از حمله پهپادی به مواضع گروه‌های کرد مخالف ایران در سلیمانیه عراق
+
+شبکه العربیه از حملات پهپادی به مواضع گروه‌های کرد مخالف ایران در سلیمانیه عراق خبر داده است.
+
+ایران در سه ماه گذشته بارها حملات موشکی و پهپادی به مواضع گروه‌های مسلح کرد ایرانی مستقر در عراق انجام داده است.
+
+هنوز گزارشی از سوی منابع نزدیک به این گروه‌ها درباره این حملات مخابره نشده است.
+
+https://bbc.in/4eafvAI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391293
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391293_1780870999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ پای تلفن به دستیار نتانیاهو:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126078
+
+<div align="center">
+  <a href="telegram/content/alonews_126078_1780871000.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال کان اسرائیل: در اسرائیل در حال بررسی تصمیم به عدم پاسخ‌دهی امشب، بلکه پس از چند روز هستیم، و این قطعاً به دلیل مخالفت ترامپ با حمله است. در حال حاضر تصمیم نهایی گرفته نشده و بحث‌ها ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126077
+
+<div align="center">
+  <a href="telegram/content/alonews_126077_1780871001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فایننشال تایمز به نقل از ترامپ: فکر می کنم توافق با ایران در حال انجام است و خواهیم دید چه اتفاقی می افتد‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126076
+
+<div align="center">
+  <a href="telegram/content/alonews_126076_1780871001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران اگر بازهم اسرائیل را بزند ما اقدامی نخواهیم کرد زیرا دنبال توافقیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126075
+
+<div align="center">
+  <a href="telegram/content/alonews_126075_1780871001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگه توافق از نظرم خودش شکست بخوره احتمالاً گزینه انجام یک حمله کماندویی به ایران رو هم در نظر می‌گیرم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126074
+
+<div align="center">
+  <a href="telegram/content/alonews_126074_1780871001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من تصمیم‌گیرنده هستم. من همه تصمیم‌ها را می‌گیرم. نتانیاهو تصمیم‌گیرنده نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126073
+
+<div align="center">
+  <a href="telegram/content/alonews_126073_1780871001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : نتانیاهو هیچ انتخابی نداره بجز قبول توافق با ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 01:43
 ---
 
