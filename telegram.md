@@ -7,6 +7,19 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 05:33
+---
+
+## WithYashar — post 13664
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13664_1780797781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : خدای‌دریا @withyashar
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 05:22
 ---
 
