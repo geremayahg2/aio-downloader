@@ -7,6 +7,619 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 22:33
+---
+
+## VahidOOnLine — post 244154
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244154_1780859024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از دو مقام آمریکایی گزارش داد اسرائیل پیش از حمله به ضاحیه در جنوب بیروت، دولت ترامپ را در جریان قرار داده بود.
+یک مقام آمریکایی نیز گفت نیروهای این کشور در خاورمیانه در صورت عملی شدن تهدیدهای تهران و آغاز حملات جدید، برای دفاع آماده هستند.
+
+اکسیوس همچنین به نقل از یک مقام آمریکایی نوشت واشینگتن از حق اسرائیل برای دفاع از خود حمایت می‌کند و حزب‌الله باید فورا حملات خود را متوقف کند تا توافق‌های موجود اجرا شوند.
+
+این رسانه به نقل از منابع خود گزارش داد اسرائیل به دولت ترامپ اعلام کرده است حملات مداوم حزب‌الله به شمال اسرائیل نقض آتش‌بس محسوب می‌شود و تل‌آویو خود را محق به هدف قرار دادن بیروت می‌داند. منابع افزودند اسرائیل تاکید کرده در صورت تکرار حملات حزب‌الله، حملات خود علیه بیروت را ادامه خواهد داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244153
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244153_1780859025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در رسانه ها به نقل از منابع نزدیک به وزیر خزانه‌داری آمریکا آمده است که این کشور از تمامی ابزارها استفاده خواهد کرد تا دارایی‌های ایران جهت بازسازی خسارات ادعایی وارده به برخی متحدان منطقه‌ای آن،  در دسترس قرار گیرد.
+
+اولا، این یک وقاحت تازه از سوی آمریکاست. اگر واشنگتن، به‌عنوان متجاوز اصلی در تجاوز نظامی علیه جمهوری اسلامی ایران، واقعاً به دنبال جبران خسارت است، آدرس را اشتباه نرود: از خود آمریکا و از رژیمی آغاز کند که عامل اصلی آتش‌افروزی، تجاوز و بی‌ثباتی در منطقه هستند. ایران متجاوزان را رها نخواهد کرد و خسارات جنگ را مطالبه و دریافت خواهد کرد.
+
+دوما، برخی دولت‌های منطقه که قلمرو و امکانات خود را در خدمت تجاوز علیه ایران قرار داده‌اند، در جایگاه مطالبه‌گر خسارت نیستند؛
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم:مدارس در سراسر اسرائیل تعطیل شده‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 13746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوی عرق زیر بغل روبیکا میاد🤢
+@withyashar
+</div>
+
+## WithYashar — post 13745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنشنال: دفتر مجتبی خامنه ای دستور حمله رو امضا کرده و فقط دستور به یگان های موشکی مونده
+@withyashar
+</div>
+
+## mwarmonitor — post 10260
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موشک به سمت اسراییل شلیک شد
+</div>
+
+## mwarmonitor — post 10259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۳ اسرائیل به نقل از یک منبع: نیروی هوایی، تعداد جنگنده‌ها و پهپادهای خود را در آسمان لبنان افزایش داده است، در چارچوب آماده‌باش برای احتمال پاسخ حزب‌الله.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10258
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل:
+
+🔸در پی حمله ارتش اسرائیل در بیروت و پس از ارزیابی وضعیت، ارتش اسرائیل خود را برای شلیک به سمت خاک دولت اسرائیل در ساعات آینده آماده می‌کند.
+
+🔹ارتش اسرائیل اجزای دفاعی خود را تقویت کرده و در وضعیت آمادگی و هوشیاری برای سناریوهای مختلف دفاعی و تهاجمی قرار دارد. رئیس ستاد کل، سپهبد ایال زمیر و فرماندهان ارتش اسرائیل در حال حاضر در حال انجام ارزیابی‌های وضعیت هستند و تحولات را از نزدیک دنبال می‌کنند.
+
+🔸از عموم مردم خواسته شده هوشیاری خود را حفظ کنند، مسئولانه رفتار کنند و به دستورالعمل‌های فرماندهی جبهه داخلی که به‌طور دوره‌ای به‌روزرسانی می‌شود پایبند باشند.
+
+🔹در صورت هرگونه تغییر اضافی در ارزیابی وضعیت، اطلاع‌رسانی لازم به مردم انجام خواهد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: به دلیل تهدیدات ایران، فردا تمامی کلاس‌های آموزشی در سراسر اسرائیل لغو شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10256
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10256_1780859026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️ در حال حاضر تعدادی از پروازهای غیرنظامی از استفاده از حریم هوایی ایران خودداری می‌کنند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92555
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه موشک شلیک شد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92554
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروکسی فعلا متصل
+
+tg://proxy?server=s01.neo-trading.org&port=443&secret=ee7391242569590e01416101927d38b565646e732d73686f702e7275
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه موشک شلیک شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92552
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زدن
+</div>
+
+## pm_afshaa — post 92551
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92551_1780859027.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درپی تهدید حمله موشکی ایران، مدارس اسرائیل فردا تعطیل شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سد مجید نمایشی نزن فقط حواسمون هست
+</div>
+
+## VahidOnline — post 75995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی تایید نشده:
+
+سلام همین الان صدای موشک از کرمانشاه اومد
+
+سلام صدای جنگنده در کرمانشاه
+
+سلام وحید جان.
+همین الان ساعت ده و نیم دو تا موشک از کرمانشاه شلیک شد
+
+صدای غرش شدید ترسناک ساعت 10.31 شب کرمانشاه میاد
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-ارتش اسراییل به حالت آماده باش در آمد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341037
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341037_1780859028.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مئیر جاودانفر، تحلیل‌گر مسائل اسرائیل، گفت به نظر می‌رسد جمهوری اسلامی و حزب‌الله لبنان پس از انتشار خبر گفت‌وگوی پرتنش هفته گذشته دونالد ترامپ و بنیامین نتانیاهو تصور می‌کنند می‌توانند با افزایش فشار، زمینه خروج نیروهای اسرائیلی از لبنان را فراهم کنند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341036
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341036_1780859030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از دو مقام آمریکایی گزارش داد اسرائیل پیش از حمله به ضاحیه در جنوب بیروت، دولت ترامپ را در جریان قرار داده بود.
+یک مقام آمریکایی نیز گفت نیروهای این کشور در خاورمیانه در صورت عملی شدن تهدیدهای تهران و آغاز حملات جدید، برای دفاع آماده هستند.
+
+اکسیوس همچنین به نقل از یک مقام آمریکایی نوشت واشینگتن از حق اسرائیل برای دفاع از خود حمایت می‌کند و حزب‌الله باید فورا حملات خود را متوقف کند تا توافق‌های موجود اجرا شوند.
+
+این رسانه به نقل از منابع خود گزارش داد اسرائیل به دولت ترامپ اعلام کرده است حملات مداوم حزب‌الله به شمال اسرائیل نقض آتش‌بس محسوب می‌شود و تل‌آویو خود را محق به هدف قرار دادن بیروت می‌داند. منابع افزودند اسرائیل تاکید کرده در صورت تکرار حملات حزب‌الله، حملات خود علیه بیروت را ادامه خواهد داد.
+https://iranintl.com/202606071984
+</div>
+
+## Shin_Persian — post 6624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 19:02:25 UTC
+
+#IDF 🇮🇱:
+"The IDF has identified that missiles were launched from Iran toward Israeli territory a short time ago.
+
+Defense systems are operating to intercept the threat. In recent minutes, the Home Front Command distributed preliminary instructions directly to mobile phones in the relevant areas.
+
+The public is asked to show responsibility and act according to the instructions - they save lives.
+
+You must enter protected spaces when receiving the alert, and remain in them until further notice.
+
+Exiting the protected space will be possible only after receiving explicit instruction. You must continue to act according to Home Front Command guidelines."
+#Iran
+
+فارسی
+
+#IDF 🇮🇱:
+"ارتش دفاعی اسرائیل شناسایی کرده است که دقایقی پیش موشک‌هایی از ایران به سمت خاک اسرائیل شلیک شده است.
+
+سیستم‌های دفاعی برای رهگیری تهدید در حال فعالیت هستند. در دقایق اخیر، فرماندهی جبهه داخلی دستورالعمل‌های اولیه را مستقیماً به تلفن‌های همراه در مناطق مربوطه ارسال کرده است.
+
+از عموم مردم خواسته می‌شود مسئولیت‌پذیری نشان داده و طبق دستورالعمل‌ها عمل کنند - این اقدامات جان انسان‌ها را نجات می‌دهند.
+
+هنگام دریافت هشدار باید وارد فضاهای محافظت‌شده شوید و تا اطلاع ثانوی در آنجا بمانید.
+
+خروج از فضای محافظت‌شده تنها پس از دریافت دستور صریح امکان‌پذیر خواهد بود. شما باید به عمل بر اساس دستورالعمل‌های فرماندهی جبهه داخلی ادامه دهید."
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 19:01:35 UTC
+
+Yup
+BM launch from Kermanshah, western Iran
+
+فارسی
+
+آره
+شلیک موشک بالستیک (BM) از کرمانشاه، غرب ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6622
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 19:00:56 UTC
+
+Eyewitness believes it’s sonic booms, might be a missile launch though
+
+فارسی
+
+شاهد عینی معتقد است که این صداها ناشی از دیوار صوتی است، هرچند ممکن است شلیک موشک باشد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6621
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 19:00:27 UTC
+
+Huge sound in Kermanshah now
+
+فارسی
+
+صدای بسیار مهیبی هم‌اکنون در کرمانشاه شنیده شد
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 07 Jun 2026 18:57:29 UTC
+
+🚨
+
+IDF Spokesperson:
+
+“Following the IDF strike in Beirut and the completion of a situational assessment, the IDF is preparing for missile fire towards Israeli territory in the coming hours.
+
+The IDF has reinforced its defensive capabilities and remains prepared and vigilant for a variety of scenarios, both defensive and offensive. The Chief of Staff, Lieutenant General Eyal Zamir, and IDF commanders are currently conducting situational assessments and closely monitoring developments.
+
+The public is urged to remain vigilant, act responsibly, and adhere to Home Front Command directives, which are updated periodically.
+
+Should there be further changes to the situational assessment, the public will be informed accordingly.”
+
+فارسی
+
+🚨
+
+سخنگوی ارتش دفاعی اسرائیل (IDF):
+
+«در پی حمله ارتش دفاعی اسرائیل در بیروت و تکمیل ارزیابی وضعیت، ارتش دفاعی اسرائیل خود را برای شلیک موشک به سمت خاک اسرائیل در ساعات آینده آماده می‌کند.
+
+ارتش دفاعی اسرائیل توانمندی‌های دفاعی خود را تقویت کرده و برای سناریوهای مختلف، اعم از دفاعی و تهاجمی، آماده و هوشیار است. رئیس ستاد کل، سپهبد ایال زمیر، و فرماندهان ارتش دفاعی اسرائیل هم‌اکنون در حال انجام ارزیابی‌های وضعیت و پایش دقیق تحولات هستند.
+
+از عموم مردم خواسته می‌شود هوشیار بمانند، مسئولانه عمل کنند و به دستورالعمل‌های فرماندهی جبهه داخلی که به صورت دوره‌ای به‌روزرسانی می‌شوند، پایبند باشند.
+
+در صورت تغییرات بیشتر در ارزیابی وضعیت، به عموم مردم اطلاع‌رسانی خواهد شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15931
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15931_1780859031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال سازی هشدار های حمله موشکی اسرائیل
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله موشکی ایران آغاز شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15929
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15929_1780859032.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل می گوید در ساعات آینده انتظار شلیک موشک ها به سمت خاک اسرائیل را دارند! 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15928
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15928_1780859033.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل می گوید در ساعات آینده انتظار شلیک موشک ها به سمت خاک اسرائیل را دارند!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15927
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15927_1780859034.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیر رسمی/گزارشاتی از فعالیت شدید جنگنده های آمریکایی در نزدیکی مرز ایران
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه بریم لایو ؟
+اگر ری اکشن ها خوب باشه البته
+</div>
+
+## IranianMinds — post 21593
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21593_1780859034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر خطر حمله ی موشکی به اسرائیل
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از کرمانشاه
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زدن
+</div>
+
+## IranianMinds — post 21590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تو صداوسیما دارن آهنگای حماسی و سوره ی فتح رو پخش میکنن. @IranianMinds
+</div>
+
+## IranianMinds — post 21589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تو صداوسیما دارن آهنگای حماسی و سوره ی فتح رو پخش میکنن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21588
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21588_1780859035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حریم هوایی از کلیر بودن دراومد که یه هواپیمای مسافربری از فرودگاه امام خمینی بلند شد. @IranianMinds
+</div>
+
+## Dirty_Kids — post 391247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهبر جمهوری اسلامی غیب شده.
+مجلس عملاً تعلیق
+دولت در استعفا
+مراسم سالگرد خمینی حتی سخنران ندارد
+نه آسمان دارد، نه در زمین ارتش
+نفت و کشور تحریمه
+پیش‌شرط مذاکرات، پول‌ها آزاد نشد و عوضش لبنان شخم زده میشه
+این تصویر یک نظام باثبات نیست؛
+تصویر سیستمی است که مرگ خود را می‌بیند
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کد جنگی قالیباف به تحولات لبنان را دریابید. چنین واکنشی به اذن رهبر نیاز دارد.
+مسئله اینجاست: اگر مجتبی مخفی است، این هماهنگی با مجتبی در این فرصت اندک، یعنی لو رفتن مخفی‌گاهش!
+خلاصه بگم: اسم واقعی مجتبی، محمدباقر قالیباف است.
+ترامپ می‌داند به اسم کی و با کی مذاکره کند.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125895
+
+<div align="center">
+  <a href="telegram/content/alonews_125895_1780859036.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووری/جنگ آغاز شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125894
+
+<div align="center">
+  <a href="telegram/content/alonews_125894_1780859037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووری/هشدار حملات موشکی ایران در اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125892
+
+<div align="center">
+  <a href="telegram/content/alonews_125892_1780859037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / حضور یک فروند پهباد ترک TAI Aksungar که مأموریتش شناسایی و هشدار اولیه است در نزدیکی مرز ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125891
+
+<div align="center">
+  <a href="telegram/content/alonews_125891_1780859037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووری/گزارشات از شلیک موشک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125890
+
+<div align="center">
+  <a href="telegram/content/alonews_125890_1780859037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسمان اسرائیل هنوز کلیر نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125889
+
+<div align="center">
+  <a href="telegram/content/alonews_125889_1780859038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈‌‌پرواز جنگنده های ارتش برفراز غرب تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووری/بریزید اینجا
+⬇️
+
+https://t.me/+mKQjO9EB47o0N2M0
+https://t.me/+mKQjO9EB47o0N2M0
+</div>
+
+## alonews — post 125887
+
+<div align="center">
+  <a href="telegram/content/alonews_125887_1780859038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/هم اکنون نماهنگی از سوره فتح در صدا و سیمای جمهوری اسلامی درحال پخش است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125886
+
+<div align="center">
+  <a href="telegram/content/alonews_125886_1780859038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فووووووووووووووووووووووووری
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 22:23
 ---
 
