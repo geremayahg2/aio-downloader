@@ -7,6 +7,164 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 09:23
+---
+
+## VahidOOnLine — post 244276
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244276_1780898004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند سامانه پدافند هوایی در شهر کرمانشاه، صبح دوشنبه و در پی مشاهده «اهداف متخاصم»، فعال شده است.
+
+خبرگزاری مهر اعلام کرد فعالیت سامانه‌های پدافندی در نقاطی از شهر و اطراف آن مشاهده شده و صدای آن در برخی مناطق به گوش رسیده و این اقدام در راستای مقابله با «تامین امنیت آسمان منطقه» انجام شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244275
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244275_1780898005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️سپاه: عملیات «نصر» را در پاسخ به حملات اسرائیل به سایت‌های راداری آغاز کردیم
+
+♦️سپاه پاسداران روز دوشنبه ۱۸ خرداد با انتشار بیانیه‌ای اعلام کرد در واکنش به حملات اسرائیل به چند «سایت راداری در سه نقطه کشور» حملات موشکی را با نام نصر علیه اسرائیل آغاز کرده است.
+
+این برای نخستین بار از دو سال پیش و اولین حمله موشکی جمهوری اسلامی به اسرائیل است که سپاه از نام عملیات «وعده صادق» استفاده نمی‌کند.
+
+سپاه مدعی شد در این حمله پایگاه‌های نواتیم و تلنوف هدف قرار گرفته‌اند.
+
+ارتش اسرائیل اعلام کرد تمام موشک‌های شلیک شده از ایران در صبح دوشنبه را رهگیری و منهدم کرده است.
+
+سپاه با اعلام این خبر اعلام کرد: «کلیه یگان‌های رزمی و عملیاتی سپاه پاسداران برای انجام عملیات عبرت آموز گسترده در تمام جبهه‌ها در آمادگی کامل بوده و برنامه های اقدام را متناسب با سناریوهای دشمن تدارک دیده‌اند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل فراخوان گسترده در نیروهای ذخیره خود را به دلیل جنگ با ایران صادر کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76045
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76045_1780898006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه اعلام خبر حمله موشکی به اسرائیل در تجمع هواداران گروه‌های مسلح شیعه در تهران
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم و شبکه العربیه گزارش دادند اورشلیم حمله اخیر به مواضع جمهوری اسلامی را با واشینگتن هماهنگ کرده است.
+
+ارزیابی حسین آقایی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341113
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341113_1780898007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند سامانه پدافند هوایی در شهر کرمانشاه، صبح دوشنبه و در پی مشاهده «اهداف متخاصم»، فعال شده است.
+
+خبرگزاری مهر اعلام کرد فعالیت سامانه‌های پدافندی در نقاطی از شهر و اطراف آن مشاهده شده و صدای آن در برخی مناطق به گوش رسیده و این اقدام در راستای مقابله با «تامین امنیت آسمان منطقه» انجام شده است.
+https://iranintl.com/202606083767
+</div>
+
+## RadioFarda — post 158031
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158031_1780898008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزیر خارجه ایران می‌گوید پس از «پاسخ ایران به نقض مکرر آتش‌بس در لبنان» از سوی اسرائیل، با مقام‌هایی از بریتانیا، ترکیه، عربستان و پاکستان گفت‌وگو کرده است.
+
+🔸عباس عراقچی در تلگرام نوشت که با ایوت کوپر، وزیر خارجه بریتانیا، و هاکان فیدان، وزیر خارجه ترکیه، گفت‌وگو کرده است.
+
+🔸او همچنین گفت با عاصم منیر، فرمانده ارتش پاکستان، گفت‌وگو کرده است؛ فردی که در تلاش‌های میانجی‌گرانه میان آمریکا و ایران نقشی کلیدی داشته است.
+
+🔸کمی بعد نیز خبر رسید که عباس عراقچی و فیصل بن فرحان، وزیر خارجه عربستان، بامداد دوشنبه در یک تماس تلفنی درباره حمله موشکی ایران به اسرائیل و موضوع لبنان و منطقه گفت‌وگو و رایزنی کرده‌اند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21729
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری مهر :
+
+پدافند کرمانشاه فعال شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پرواز جنگنده های ارتش اسرائیل در آسمان عراق
+
+@IranianMinds
+</div>
+
+## alonews — post 126119
+
+<div align="center">
+  <a href="telegram/content/alonews_126119_1780898009.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رادیو ارتش اسرائیل به نقل از منابع نظامی : پیش‌بینی می‌شود تبادل ضربات با ایران برای چند روز ادامه یابد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126118
+
+<div align="center">
+  <a href="telegram/content/alonews_126118_1780898009.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفیر ایران در روسیه: «تنگه هرمز باز خواهد شد، اما تحت شرایط جدیدی که توسط ایران و عمان تعیین می‌شود، از جمله هزینه ترانزیت.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126117
+
+<div align="center">
+  <a href="telegram/content/alonews_126117_1780898010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلم‌های بیشتری از پرتاب‌های انجام‌شده از ایران مدتی پیش
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 09:13
 ---
 
