@@ -7,6 +7,358 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 07:43
+---
+
+## VahidOOnLine — post 244263
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244263_1780891981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک هاکبی، سفیر آمریکا در اسرائیل، در شبکه اجتماعی ایکس در مورد حملات موشکی جمهوری اسلامی به اسرائیل نوشت که حکومت ایران و نیروهای نیابتی آن، تهدیدی علیه آمریکا و اسرائیل هستند.
+او افزود: مادر شیطان در تهران است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان از بیدگنه ملارد هم موشک شلیک شد 🚨
+@withyashar
+</div>
+
+## WithYashar — post 13879
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13879_1780891982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرمانشاه الان💥💥💥💥💥 عجب فیلمی
+@withyashar
+</div>
+
+## WithYashar — post 13878
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13878_1780891984.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارومیه الان ، پرتاب موشک
+@withyashar
+</div>
+
+## WithYashar — post 13877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨🚨
+جنگ ادامه دارد
+از کرمانشاه و ارومیه و نجف آباد اصفهان موشک پرتاب شد
+@withyashar
+</div>
+
+## pm_afshaa — post 92807
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92807_1780891985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## pm_afshaa — post 92806
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در اورشلیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92805
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92805_1780891986.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر ها در اسراییل فعال شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب موشک از اصفهان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92803
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92803_1780891987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از ارومیه هم موشک شلیک شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92802
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92802_1780891988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لرستان موشک پرتاب شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92801
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه:ساعت‌های آینده پر از شگفتی‌هاست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر آمریکایی مایک هاکبی:ایران و شاخه‌های شرور آن می‌خواهند آمریکا و اسرائیل را بسوزانند. مادر شیطان در تهران است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92799
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92799_1780891988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از کرمانشاه موشک بلند شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341105
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341105_1780891989.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک هاکبی، سفیر آمریکا در اسرائیل، در شبکه اجتماعی ایکس در مورد حملات موشکی جمهوری اسلامی به اسرائیل نوشت که حکومت ایران و نیروهای نیابتی آن، تهدیدی علیه آمریکا و اسرائیل هستند.
+او افزود: مادر شیطان در تهران است.
+https://iranintl.com/202606088496
+</div>
+
+## Shin_Persian — post 6706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:10:38 UTC
+
+NOW -
+BM launch from Bidkaneh / Bidgane, West of Tehran
+#Tehran Province, #Iran
+
+فارسی
+
+هم‌اکنون -
+شلیک موشک بالستیک (BM) از بیدگنه، غرب تهران
+#Tehran Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:08:50 UTC
+
+Interceptions over Jerusalem #Israel 🇮🇱
+
+فارسی
+
+رهگیری‌ها برفراز اورشلیم #Israel 🇮🇱
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:06:07 UTC
+
+And southern
+
+فارسی
+
+و جنوبی
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6703
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6703_1780891990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:05:13 UTC
+
+Tzeva Adom Central
+
+فارسی
+
+تسوآ آدوم مرکزی (Tzeva Adom Central)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:04:11 UTC
+
+NOW -
+BM launch from Isfahan
+#Isfahan Province, #Iran
+
+فارسی
+
+فوری -
+پرتاب موشک بالستیک از اصفهان
+استان #اصفهان، #ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:04:03 UTC
+
+Another BM launched from Kermanshah just now
+#Kermanshah Province, #Iran
+
+فارسی
+
+یک موشک بالستیک (BM) دیگر همین الان از کرمانشاه شلیک شد.
+#Kermanshah Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:02:35 UTC
+
+BM Launch from Urmia
+West Azerbaijan Province, #Iran
+
+فارسی
+
+پرتاب موشک بالستیک (BM) از ارومیه
+استان آذربایجان غربی، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6699
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6699_1780891991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:02:06 UTC
+
+Urmia sky now
+West Azerbaijan Province, #Iran
+
+فارسی
+
+آسمان ارومیه هم‌اکنون
+استان آذربایجان غربی، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۷:۳۰ صبح دوشنبه؛ سپاه پاسداران درحال شلیک موشک از سایت‌های موشکی فارس، کرمانشاه، اصفهان و ارومیه است.
+
+@iliaen
+</div>
+
+## Persian_Trend_Official — post 16045
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16045_1780891991.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله موشکی جدید ایران به مواضع اسرائیل آغاز شده
+</div>
+
+## Persian_Trend_Official — post 16044
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16044_1780891992.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 07:32
 ---
 
