@@ -7,6 +7,171 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 06:13
+---
+
+## mwarmonitor — post 10379
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10379_1780886592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دفاع مدنی عربستان سعودی می‌گوید هشدار اولیه در شهر الخرج برای آگاه‌سازی از خطر احتمالی صادر شده است. رویترز @mwarmonitor
+</div>
+
+## mwarmonitor — post 10378
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری آسوشیتدپرس ؛ عربستان سعودی در منطقه‌ای که میزبان پایگاه هوایی «شاهزاده سلطان» و نیروهای آمریکایی است، هشدار موشکی صادر کرده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10377
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دفاع مدنی عربستان سعودی می‌گوید هشدار اولیه در شهر الخرج برای آگاه‌سازی از خطر احتمالی صادر شده است. رویترز
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجارها در عربستان سعودی.
+</div>
+
+## mwarmonitor — post 10375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجارها در عربستان سعودی.
+</div>
+
+## pm_afshaa — post 92777
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92777_1780886593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دو انفجار در نزدیکی پایگاه هوایی شاهزاده سلطان در عربستان گزارش شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92776
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92776_1780886593.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت دفاع عربستان: در حال مقابله با حملات موشکی و پهبادی در استان الخراج هستیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92775
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92775_1780886594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت دفاع عربستان:
+در حال مقابله با حملات موشکی و پهبادی در استان الخراج هستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92774
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92774_1780886594.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هم‌اکنون آژیر خطر و هشدار های حمله موشکی در عربستان سعودی فعال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مثل اینکه عربستان رو زدن😐😂
+</div>
+
+## VahidOnline — post 76024
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76024_1780886595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آسوشیتدپرس گزارش داد که عربستان سعودی در منطقه‌ای که پایگاه هوایی شاهزاده سلطان، میزبان نیروهای آمریکایی است، آژیر خطر موشکی به صدا درآورد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 02:41:21 UTC
+
+Sirens in Kharj, #KSA 🇸🇦 (SE of Riyadh, where PSAB is located)
+
+فارسی
+
+آژیرهای خطر در الخرج، عربستان سعودی 🇸🇦 (جنوب شرقی ریاض، جایی که پایگاه هوایی شاهزاده سلطان واقع شده است) #KSA
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219969
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219969_1780886595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آسوشیتدپرس گزارش داد که عربستان سعودی در منطقه‌ای که پایگاه هوایی شاهزاده سلطان، میزبان نیروهای آمریکایی است، آژیر خطر موشکی به صدا درآورد.
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جام جهانی ۲۰۲۶: چهره‌های جدید و تیم‌هایی که سال‌ها غایب بودند
+
+🖌عبد‌السلام حتامله, بی‌بی‌سی عربی
+
+جام جهانی فوتبال ۲۰۲۶، صحنه نواخته شدن سرود ملی کشورهایی خواهد بود که با وجود داشتن تیم‌های فوتبال پرآوازه، سال‌های سال و حتی در بعضی موارد بیش از نیم قرن در صعود به این رقابت‌ها ناکام مانده بودند.
+
+https://bbc.in/4dU8N2L
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسوشیتدپرس گزارش داد که عربستان سعودی در منطقه‌ای که پایگاه هوایی شاهزاده سلطان، میزبان نیروهای آمریکایی است، آژیر خطر موشکی به صدا درآورد.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 06:03
 ---
 
