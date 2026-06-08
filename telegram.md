@@ -7,6 +7,258 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 09:03
+---
+
+## VahidOOnLine — post 244273
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244273_1780896788.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ارتش اسرائیل حمله به سایت‌های پتروشیمی در جنوب غرب ایران را تایید کرد
+
+♦️کاربران شبکه‌های اجتماعی صبح دوشنبه ۱۸ خرداد، تصاویری را از عبور موشک‌های سپاه در آسمان ملارد در کرج منتشر کردند.
+
+این دومین موج حملات موشکی جمهوری اسلامی به اسرائیل از دیشب به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند کرمانشاه فعال شد
+@withyashar
+</div>
+
+## pm_afshaa — post 92843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند کرمانشاه فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76043
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76043_1780896790.mov" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@iliaen
+ارتش اسرائیل حمله به سایت‌های پتروشیمی در جنوب غرب ایران را تایید کرد
+
+به دنبال گزارش خبرگزاری فارس مبنی بر حمله به مجموعه پتروشیمی کارون در ماهشهر که خساراتی به دنبال داشته، ارتش اسرائیل حمله به سایت‌های پتروشیمی در جنوب غرب ایران را تایید کرد و گفت به اهداف متعددی در مجموعه پتروشیمی ماهشهر حمله کرده و جزئیات مربوط به این حمله را به زودی ارایه خواهد داد.
+
+ارتش اسرائیل پیش‌تر گفته بود که مواضع حکومت ایران را در غرب و مرکز ایران هدف گرفته است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341111
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341111_1780896790.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد موشک‌های شلیک‌شده از سوی جمهوری اسلامی به سمت این کشور را شناسایی کرده است. این ارتش افزود سامانه‌های پدافندی برای رهگیری این موشک‌ها فعال شده‌اند.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219980
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219980_1780896792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد که تمامی موشک‌های پرتاب‌شده از سوی جمهوری اسلامی در صبح دوشنبه به سوی اسرائیل رهگیری شدند.
+
+ارتش اسرائیل افزود که پرتابه‌ای که به یک زمین باز در کرانه باختری اصابت کرد، احتمالاً یک قطعه بزرگ باقی‌مانده پس از عملیات رهگیری بوده است.
+
+در همین حال، پس از آنکه هشدار اولیه در اورشلیم درباره حمله موشکی جمهوری اسلامی صادر شده بود، برای این منطقه وضعیت پایان هشدار اعلام شد، زیرا موشک جمهوری اسلامی موفق به رسیدن به خاک اسرائیل نشد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219979
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219979_1780896793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، ساعت ۱۱ صبح دوشنبه با کابینه امنیتی خود تشکیل جلسه می‌دهد. یک مقام اسرائیلی در این باره به تایمز اسرائیل گفت که تنها گروه کوچکی از وزیران کلیدی در این جلسه حضور خواهند داشت.
+
+این جلسه در پی ازسرگیری درگیری‌ها با جمهوری اسلامی برگزار می‌شود.
+
+آکسیوس ساعاتی پس از حمله موشکی جمهوری اسلامی به اسرائيل، به نقل یک مقام ارشد آمریکایی و یک منبع اسرائیلی گزارش داده بود که رئيس جمهوری آمریکا در تماس تلفنی خود به نخست وزیر اسرائيل گفت که حمله موشکی شبانه جمهوری اسلامی را تلافی نکند و زمان بیشتری به دیپلماسی بدهد.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125669
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125669_1780896793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ارتش اسرائیل از حمله به اهدافی در غرب و مرکز ایران خبر داد
+
+ارتش اسرائیل اعلام کرد "اهداف نظامی" را در مرکز و غرب ایران مورد حمله قرار داده است. در بیانیه ارتش اسرائیل به جزئیات بیشتری در مورد این اهداف اشاره نشده است.
+
+در همین حال خبرگزاری ایرنا گزارش داد بامداد دوشنبه، "دست‌کم صدای سه انفجار در اصفهان" و "دو انفجار مهیب در تهران" شنیده شده است. اکبر صالحی، معاون امنیتی استاندار اصفهان به ایرنا گفته است که "نقطه‌ای در شهر نجف‌آباد" هدف حمله اسرائیل قرار گرفت. به گفته او این حملات تلفات جانی نداشته است.
+
+به نوشته ایرنا نقاط مختلفی در غرب تهران حوالی ساعات ۴:۴۳ و ۴:۴۵ هدف حمله قرار گرفتند و ادعاهایی نیز در مورد هدف قرار گرفتن فرودگاه مهر‌آباد منتشر شده است. سخنگوی آتش‌نشانی تهران به ایرنا گفته است که "نقاط شهری در تهران هدف قرار نگرفته‌اند".
+
+خبرگزاری تسنیم نوشت صدای انفجار در تهران، اصفهان، کرج، تبریز و برخی نقاط دیگر در غرب تهران شنیده شده‌اند. خبرگزاری فارس به نقل از منابع محلی از وقوع انفجارهایی در استان‌های تهران، آذربایان شرقی و اصفهان خبر داده و نوشت صدای انفجار از حوالی غرب استان تهران شنیده شده است و مردم فردیس کرج نیز صدای این انفجار را شنیده‌اند.
+
+در همین حال سپاه پاسداران با انتشار بیانیه‌ای حملات اسرائیل به نقاطی در ایران را تأیید کرد. در این بیانیه بدون اشاره به جزئیات بیشتر در مورد مکان و اهداف این حملات گفته شده است که اسرائیل "با استفاده از موشک‌های بالستیک هواپرتاب اقدام به حمله به اهدافی" در ایران کرده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹شنیده شدن صدای انفجار و فعالیت پدافند هوایی در کرمانشاه گزارش شده است.
+</div>
+
+## Persian_Trend_Official — post 16082
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند هوایی در کرمانشاه گزارش شده
+</div>
+
+## Persian_Trend_Official — post 16081
+
+
+
+
+## IranianMinds — post 21724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم :
+
+یه شبکه جاسوسی قوی داشتیم تو اسرائیل که امروز بعد سال ها به زور شناسایی کردن و گرفتنشون بمولا ببینید چقدر نفوذ کردیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21723
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21723_1780896793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیروی هوایی اسرائیل:
+
+نیروی هوایی با هدایت اطلاعات نظامی کمی پیش چندین هدف را در مجتمع پتروشیمی ماهشهر در جنوب غربی ایران هدف قرار داد جزئیات بیشتری به زودی اعلام خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سازمان ملل :
+
+خیلی نگرانیم ...
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283150
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل می‌گوید به تاسیسات پتروشیمی ماهشهر حمله کرده است
+
+ارتش اسرائیل اعلام کرد که به «چندین هدف» در تاسیسات پتروشیمی ایران در ماهشهر، در جنوب غربی این کشور، حمله کردند.
+
+رسانه‌های دولتی ایران نیز وقوع این حمله را تایید کرده‌اند.
+
+رسانه‌های می‌گویند که این مجتمع در نزدیکی ساحل شمالی خلیج فارس تا حدی آسیب دیده است.
+
+هنوز در خصوص خسارات احتمالی و یا کشته‌های این حمله جزییاتی اعلام نشده اما ایران گفته به زودی در این خصوص اطلاع رسانی خواهد کرد.
+
+@BBCPersian
+</div>
+
+## alonews — post 126115
+
+<div align="center">
+  <a href="telegram/content/alonews_126115_1780896794.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه قطر: وزیر خارجه قطر تماس تلفنی از وزیر خارجه ایران، عباس عراقچی، دریافت کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126114
+
+<div align="center">
+  <a href="telegram/content/alonews_126114_1780896794.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: تمامی فعالیت‌ها و تجمعات لغو شده و مراکز آموزشی در سراسر اسرائیل تعطیل خواهند شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126113
+
+<div align="center">
+  <a href="telegram/content/alonews_126113_1780896795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار و فعالیت پدافند هوایی تو کرمانشاه گزارش شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126112
+
+<div align="center">
+  <a href="telegram/content/alonews_126112_1780896795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسراییل: طبق اعلام ارتش اسرائیل، یک ساعت پس از حملات هوایی اسرائیل به ایران، یک موشک بالستیک از یمن به سمت مرکز اسرائیل شلیک شد
+
+
+🔴این نخستین حمله‌ای است که از یمن پس از آتش‌بس که از هشتم آوریل اجرایی شده، انجام می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126111
+
+<div align="center">
+  <a href="telegram/content/alonews_126111_1780896795.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع عبری: بیمارستان‌های شمال شروع به انتقال بخش‌های اورژانس به پناهگاه‌های زیرزمینی محافظت‌شده کردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 08:53
 ---
 
