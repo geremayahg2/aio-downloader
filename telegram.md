@@ -7,6 +7,355 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 08:12
+---
+
+## VahidOOnLine — post 244266
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244266_1780893772.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️سفیر آمریکا در اسرائیل: مادر «شیطان» در تهران است
+
+♦️مایک هاکبی، سفیر آمریکا در اسرائیل، چند ساعت پس از آن‌که دونالد ترامپ، رئیس‌جمهوری آمریکا، گفت اسرائیل را به خودداری از پاسخ به حمله موشکی ایران تشویق خواهد کرد، گفت که تهران می‌خواهد «آمریکا و اسرائیل را به آتش بکشد.
+
+او در شبکه اجتماعی ایکس نوشت: «ایران دیشب و بامداد امروز به سوی اسرائیل موشک شلیک کرد. ساعت ۶ صبح در اورشلیم آژیرهای هشدار موشکی به صدا درآمد. خدا را شکر که این موشک‌ها رهگیری شدند.»
+
+هاکبی افزود: «ایران و نیروهای نیابتی شرور آن می‌خواهند آمریکا و اسرائیل را به آتش بکشند. مادر شیطان در تهران است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید کردند رسانه های داخلی ، پتروشیمی کارون تو خرمشهر رو با موشک زدن
+@withyashar
+</div>
+
+## WithYashar — post 13886
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13886_1780893773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران ، ملارد
+@withyashar
+</div>
+
+## WithYashar — post 13885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : همین الان صدای چندتا انفجار از دور میاد. فکر کنم اسرائیل داره پادگان های اطراف رو می زنه. کرمانشاه
+@withyashar
+</div>
+
+## WithYashar — post 13884
+
+
+
+
+## pm_afshaa — post 92834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت سفید در اسراییل از پناهگاها میتونین خارج شین
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در اردن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: پتروشیمی در شهر ماهشهر در جنوب ایران مورد حمله قرار گرفته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من تو ماهشهرم پتروشیمی کارون رو زدن زنگ زدم رفیقم میگه یه بخشی از کارون کامل بگا رفت
+</div>
+
+## pm_afshaa — post 92830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من تو ماهشهرم
+پتروشیمی کارون رو زدن زنگ زدم رفیقم میگه یه بخشی از کارون کامل بگا رفت
+</div>
+
+## pm_afshaa — post 92829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در ماهشهر 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در ماهشهر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 92826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژیر ها در اسراییل فعال شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجاری دیگر در مزرعه های شومرون 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76042
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76042_1780893774.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصابت موشک به شهرک یهودی‌نشین ایتامار نزدیک شهر نابلوس و در بخش شمالی کرانه باختری رود اردن
+FattahiFarzad
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:36:19 UTC
+
+#IDF 🇮🇱:
+"The IDF has identified that a short time ago, missiles were launched from Iran toward Israeli territory.
+
+Defense systems are operating to intercept the threat. In recent minutes, the Home Front Command has distributed preliminary instructions directly to mobile phones in the relevant areas.
+
+The public is asked to show responsibility and act according to the instructions - they save lives.
+
+One must enter protected spaces upon receiving the alert, and remain in them until further notice.
+
+Exiting the protected space will be possible only after receiving explicit instruction, one must continue to act according to Home Front Command guidelines."
+#Iran
+
+فارسی
+
+#IDF 🇮🇱:
+"ارتش دفاعی اسرائیل (IDF) شناسایی کرده است که مدت کوتاهی پیش، موشک‌هایی از ایران به سمت خاک اسرائیل پرتاب شده است.
+
+سامانه‌های دفاعی برای رهگیری این تهدید در حال فعالیت هستند. در دقایق اخیر، فرماندهی جبهه داخلی دستورالعمل‌های اولیه را مستقیماً به تلفن‌های همراه در مناطق مربوطه ارسال کرده است.
+
+از مردم درخواست می‌شود ضمن مسئولیت‌پذیری، طبق دستورالعمل‌ها عمل کنند - این اقدامات جان انسان‌ها را نجات می‌دهند.
+
+باید به محض دریافت هشدار وارد فضاهای محافظت‌شده شد و تا اطلاع ثانوی در آنجا باقی ماند.
+
+خروج از فضای محافظت‌شده تنها پس از دریافت دستور صریح امکان‌پذیر خواهد بود؛ باید به عمل بر اساس دستورالعمل‌های فرماندهی جبهه داخلی ادامه داد."
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6713
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6713_1780893774.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:34:10 UTC
+
+IRGC-owned Fars News confirms airstrikes on Karun Petrochemical Complex in Mahshahr, Khuzestan Province, #Iran
+
+فارسی
+
+خبرگزاری فارس متعلق به سپاه پاسداران انقلاب اسلامی (IRGC)، حملات هوایی به مجتمع پتروشیمی کارون در ماهشهر، استان خوزستان، #Iran را تایید کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Mon, 08 Jun 2026 04:25:28 UTC Initial: Explosion in Karun Petrochemical Complex, Khuzestan Province, #Iran ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی انفجار در پتروشیمی کارون، استان خوزستان، #Iran…
+</div>
+
+## Shin_Persian — post 6711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:25:28 UTC
+
+Initial: Explosion in Karun Petrochemical Complex, Khuzestan Province, #Iran
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+انفجار در پتروشیمی کارون، استان خوزستان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219976
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219976" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری چهارشنبه ۱۷خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما را هم دنبال کنید:
+👇👇👇👇
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## Persian_Trend_Official — post 16070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیر رسمی/ منابع محلی از انفجار شدید خوزستان پتروشیمی کارون ماهشهر خبر میدهند.
+</div>
+
+## Persian_Trend_Official — post 16069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان پوزش میخام چند وقت اتش بس بود دستمون تنبل شده😂
+
+
+👺Phantom
+</div>
+
+## Persian_Trend_Official — post 16068
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16068_1780893775.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و پایااااااااان..........
+</div>
+
+## Persian_Trend_Official — post 16067
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه ارتش یمن بزودی منتشر خواهد شد
+</div>
+
+## Persian_Trend_Official — post 16066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش حمله ی موشکی از سمت یمن و نوار غزه به سمت اسرائیل
+</div>
+
+## Persian_Trend_Official — post 16065
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16065_1780893775.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحتون بخیر 🌄
+Su-33 Flanker-D
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16064
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16064_1780893776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبح امروز وزیر کشور پاکستان تهران ترک کرد
+</div>
+
+## RadioFarda — post 158023
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158023_1780893777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸درپی اعلام حمله هوایی ارتش اسرائیل به نقاطی در غرب و مرکز ایران، سپاه پاسداران انقلاب اسلامی بیانیه‌ای صادر کرد و نوشت که اسرائیل «با استفاده از موشک‌های بالستیک هواپرتاب اقدام به حمله به اهدافی» در خاک ایران کرده است.
+
+🔸ارتش اسرائیل حمله هوایی به مرکز و غرب ایران را اعلام کرده اما هنوز نوع سلاح‌های به‌کاررفته در این حملات را اعلام نکرده است.
+
+🔸خبر این حملات درحالی منتشر می‌شود که یک مقام آمریکایی به اکسیوس گفته بود دونالد ترامپ، رئیس‌جمهور آمریکا، روز یک‌شنبه در تماس تلفنی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، از او خواسته بود فعلاً از حمله تلافی‌جویانه به ایران خودداری کند.
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 08:02
 ---
 
