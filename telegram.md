@@ -7,6 +7,37 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 04:42
+---
+
+## FoxNewsTwitter — post 342705
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342705_1780881178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Five people were stabbed near New York City's Penn Station on Sunday evening, authorities say.
+
+FDNY officials confirmed all five victims suffered stab wounds, with one person reported in serious condition.
+
+Photos from the scene show blood, debris and medical supplies scattered near the area as investigators work to piece together what happened.
+
+Authorities have not released information about a suspect or possible motive, and Amtrak Police are leading the investigation.
+</div>
+
+## FarsiVOA — post 219963
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219963_1780881178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️زمین لرزه‌ای ۷.۸ ریشتری لحظاتی قبل جنوب فیلیپین را لرزاند. برخی گزارش‌ها از تخریب ساختمان‌ها در شهر جنرال سانتوس حکایت دارد. این سیزدهمین شهر پرجمعیت فیلیپن است.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 04:33
 ---
 
