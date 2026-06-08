@@ -7,6 +7,137 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 06:22
+---
+
+## VahidOOnLine — post 244248
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244248_1780887168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه معاریو نوشت نیروی هوایی اسرائیل در پاسخ به حمله موشکی جمهوری اسلامی در شب گذشته، به اهداف نظامی در غرب و مرکز ایران حمله کردند.
+
+معاریو اشاره کرد که بیش از ۱۵ هدف، از جمله یک کارخانه تولید پهپاد و فرودگاه بین‌المللی تهران، مورد اصابت قرار گرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244247
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244247_1780887169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گیدئون سعار، وزیر خارجه اسرائیل، در واکنش به تصویری که عباس عراقچی، وزیر خارجه جمهوری اسلامی، از پرچم‌های لبنان و جمهوری اسلامی در حساب کاربری خود در اکس منتشر کرده بود، نسخه‌ای ویرایش‌شده از همان تصویر را بازنشر کرد.
+
+در تصویر منتشرشده از سوی سعار، پرچم حزب‌الله لبنان جایگزین پرچم لبنان شده بود. وزیر خارجه اسرائیل در توضیح این تصویر خطاب به عراقچی نوشت: «بفرما، برایت درستش کردم کلاهبردار.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244246
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244246_1780887169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویر منتشر شده در شبکه‌های اجتماعی، صبح دوشنبه، ۱۸ خردادماه، آتش‌سوزی پس از حمله اسرائیل به نقطه‌ای در اصفهان را نشان می‌دهد. گزارش‌ها حاکی از‌آن است که حمله‌ها در محدوده نجف آباد اصفهان انجام شده است.
+سخنگوی ارتش اسرائیل در نخستین ساعات بامداد دوشنبه و اندکی پس از حمله‌های موشکی جمهوری اسلامی به اسرائیل در گزارش اولیه اعلام کرد: «نیروی هوایی اسرائیل، تحت هدایت رکن اطلاعات ارتش، اندکی قبل به اهداف نظامی رژیم ایران در غرب و مرکز ایران حمله کرد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸یک مقام نظامی آمریکایی: ارتش ایالات متحده در حملات اسرائیل به ایران مشارکت نداشته است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10380
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری آسوشیتدپرس ؛ عربستان سعودی در منطقه‌ای که میزبان پایگاه هوایی «شاهزاده سلطان» و نیروهای آمریکایی است، هشدار موشکی صادر کرده است. @mwarmonitor
+</div>
+
+## pm_afshaa — post 92778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اول اسرائیل لبنان رو زد.
+بعد ایران اسرائیل رو زد.
+اسرائیل برگشت ایران زد.
+آخرش ایران عربستان رو زد.
+
+یک روز عادی در خاورمیانه :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341098
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341098_1780887171.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه معاریو نوشت نیروی هوایی اسرائیل در پاسخ به حمله موشکی جمهوری اسلامی در شب گذشته، به اهداف نظامی در غرب و مرکز ایران حمله کردند.
+
+معاریو اشاره کرد که بیش از ۱۵ هدف، از جمله یک کارخانه تولید پهپاد و فرودگاه بین‌المللی تهران، مورد اصابت قرار گرفتند.
+https://iranintl.com/202606086504
+</div>
+
+## Shin_Persian — post 6693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 02:42:30 UTC
+
+Al Arabiya says the situation is over.
+
+فارسی
+
+العربیه می‌گوید وضعیت به پایان رسیده است.
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 283131
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283131_1780887172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻همزمان با تایید ارتش اسرائیل مبنی بر حملات هوایی به شهرهای ایران، ساکنان مناطق مختلف تهران و شهرهای دیگر از شنیدن صدای انفجار خبر دادند.
+
+کانال تلگرامی وحید آنلاین برخی از این گزارش‌ها را منتشر کرده است که در آنها ساکنان نقاط مختلف تهران، اصفهان، کرج، تبریز، ارومیه، نجف آباد اصفهان،‌ قروه در کردستان، ملارد و چند نقطه دیگر در کرج از شنیدن صدای انفجار خبر داده‌اند.
+
+همزمان حمله هوایی به فرودگاه مهرآباد تهران هم گزارش شده است.
+
+📸 Reuters
+
+https://bbc.in/4fwDUTo
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پنج سال دیگه تیمارستان‌ها پر میشه از بیمارهایی که به تخت بسته شدن و داد میزنن «امشب دیگه می‌زنه»، «زیرساخت‌ها رو دارن میزنن»، «اینترنتو وصل کن مادرجنده» و...
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 06:13
 ---
 
