@@ -7,6 +7,350 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 08:33
+---
+
+## WithYashar — post 13895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل🇮🇱 :
+کابینه امنیتی اسرائیل برای ساعت 11 صبح یه جلسه اضطراری فراخوندن تا درباره اتفاقات اخیر و واکنش بعدی به حمله ایران تصمیم بگیرن.
+@withyashar
+</div>
+
+## WithYashar — post 13894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عبری اعلام کردند حمله موشکی اخیر علیه اسرائیل به صورت مشترک از سوی ایران و یمن انجام شده است.
+@withyashar
+</div>
+
+## WithYashar — post 13893
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13893_1780895015.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولین تصویر از حملات به پتروشیمی خوزستان
+@withyashar
+</div>
+
+## WithYashar — post 13892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ عبری: قیمت نفت در ساعات اخیر ۴٪ افزایش یافته و اکنون حدود ۹۷ دلار برای هر بشکه است
+@withyashar
+</div>
+
+## WithYashar — post 13891
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13891_1780895017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل برخورد موشک
+@withyashar
+</div>
+
+## pm_afshaa — post 92840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کله زرد املاکی کیرم تو خودتو اون جام جهانیت اگه نزنی
+</div>
+
+## pm_afshaa — post 92839
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92839_1780895021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی از بلند شدن دود از پالایشگاه ماهشهر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعلا ارامش برقراره
+</div>
+
+## Shin_Persian — post 6716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:57:29 UTC
+
+#IDF 🇮🇱:
+"The Air Force, under intelligence guidance, struck a short time ago several targets in the petrochemical complex in Mahshahr in southwestern Iran. Additional details to follow."
+#Iran
+
+فارسی
+
+#IDF 🇮🇱:
+«نیروی هوایی، تحت هدایت اطلاعاتی، لحظاتی پیش چندین هدف را در مجتمع پتروشیمی در ماهشهر در جنوب غربی ایران مورد اصابت قرار داد. جزئیات تکمیلی متعاقباً اعلام خواهد شد.»
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6715
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6715_1780895022.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:52:38 UTC
+
+0450Z
+Salman Farsi Petrochemical Complex
+Mahshahr, Khuzestan Province, #Iran
+(Via @IliaHashemicom's TG)
+
+فارسی
+
+۰۴۵۰ زولو (۰۸:۲۰ به وقت تهران)
+مجتمع پتروشیمی سلمان فارسی
+ماهشهر، استان خوزستان، #Iran
+(از طریق تلگرام @IliaHashemicom)
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219977
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219977_1780895023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد که موشک‌هایی که از سوی جمهوری اسلامی به سمت اسرائیل شلیک شده‌اند، در حال رهگیری هستند.
+
+همزمان تایمز اسرائیل گزارش داد که آژیرهای هشدار در منطقه بئرشبع و مناطق اطراف آن در جنوب اسرائیل به دلیل حمله موشک‌های بالستیک جمهوری اسلامی به صدا درآمد.
+
+این اتفاق چند دقیقه پس از آن رخ داد که آژیرهای هشدار در بخش‌های گسترده‌ای از دیگر مناطق کشور به صدا درآمده بودند.
+
+تا این لحظه، هیچ گزارشی از مجروح شدن افراد در این حملات موشکی منتشر نشده است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16076
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16076_1780895024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های اسرائیلی: لحظه اصابت موشک ایرانی به منطقه ایتامار در کرانه باختری
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16074
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16074_1780895026.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور کریس مورفی: این جنگ برای ترامپ و قدرت آمریکا به طور کلی تحقیرآمیز بوده است.
+
+و وقتی ترامپ اعلام می‌کند که قصد دارد با نتانیاهو تماس بگیرد و به او بگوید که تلافی نکند، و در عرض چند ساعت نتانیاهو تلافی می‌کند، تحقیر فقط بیشتر می‌شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16073
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16073_1780895026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ولایتی، مشاور علی خامنه‌ای: انتخاب با شماست؛ توقف حماقت یا ورود به موازنه ضابطه‌مند شدن دو تنگه (هرمز و باب‌المندب)
+
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158026
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158026_1780895027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، در گفت‌وگویی با روزنامه فایننشال تایمز که روز یک‌شنبه منتشر شد، گفت بنیامین نتانیاهو، نخست‌وزیر اسرائیل، چاره‌ای جز پذیرش هر توافقی که آمریکا با ایران مذاکره کند نخواهد داشت.»
+
+🔸آقای ترامپ در این گفت‌وگو گفت: «نتانیاهو چاره‌ای جز پذیرش توافق با ایران نخواهد داشت. او تصمیم‌ها را نمی‌گیرد، تصمیم‌ها را من می‌گیرم.»
+
+🔸او افزود: «حمله ایران، تمایل من برای تکمیل مذاکرات با ایران را تغییر نداده است.»
+
+🔸فایننشال تایمز همچنین گزارش داد که وقتی از ترامپ پرسیده شد اگر چنین توافقی «بر اساس محتوای خود» شکست بخورد چه خواهد شد، او گفت حمله کماندویی به ایران را بررسی خواهد کرد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸درپی حملات متعدد هوایی اسرائیل به نقاط مختلف در ایران طی بامداد دوشنبه، ارتش اسرائیل خبر داد که «موشک‌های شناسایی‌شده از ایران به سمت خاک اسرائیل شلیک شده‌اند.»
+
+🔸خبرگزاری فرانسه نیز روز دوشنبه از شنیده شدن صدای انفجار بر فراز اورشلیم گزارش داد؛ همزمان اسرائیل اعلام کرد که در حال رهگیری موج تازه‌ای از موشک‌های ایران است.
+
+🔸در ایران، شبکهٔ خبر از شلیک موشک‌هایی از ایران به جنوب و مرکز اسرائیل خبر داده و می‌گوید آژیرهای هشدار اولیه در این مناطق به صدا درآمده است.
+
+🔸حساب کاربری وحید آنلاین تصاویری از موشک‌های شلیک شده از ایران به سمت اسرائیل را منتشر کرده است. بنا بر گزارش‌ها این موشک‌ها از اصفهان و ملارد پرتاب شده‌اند.
+
+🔸خبرگزاری صدا و سیما نیز از قول منابع رسانه‌ای نوشته است که حداقل پنج موشک از ایران و یمن به اسرائیل شلیک شده است.
+
+🔸کانال ۱۲ اسرائیل نیز از «شنیده شدن صدای انفجار در منطقه اورشلیم» خبر می‌دهد.
+
+🔸دیگر رسانه‌های اسرائیلی نیز خبر می‌دهند که آژیرهای خطر در تل‌آویو و اطراف آن، منطقه اورشلیم، بئرشبا و اطراف آن و شهرک‌های اطراف نوار غزه به صدا درآمد.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 283140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+«آن‌ها از چه چیزی می‌ترسند؟»
+
+این پرسشی بود که از رئیس صندوق بین‌المللی پول، کریستالینا جورجیوا، پرسیده شد.
+
+در نشست بهاره صندوق بین‌المللی پول و بانک جهانی در واشنگتن، وزیران دارایی کشورهای مختلف، مقامات بانک‌های مرکزی و برجسته‌ترین کارشناسان مالی جهان حضور داشتند.
+
+جنگ آمریکا و اسرائیل علیه ایران و پیامدهای اقتصادی ناشی از بسته شدن تنگه هرمز ذهن همه را به خود مشغول کرده بود، اما به گفته فیصل اسلام، سردبیر اقتصادی بی‌بی‌سی از نگاه برخی شرکت‌کنندگان مسئله‌ای دیگر به همان اندازه یا حتی جدی‌تر وجود داشت.
+
+https://bbc.in/4vu92r5
+📷Getty/ NURPHOTO VIA GETTY IMAGES
+@BBCPersian
+</div>
+
+## alonews — post 126102
+
+<div align="center">
+  <a href="telegram/content/alonews_126102_1780895028.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سناتور مورفی: این جنگ برای آمریکا تحقیرآمیز بود؛ ترامپ دیشب گفت به نتانیاهو زنگ می‌زنم تا جلوی حمله تلافی‌جویانه‌ش رو بگیرم ولی اسرائیل ۲ ساعت بعد از این تماس جنگ رو از سر گرفت و ترامپ و آمریکا رو تحقیر کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126101
+
+<div align="center">
+  <a href="telegram/content/alonews_126101_1780895029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل اعلام کرد که فرودگاه مهرآباد تهران هم مورد حمله قرار گرفته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126097
+
+<div align="center">
+  <a href="telegram/content/alonews_126097_1780895029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تصاویر شلیک موشک‌های بالستیک از سوی ایران به سمت اسرائیل که کمی پیش انجام شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126096
+
+<div align="center">
+  <a href="telegram/content/alonews_126096_1780895031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه اصابت موشک ایرانی به شهرک ایتمار در اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126095
+
+<div align="center">
+  <a href="telegram/content/alonews_126095_1780895033.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۲ اسرائیل : نیروی هوایی اسرائیل ۲۰ تا هدف تو ایران رو زده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126094
+
+<div align="center">
+  <a href="telegram/content/alonews_126094_1780895033.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات به پتروشیمی خوزستان!!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126093
+
+<div align="center">
+  <a href="telegram/content/alonews_126093_1780895035.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ عبری: قیمت نفت در ساعات اخیر ۴٪ افزایش یافته و اکنون حدود ۹۷ دلار برای هر بشکه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126092
+
+<div align="center">
+  <a href="telegram/content/alonews_126092_1780895035.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈همزمان با حملات ایران به اسرائیل، ۲ انفجار در منطقه پایگاه هوایی شاهزاده سلطان عربستان گزارش شده است.
+
+
+🔴 یک مقام نظامی مطلع به صدا و سیمای گفت که نیروهای ایرانی هیچ موشکی به سمت پایگاه هوایی شاهزاده سلطان در عربستان سعودی شلیک نکرده‌اند.
+
+
+🔴 احتمالاً حمله توسط حوثی‌ها (انصارالله) انجام شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 08:22
 ---
 
