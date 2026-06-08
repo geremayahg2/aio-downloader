@@ -7,6 +7,327 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 05:33
+---
+
+## VahidOOnLine — post 244235
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244235_1780884184.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گزارش‌ها حاکی از آن است که نقطه‌ای در محدوده فرودگاه مهرآباد تهران هدف گرفته شده است. برخی گزارش‌ها به هدف گرفته شدن یک انبار پهپادهای انتحاری در این منطقه اشاره دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 92766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یجوری زدن که این به اون در شدید نبوده
+</div>
+
+## pm_afshaa — post 92765
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92765_1780884185.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: جنگنده‌های اسرائیلی از آسمان عراق و مناطق دریایی موشک شلیک کردن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92764
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92764_1780884185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در غرب تهران :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92763
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92763_1780884186.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی:
+جنگنده‌های اسرائیلی از آسمان عراق و مناطق دریایی موشک شلیک کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92762
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92762_1780884187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تبریز هم‌اکنون :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92761
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92761_1780884187.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی:
+حملات هوایی فرودگاه مهرآباد در تهران و انباری که پهپادهای تهاجمی در آن نگهداری میشدن رو هدف قرار دادن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92760
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92760_1780884188.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ملارد هم‌اکنون :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادامه پیام‌های دریافتی ساعت ۴:۴۵
+
+سلام ساعت ۴:۴۵
+سمت خزانه دوبار صدا انفجار اومد
+
+صدای بمب جنوب تهران
+۴ ۴۵
+
+سلام همین الان صدای دو انفجار از میدان المپیک
+
+داره میزنننه
+فردیس کرج ۴:۴۵
+
+
+همین الان صدای مهیب سمت مهرآباد
+
+ساعت ۴:۴۴ سمت غرب صدای عجیب و بلند اومد ، لرزش خفیف سعادت آباد
+
+تهران اندیشه
+دوبار صدای انفجار همین الان
+
+
+سلام اصابت موشک غرب تهران تا الان دوتا انفجار 4::44
+
+صدای دو انفجار با فاصله کرج
+
+ساعت 4:43 دقیقه غرب تهران صدای تک انفجار
+دو دقیقه بعد دوباره صدای انفجار اما دور تر
+
+
+صدا انفجار داره میاد سمته غرب انگار
+
+دوتا صدای انفجار غرب تهران
+
+تهران زرگنده ساعت ۰۴:۴۳ صدای دو انفجار اومد
+
+الان ساعت 4:43 دقیقه و 4: 45 دقیقه صبح غرب تهران صدای انفجار کوبنده شدید
+
+همین الان دو تا صدای انفجار در اصفهان شنیده شد.
+
+سلام وحید. شهرک اکباتان. صدای انقجار اومد دو بار همین الان. ساعت ۴:۴۳ و ۴:۴۵ دقیقه
+
+صدای انفجار , کرج , ساعت ۰۴:۴۲ , ۱۸ خرداد ۱۴۰۵
+صدای انفجار , کرج , ساعت ۰۴:۴۵ , ۱۸ خرداد ۱۴۰۵
+
+کرج صدای انفجار 4:45
+
+جنوب غرب تهران دو سه تا صدا مثل انفجار از دور اومد
+
+صدای دو انفجار مرکز تهران ۴ و ۴۵ دقیقه صبح
+
+یه صدای گروم مانندی اومد اما دوره مرزدارانیم ساعت ۴:۴۳ بعدی ۴:۴۵
+
+سلام وحید جان ساعت 4:40 دقیقه رباط کریم حداقل 4 تا صدای انفجار اومد
+
+ساعت ۴:۴۳ و ۴:۴۵
+۲ تا صدای مهیبی اومد نمیدونم چی بود
+سمت خیابان زنجان
+
+زد صدا اومد
+شهران ۴:۴۳
+دوباره زد
+نزدیک نیست ولی صدا میاد
+۴:۴۵ تهران شهران
+
+وحید ۴:۴۳ صدای انفجار دریاچه چیتگر
+
+کرج مهرشهر دو تا انفجار به همراه لرز ساعت 4:40
+احتمال میدم سمت فردیس باشه
+
+وحید تهرانم سمت شرق یه صدا هایی میاد شبیه انفجار ولی نمیتونم تشخیص بدم
+
+۴.۴۵ دقیقه تهران سمت غرب ۲ تا صدا انفجار
+
+سلام غرب تهران دو بار صدای انفجار اومد
+
+
+سلام وحید ساعت ۴:۴۵ دقیقه شرق صدای انفجار اومد.البته دور بود.
+
+وحید ۴:۴۲ پرند صدای انفجار مهیب حداقل دوتا
+
+سمت م معلمم یافت اباد
+همین اطراف بوده صداش همراه با لرزش بود
+دوتا صدا انفجار 4.43
+
+وحید جان ساعت ۴:۴۵ سه تا صدا شبیه انفجار سمت غرب شنیده شد.
+
+وحید جان شهرری همین الان دوجا رو زدن شیشه ها لرزید
+
+
+ساعت ۴:۴۵ ۱ انفجار دیگه شنیده شد
+دومی صدای مهیب تر بود
+
+همین الان تهران زدن
+ساعت ی ربع به پنج صبح
+
+جنوب غرب تهران سمت تهرانسر همین الان صدای دو تا انفجار اومد حس میکنم موشک بود
+
+4:43 و 4:45 کرج صدای خفه‌ای اومد(کاش خودش باشه)
+
+سلام تهران سمت شرق و غرب صدای خیلی بدی اومد
+۲ تا پشت سر هم ساعت 4:43
+
+مرکز شهر سمت ۷تیر. ۳تا صدای انفجار از دور اومد الان ساعت ۴:۴۵
+
+وحید جان صدای دو تا انفجار به فاصله یکی دو دقیقه حدود ساعت ۴:۴۴ از نزدیک ستارخان شنیدم
+
+
+سلام وحید انگار دارن میزنن
+سمت صادقیه تهران تا الان دو بار صدا شنیده شد
+از ساعت ۴:۴۰ تا ۴:۴۵
+اما بنظر دور بود معلوم نیست کجا بود
+
+سلام مرکز شهر تهران ساعت ۴:۴۳ دوتا صدای انفجار پشت سرهم اومد ولی صدا دور بود
+
+سلام اسلامشهر ساعت 4:42 بامداد صدای خیلی بلند اومد
+
+صدا انفجار تهران ساعت 4:44 سمت پیامبر مرکزی
+
+درود
+دو تا صدای انفجار مانند اطراف اصفهان چند دقیقه پیش( فکر کنم نجف آباد ۴:۴۲)
+
+📡 @VahidOnline
+
+هنوز کلی پیام نخونده مونده. در حال آپدیت...
+</div>
+
+## kianmeli1 — post 87769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/c/1913446326/35258
+</div>
+
+## kianmeli1 — post 87768
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87768_1780884189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-خبرهایی از انفجار در پایگاه موشکی اصفهان
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6685
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6685_1780884189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 01:53:22 UTC
+
+Reportedly Isfahan suburbs
+#Isfahan Province, #Iran
+(Image: NOT MINE / Can't confirm)
+
+فارسی
+
+گزارش‌ها از حومه اصفهان
+#Isfahan Province #Iran
+(تصویر: متعلق به من نیست / قابل تأیید نیست)
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219966
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219966_1780884190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی منتسب به آتش‌سوزی بعد از حمله اسرائيل به منطقه‌ای در اصفهان در مرکز ایران - ۱۸ خرداد ۱۴۰۵
+
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 391323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله در تهران به فرودگاه مهرآباد بوده. جالبه که جمهوری اسلامی دقیقاً دیشب، تعداد زیادی هواپیما رو از مهرآباد خارج کرد (فراری داد). از اون طرف حمله ج.ا هم خسارتی نزد. همه نشانه‌ها فعلاً تلاش برای محدود نگه داشتن تنش رو نشون میده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391322
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391322_1780884190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار و آتش سوزی غرب تهران:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391321
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391321_1780884191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار توی ملارد.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 05:22
 ---
 
