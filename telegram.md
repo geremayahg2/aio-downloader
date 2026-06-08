@@ -7,6 +7,99 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 06:42
+---
+
+## VahidOOnLine — post 244252
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244252_1780888364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بامداد دوشنبه، هشداری درباره یک حمله موشکی در حال وقوع در بخش‌های وسیعی از مرکز اسرائیل از جمله اورشلیم، تل‌آویو، مودعین و مناطق اطراف به صدا درآمد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10386
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: حریم هوایی به‌طور موقت بسته شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌سخنگوی ارتش اسرائیل آخرین تحولات:
+
+❌ نیروی هوایی چند ساعت پیش و با هدایت نهاد اطلاعات نظامی، اهداف نظامی وابسته به «نظام تروریستی ایران» را در غرب و مرکز ایران هدف قرار داد.
+
+⭕️ ارتش اسرائیل دقایقی پیش شلیک یک موشک از یمن به سمت اراضی اسرائیل را رصد کرد و سامانه‌های پدافند هوایی برای رهگیری آن وارد عمل شدند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92789
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92789_1780888364.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از ایران به سمت اسراییل 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از ایران به سمت اسراییل 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از ایران به سمت اسراییل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92786
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92786_1780888365.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیش از 20 سایت ایرانی، از جمله فرودگاه مهرآباد تهران، کارخانه تولید پهپاد و سایت‌های موشکی، توسط اسرائیل هدف قرار گرفته شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76025
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76025_1780888365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل پس از حمله‌های یکشنبه شب سپاه به شمال اسرائیل و حمله‌های متقابل ارتش اسرائیل به غرب و مرکز ایران در بامداد دوشنبه اعلام کرد که ارتش اسرائیل یک موشک شلیک شده از یمن را رصد کرده و سامانه‌های پدافندی در حال رهگیری آن هستند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 06:33
 ---
 
