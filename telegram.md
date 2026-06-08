@@ -7,6 +7,196 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 06:52
+---
+
+## VahidOOnLine — post 244254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فرانسه، دوشنبه ۱۸ خرداد، تصاویری از فروریختن یک ساختمان در پی زمین‌لرزه‌ به بزرگی ۷.۸ در جنوب فیلیپین منتشر کرد. مقام‌های فیلیپین و اندونزی پس از این زمین‌لرزه هشدار سونامی صادر کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244253
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244253_1780888969.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یخیل لایتر، سفیر اسرائیل در آمریکا گفت ایران امروز ۱۱ موشک بالستیک به سوی اسرائیل شلیک کرده است؛ موشک‌هایی که به گفته او هر یک توان تخریب یک محله کامل و وارد کردن تلفات گسترده را دارند.
+
+او تأکید کرد هیچ کشوری چنین حمله‌ای را تحمل نمی‌کند و اسرائیل نیز پاسخ خواهد داد.
+
+به گفته لایتر، ارتش اسرائیل در واکنش، در حال هدف قرار دادن سایت‌های پرتاب موشک‌های زمین‌به‌زمین ایران و برخی زیرساخت‌هاست که به بخش انرژی مرتبط نیستند.
+
+سفیر اسرائیل همچنین هشدار داد در صورت شلیک موشک از سوی حزب‌الله، مراکز فرماندهی این گروه در ضاحیه بیروت هدف حملات شدید قرار خواهند گرفت.
+
+او افزود مردم لبنان نیروی نیابتی ایران را رد کرده‌اند و مدعی شد «همه از رفتارهای رژیم ایران به ستوه آمده‌اند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش ایسنا، سازمان آتش‌نشانی تهران می‌گوید هیچ منطقه شهری در پایتخت هدف قرار نگرفته است.
+@withyashar
+</div>
+
+## WithYashar — post 13866
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳پا: دشمن اسرائیلی با استفاده از موشک های بالستیک هواپرتاب اقدام به حمله به اهدافی در خاک کشورمان کرده است
+@withyashar
+</div>
+
+## WithYashar — post 13865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استوری اخر اینستاگرام رو دیدید ؟! سیگنالو دادم که دم صب میزنه !
+</div>
+
+## mwarmonitor — post 10390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: پس از حملات به ایران، جلسه دادگاه امروز نتانیاهو لغو شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10389
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10389_1780888970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رئیس ستاد کل و فرماندهان ارشد ارتش اسرائیل در حال حاضر از مقر فرماندهی نیروی هوایی، حملات انجام‌شده توسط ارتش در ایران را زیر نظر دارند؛ در حالی که ارتش در وضعیت آمادگی کامل، هم در حالت تهاجمی و هم دفاعی، باقی مانده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 جبهه داخلی اسرائیل: اجازه خروج از پناهگاه‌ها و اتاق‌های امن صادر شد.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همینجور آتش‌بس رو ادامه بدید باید 24 ساعتِ شبانه روز رو بیدار باشم
+</div>
+
+## pm_afshaa — post 92791
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92791_1780888971.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت دفاع عربستان: در حال مقابله با حملات موشکی و پهبادی در استان الخراج هستیم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 341099
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341099_1780888971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یخیل لایتر، سفیر اسرائیل در آمریکا گفت ایران امروز ۱۱ موشک بالستیک به سوی اسرائیل شلیک کرده است؛ موشک‌هایی که به گفته او هر یک توان تخریب یک محله کامل و وارد کردن تلفات گسترده را دارند.
+
+او تأکید کرد هیچ کشوری چنین حمله‌ای را تحمل نمی‌کند و اسرائیل نیز پاسخ خواهد داد.
+
+به گفته لایتر، ارتش اسرائیل در واکنش، در حال هدف قرار دادن سایت‌های پرتاب موشک‌های زمین‌به‌زمین ایران و برخی زیرساخت‌هاست که به بخش انرژی مرتبط نیستند.
+
+سفیر اسرائیل همچنین هشدار داد در صورت شلیک موشک از سوی حزب‌الله، مراکز فرماندهی این گروه در ضاحیه بیروت هدف حملات شدید قرار خواهند گرفت.
+
+او افزود مردم لبنان نیروی نیابتی ایران را رد کرده‌اند و مدعی شد «همه از رفتارهای رژیم ایران به ستوه آمده‌اند.»
+https://iranintl.com/202606087641
+</div>
+
+## Shin_Persian — post 6696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Mon, 08 Jun 2026 03:12:58 UTC #IDF 🇮🇱: "The IDF Chief of Staff and senior IDF officials are currently commanding IDF strikes in Iran from the Air Force bunker The IDF is in full readiness in attack and defense The Chief of Staff,…
+</div>
+
+## Shin_Persian — post 6695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 03:12:58 UTC
+
+#IDF 🇮🇱:
+"The IDF Chief of Staff and senior IDF officials are currently commanding IDF strikes in Iran from the Air Force bunker
+
+The IDF is in full readiness in attack and defense
+
+The Chief of Staff, Lieutenant General Eyal Zamir, and senior IDF officials, have conducted ongoing situation assessments over recent hours and are commanding IDF strikes in Iran from the Air Force bunker.
+
+The IDF is alert and ready to continue operations in all sectors against those who threaten the State of Israel."
+#Iran
+
+فارسی
+
+#ارتش_دفاعی_اسرائیل 🇮🇱:
+«رئیس ستاد کل ارتش دفاعی اسرائیل و مقامات ارشد ارتش دفاعی اسرائیل در حال حاضر حملات این ارتش در ایران را از پناهگاه نیروی هوایی فرماندهی می‌کنند.
+
+ارتش دفاعی اسرائیل (IDF) در آمادگی کامل تهاجمی و تدافعی قرار دارد.
+
+رئیس ستاد کل، سپهبد ایال زمیر و مقامات ارشد ارتش دفاعی اسرائیل، طی ساعات اخیر ارزیابی‌های مستمر از وضعیت موجود انجام داده و در حال فرماندهی حملات ارتش دفاعی اسرائیل در ایران از پناهگاه نیروی هوایی هستند.
+
+ارتش دفاعی اسرائیل هوشیار و آماده است تا به عملیات‌های خود در تمامی بخش‌ها علیه کسانی که دولت اسرائیل را تهدید می‌کنند، ادامه دهد.»
+#ایران
+
+𝕏 · @shin_persian
+</div>
+
+## BBCPersian — post 283135
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283135_1780888972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گروهی از مخالفان حکومت جمهوری اسلامی، در روز یکشنبه، در مقابل استادیوم سوفای در شهر لس‌آنجلس دور هم جمع شدند تا به قانون فیفا مبنی بر ممنوعیت استفاده از پرچم‌های غیر از پرچم رسمی کشورها اعتراض کنند.
+
+این گروه از ایرانیان که تیم ملی فوتبال ایران را نه یک تیم ملی که تیمی حکومتی به شمار می‌آورند به فدراسیون جهانی فوتبال انتقاد دارند که چرا اجازه از پرچم شیر و خورشید به آنها داده نمی‌شود.
+
+تیم ایران در مسابقه‌های جام‌ جهانی فوتبال در سال ۲۰۲۶ میلادی در دو بازی اولش در مرحله اول باید در شهر لس‌آنجلس به مصاف حریفانش، کشورهای نیوزیلند و بلژیک برود. بازی سوم ایران در این مرحله مقابل مصر است که در شهر سیاتل آمریکا برگزار می‌شود.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل: شلیک موشک از یمن را رصد کردیم و مشغول رهگیری هستیم
+
+ارتش اسرائیل با بیانیه‌ای اعلام کرده شلیک یک موشک از سمت یمن را رصد کرده و مشغول رهگیری آن است.
+
+همزمان آژيرهای خطر در مناطقی از اسرائیل از جمله تل آویو و شهرهای جنوبی این کشور به صدا در آمده و از شهروندان خواسته شده پناه بگیرند.
+
+https://bbc.in/4fwDUTo
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 06:42
 ---
 
