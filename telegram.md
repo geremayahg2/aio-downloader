@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 07:32
+---
+
+## VahidOOnLine — post 244262
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244262_1780891370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میکی زوهار، وزیر فرهنگ و ورزش اسرائیل، در شبکه اجتماعی ایکس نوشت: «من به نخست‌وزیر نتانیاهو به خاطر حملات امشب در ایران تبریک می‌گویم.»
+
+او نوشت: «در خاورمیانه، آن‌ها فقط زور و قدرت را می‌فهمند و خوب است که ما نشان دادیم اسرائیل در مواجهه با تجاوز رژیم آیت‌الله‌ها ساکت نخواهد ماند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244261
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ایرانیان روز یکشنبه با تجمع مقابل استادیوم «سوفای» در لس‌آنجلس، به تصمیم فیفا برای ممنوعیت همراه داشتن پرچم شیروخورشید در مسابقات جام جهانی ۲۰۲۶ اعتراض کردند. این تجمع در حالی برگزار شد که تیم ملی فوتبال ایران قرار است دو دیدار نخست خود در مرحله گروهی جام جهانی ۲۰۲۶ را در لس‌آنجلس برابر نیوزیلند و بلژیک برگزار کند. سومین مسابقه این تیم نیز مقابل مصر در شهر سیاتل آمریکا خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244260
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ ایرانیان روز یکشنبه با تجمع مقابل استادیوم «سوفای» در لس‌آنجلس، به تصمیم فیفا برای ممنوعیت همراه داشتن پرچم شیروخورشید در مسابقات جام جهانی ۲۰۲۶ اعتراض کردند. این تجمع در حالی برگزار شد که تیم ملی فوتبال ایران قرار است دو دیدار نخست خود در مرحله گروهی جام جهانی ۲۰۲۶ را در لس‌آنجلس برابر نیوزیلند و بلژیک برگزار کند. سومین مسابقه این تیم نیز مقابل مصر در شهر سیاتل آمریکا خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13876
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13876_1780891371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غرب تهران همین الان
+@withyashar
+</div>
+
+## VahidOnline — post 76029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+۳تا موشک از کرمانشاه همین الان
+
+وحید کرمانشاه همین الان صدای وحشتناک اومد
+
+سلام ۷.۳۰ صدای انفجار از کرمانشاه . احتمالا پرتاب موشک
+
+سلام وحید جان
+7:28 بندرماهشهر صدای انفجار اومد
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76028
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76028_1780891372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعتی بعد از موج حملات موشکی ایران به شمال اسرائیل، خبرگزاری تسنیم، نزدیک به سپاه پاسداران، در تحلیل و تفسیری درباره ابعاد نظامی این حمله گزارش کرده که در حملات موشکی و پهپادی یکشنبه شب، سپاه پاسداران از «پهپادی ناشناخته» که از موتور جت بهره می‌برد، استفاده کرده است.
+
+کارشناس نظامی تسنیم همچنین از شلیک موشک‌های خیبرشکن با کلاهک‌های خوشه‌ای در جریان این حملات خبر داده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341104
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341104_1780891373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میکی زوهار، وزیر فرهنگ و ورزش اسرائیل، در شبکه اجتماعی ایکس نوشت: «من به نخست‌وزیر نتانیاهو به خاطر حملات امشب در ایران تبریک می‌گویم.»
+
+او نوشت: «در خاورمیانه، آن‌ها فقط زور و قدرت را می‌فهمند و خوب است که ما نشان دادیم اسرائیل در مواجهه با تجاوز رژیم آیت‌الله‌ها ساکت نخواهد ماند.»
+https://iranintl.com/202606085434
+</div>
+
+## Shin_Persian — post 6698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 04:01:16 UTC
+
+BM launch from Kermanshah
+#Iran
+
+فارسی
+
+شلیک موشک بالستیک از کرمانشاه
+#Iran
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 07:22
 ---
 
