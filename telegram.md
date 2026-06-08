@@ -7,6 +7,262 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/18 06:33
+---
+
+## VahidOOnLine — post 244251
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244251_1780887783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سخنگوی ارتش اسرائیل پس از حمله‌های یکشنبه شب سپاه به شمال اسرائیل و حمله‌های متقابل ارتش اسرائیل به غرب و مرکز ایران در بامداد دوشنبه اعلام کرد که ارتش اسرائیل یک موشک شلیک شده از یمن را رصد کرده و سامانه‌های پدافندی در حال رهگیری آن هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244250
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244250_1780887783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اکسیوس به نقل از یک مقام آمریکایی که نام او را اعلام نکرده نوشت که آمرکا در حمله‌های بامداد دوشنبه اسرائیل که در واکنش به حمله‌های یکشنبه‌شب سپاه انجام شد، نقشی نداشته است. او همچنین حمله‌های اسرائیل را «نسبتا محدود» توصیف کرده است. اکسیوس ساعاتی قبل هم مدعی شده بود که از محتوای گفتگوی ترامپ و نتانیاهو آگاه است و نخست‌وزیر اسرائیل به درخواست رئیس‌جمهوری آمریکا موافقت کرده که پاسخ به حمله‌های سپاه را به تاخیر بیاندازد. اما ساعاتی از انتشار این گزارش نگذشته بود که صدای انفجارها در غرب و مرکز ایران به گوش رسید و ارتش اسرائیل حمله‌ها را تایید کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244249
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244249_1780887783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گزارش رسانه‌های ایران حاکی از آن است که در جریان حمله‌های بامداد دوشنبه اسرائیل دست‌کم ۱۵ هدف مورد اصابت قرار گرفته‌اند و به گفته الجزیره، یکی از این اهداف یک انبار پهپادهای انتحاری در تهران بوده است. گزارش‌های مردمی حاکی از شنیده شدن صدای انفجار در غرب تهران است. ارتش اسرائیل بامداد دوشنبه و پس از حمله‌های یکشنبه شب سپاه اعلام کرد که به مواضع نظامی حکومت در غرب و مرکز ایران حمله کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 10384
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨جبهه داخلی اسرائیل: پس از رصد شلیک موشک‌هایی از یمن به سمت مرکز اسرائیل، برای ساکنان مناطق جنوب و مرکز اسرائیل هشدار اولیه صادر شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارتش اسرائیل:
+
+🔸ارتش اسرائیل شلیک یک موشک از یمن به سمت اراضی اسرائیل را تأیید کرد و سامانه‌های پدافندی در حال رهگیری آن هستند. لطفاً به دستورالعمل‌های فرماندهی جبهه داخلی پایبند باشید.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از یمن به سمت اسرائیل
+</div>
+
+## pm_afshaa — post 92785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همه خوابن من بیدار دهنم داره سرویس میشه بعد حمایت نمیکنین از کانال بفرستین برا بقیه😒
+</div>
+
+## pm_afshaa — post 92784
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92784_1780887784.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون هشدار حملات موشکی به اسرائیل 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسمون اسراییل کلییر شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره : اسرائیل انبار پهپادها رو تو تهران هدف قرار داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92781
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92781_1780887785.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون هشدار حملات موشکی به اسرائیل 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92780
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_92780_1780887785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون هشدار حملات موشکی به اسرائیل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92779
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92779_1780887786.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حوثی‌های یمن به اسرائیل موشک زدن و آژیر خطر حمله هوایی در اسرائیل فعال شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6694
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6694_1780887786.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 08 Jun 2026 02:57:13 UTC
+
+BM launch from Yemen.
+Tzeva Adom in central.
+
+فارسی
+
+شلیک موشک بالستیک از یمن.
+آژیر قرمز (Tzeva Adom) در مناطق مرکزی.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219971
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219971_1780887787.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش اسرائیل دقایقی قبل از شناسایی حمله موشکی از سمت یمن به سمت خاک اسرائیل خبر داد و گفت سامانه‌های دفاعی برای رهگیری این تهدید در حال فعالیت هستند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در حالی که جمهوری اسلامی آزادسازی دارایی‌های مسدودشده را یکی از مطالبات اصلی خود در مذاکرات با واشینگتن می‌داند، گزارش‌ها حاکی از آن است که آمریکا در حال بررسی استفاده از همین دارایی‌ها برای جبران خسارت‌های ناشی از حملات جمهوری اسلامی به کشورهای خلیج فارس است
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16038
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16038_1780887787.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی گزارش رسانه ها مبنی بر شنیده شدن صدای انفجار در پایگاه هوایی الخرج؛ یک مقام آگاه نظامی به خبرگزاری صداوسیما گفت: ایران هیچ شلیکی به سمت این پایگاه نداشته است.
+</div>
+
+## Persian_Trend_Official — post 16037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی گزارش رسانه ها مبنی بر شنیده شدن صدای انفجار در پایگاه هوایی الخرج؛ یک مقام آگاه نظامی به خبرگزاری صداوسیما گفت: ایران هیچ شلیکی به سمت این پایگاه نداشته است.
+</div>
+
+## Persian_Trend_Official — post 16036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل: ما شلیک موشک از یمن به سمت خاک اسرائیل را شناسایی کردیم و سیستم‌های دفاعی در حال رهگیری آن هستند‌.
+</div>
+
+## Persian_Trend_Official — post 16035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آژیر هشدار در مرکز اسرائیل؛ گزارش‌ها از شلیک موشک از یمن
+
+رسانه‌های اسرائیلی از فعال شدن آژیرهای هشدار در مناطق مرکزی اسرائیل خبر دادند. همزمان گزارش‌هایی از شلیک یک موشک از سوی یمن به سمت اسرائیل منتشر شده است.
+
+برخی منابع نیز از بررسی احتمال شلیک موشک از سوی ایران خبر داده‌اند،
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 283132
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283132_1780887787.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت نفت در معاملات صبح دوشنبه در بازارهای آسیایی افزایش یافت؛ این رشد پس از آن رخ داد که ایران برای نخستین‌بار از زمان توافق آتش‌بس شکننده میان ایران، اسرائیل و ایالات متحده در ماه آوریل، به سمت اسرائیل موشک شلیک کرد.
+
+بر اساس گزارش‌ها، قیمت نفت برنت به عنوان شاخص جهانی، ۲/۶ درصد افزایش یافت و به ۹۵/۵۰ دلار در هر بشکه رسید. همچنین نفت خام آمریکا با رشد ۲/۵ درصدی به ۹۲/۷۵ دلار معامله شد.
+
+به گفته تحلیلگران، بازار انرژی در هفته‌های اخیر نوسانات شدیدی را تجربه کرده است؛ به طوری که از زمان توافق آتش‌بس ماه آوریل، قیمت ها بارها به صورت قابل توجهی بالا و پایین رفته‌اند.
+
+در هفته گذشته نیز قیمت‌ها در محدوده حدود ۹۵ دلار در نوسان بوده است، زیرا معامله‌گران اثرات بلندمدت جنگ و ناامنی در خاورمیانه بر جریان عرضه جهانی انرژی را ارزیابی می‌کنند.
+
+📸 Getty
+
+https://bbc.in/4fwDUTo
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+• حملهٔ موشکی از یمن به اسرائیل
+
+• اعلام هشدار موشکی در مناطق مختلف اسرائیل
+
+• آسمان اسرائیل بسته شد
+</div>
+
+---
 📅 بروزرسانی: 1405/03/18 06:22
 ---
 
